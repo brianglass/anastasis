@@ -1,7 +1,11 @@
 import glob
+import os.path
 import pipes
 
 from lxml import etree, html
+
+from multiprocessing import Pool
+
 
 def replace_tag(old_element, new_element):
     parent = old_element.getparent()
@@ -46,21 +50,21 @@ def transform(filename):
     transformed_html = etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
     return transformed_html
 
-
-def convert_html_file(filename):
+def convert_html_file(filepath):
+    path, filename = os.path.split(filepath)
     basename, extension = filename.split('.')
-    pandoc = 'pandoc -S -f html -t markdown'
+    pandoc = 'pandoc -S -f html -t markdown_github'
 
-    transformed_html = transform(filename)
+    transformed_html = transform(filepath)
 
     t = pipes.Template()
     t.append(pandoc, '--')
-    f = t.open('{}.md'.format(basename), 'w')
+    f = t.open('files/{}.md'.format(basename), 'w')
     f.write(transformed_html)
-    #open('prophet.html', 'w', encoding='UTF-8').write(transformed_html)
+    f.close()
 
 
 if __name__ == '__main__':
-    convert_html_file('index.html')
-    for filename in glob.glob('*.htm'):
-        convert_html_file(filename)
+    with Pool(8) as pool:
+        convert_html_file('original/index.html')
+        pool.map(convert_html_file, glob.glob('original/*.htm'))
