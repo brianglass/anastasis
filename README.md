@@ -20,3 +20,6 @@ Markdown. On a Mac, you must have Python 3 installed to run the script.:
 Once you have this done, you should be able to run the script as follows:
 
     python cleanup.py
+
+The script will convert the files in the 'original' directory to new markdown
+files in the 'files' directory.
