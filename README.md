@@ -25,3 +25,10 @@ Once you have this done, you should be able to run the script as follows:
 
 The script will convert the files in the 'original' directory to new markdown
 files in the 'files' directory.
+
+Work in Progress
+================
+The script that does the conversion is a work in progress. There are some flaws
+in the conversion process.  At some point, once the script has done a good
+enough job, I will just get rid of it and future edition can place directly on
+the markdown files. Pull requests for improvements to the script are welcome.
