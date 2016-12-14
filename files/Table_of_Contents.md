@@ -284,12 +284,10 @@
         -   [Apostle](apostle1.md)
         -   [Gospel](gospel.md)
         -   [Prophetologion](prophetologion.md)
-            -   [Readings September to
-                November](readings_september_to_november.md)
+            -   [Readings September to November](readings_september_to_november.md)
             -   [Readings December](readings_december.md)
             -   [Readings for January](readings_for_january.md)
-            -   [Readings February to
-                April](Readings%20February%20to%20April.md)
+            -   [Readings February to April](Readings%20February%20to%20April.md)
             -   [Readings May to August](readings_may_to_august.md)
 -   [Voice of the Fathers](voiceof.md)
     -   [Athanasios of Alexandria](athanasios_of_alexandria.md)
@@ -342,8 +340,7 @@
             -   [Protomartyr Thekla](TheklaCan.md)
             -   [Pascha](PaschaCan.md)
             -   [Paschal Canon with Notes](paschal_canon_with_notes.md)
-                -   [Paschal Canon
-                    Noted.pdf](Paschal%20Canon%20Noted.pdf)
+                -   [Paschal Canon Noted.pdf](Paschal%20Canon%20Noted.pdf)
         -   [Joseph the Hymnographer](jo-hym.md)
             -   [Second Canon for the Assumption](asccan2.md)
             -   [Prophet Elias](20julcan2.md)
@@ -375,8 +372,7 @@
             -   [Kontakion 32](kontakion_32.md)
             -   [Kontakion 49](kontakion_49.md)
             -   [Kontakion 51](kontakion_51.md)
-                -   [On Adam and
-                    Eve-51.pdf](On%20Adam%20and%20Eve-51.pdf)
+                -   [On Adam and Eve-51.pdf](On%20Adam%20and%20Eve-51.pdf)
             -   [The Akathist](akath.md)
         -   [Anonymous](AnonKont.md)
             -   [Adam’s Lament](adam's_lament.md)
@@ -405,7 +401,7 @@
 
 ------------------------------------------------------------------------
 
-All texts and translations on this page are copyright to\
+All texts and translations on this page are copyright to
 Archimandrite Ephrem Â©
 
 **This page was last updated on 03 November 2008**

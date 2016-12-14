@@ -3,508 +3,331 @@
 ON ADAM
 =======
 
-[]{style="mso-bidi-font-size: 10.0pt"}
+<span style="mso-bidi-font-size: 10.0pt"></span>
 
 Â’S LAMENT
 ==========
 
-[]{style="mso-bidi-font-size: 10.0pt"}
+<span style="mso-bidi-font-size: 10.0pt"></span>
 
 INTRODUCTION
 ------------
 
-The anonymous Kontakion on AdamÂ’s Lament is one of the earliest we
-possess and is probably of the fifth century and pre-dates those of St
-Romanos. It is still used in the office of Matins for the Sunday before
-Lent, where the Proemium is followed not, as is usual, by the first
-stanza of the hymn only, but by four, numbers 1 to 3 and 7. The text in
-the Triodion differs in places from that of the critical edition,
-notably in the refrain, which is in the first person, Â’Have mercy on me
-who have fallenÂ’. In the third line of stanza 7 the Triodion has,
-Â’Implore God for the one who has fallenÂ’, which does not scan.
+The anonymous Kontakion on AdamÂ’s Lament is one of the earliest we possess and is probably of the fifth century and pre-dates those of St Romanos. It is still used in the office of Matins for the Sunday before Lent, where the Proemium is followed not, as is usual, by the first stanza of the hymn only, but by four, numbers 1 to 3 and 7. The text in the Triodion differs in places from that of the critical edition, notably in the refrain, which is in the first person, Â’Have mercy on me who have fallenÂ’. In the third line of stanza 7 the Triodion has, Â’Implore God for the one who has fallenÂ’, which does not scan.
 
-The last four stanzas, which correspond to the word ADAM in the
-acrostic, are almost certainly spurious, though they occur in all but
-one of the MSS. Stanza 18, which begins, Â’Now therefore, SaviourÂ’
-forms a concluding prayer, which is feature of the classic kontakion and
-the following stanzas are not really about Adam at all, but are simply a
-series of commonplaces of inferior quality.
+The last four stanzas, which correspond to the word ADAM in the acrostic, are almost certainly spurious, though they occur in all but one of the MSS. Stanza 18, which begins, Â’Now therefore, SaviourÂ’ forms a concluding prayer, which is feature of the classic kontakion and the following stanzas are not really about Adam at all, but are simply a series of commonplaces of inferior quality.
 
 ------------------------------------------------------------------------
 
-[]{style="mso-bidi-font-size: 10.0pt"}
+<span style="mso-bidi-font-size: 10.0pt"></span>
 
 **ON ADAMÂ’S LAMENT**
 =====================
 
-[Acrostic:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}*[ ]{style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:"Book Antiqua""}*[On The First-Formed,
-\[Adam\]]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";text-transform:uppercase"}[]{style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">Acrostic:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
+10.0pt;font-family:&quot;Book Antiqua&quot;"> </span>*<span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;text-transform:uppercase">On The First-Formed, \[Adam\]</span><span style="font-size:14.0pt;mso-bidi-font-size:
+10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-[Proemium]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
-font-style:normal"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
+font-style:normal">Proemium</span>
 
-[Guide of wisdom, giver of prudence,
-]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Guide of wisdom, giver of prudence, </span>
 
- [\
-          ]{style="mso-tab-count:1"}Teacher of the foolish and defender
-of the poor,
+ <span style="mso-tab-count:1">
+          </span>Teacher of the foolish and defender of the poor,
 
-[\
-          ]{style="mso-tab-count:1"}Establish, give understanding to my
-heart, Master;
+<span style="mso-tab-count:1">
+          </span>Establish, give understanding to my heart, Master;
 
-\
 Give me a word, Word of the Father;
 
-[\
-          ]{style="mso-tab-count:1"}For see, my lips I shall not
-restrain from crying to you:
+<span style="mso-tab-count:1">
+          </span>For see, my lips I shall not restrain from crying to you:
 
-[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-fallen. ]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the fallen. </span>
 
-[1]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">1</span>
 
-[Then Adam sat and wept opposite[[\[1\]]{.MsoFootnoteReference
-style="mso-special-character:footnote"}](#_ftn1){#_ftnref1}[\
-          ]{style="mso-tab-count:1"}The delight of Paradise beating his
-eyes with his hands[\
-          ]{style="mso-tab-count:1"}And he
-said:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Then Adam sat and wept opposite<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a><span style="mso-tab-count:1">
+          </span>The delight of Paradise beating his eyes with his hands<span style="mso-tab-count:1">
+          </span>And he said:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[2]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">2</span>
 
-[As Adam saw[  ]{style="mso-spacerun: yes"}the Angel pushing and
-shutting[\
-          ]{style="mso-tab-count:1"}The door of GodÂ’s garden he groaned
-aloud[\
-          ]{style="mso-tab-count:1"}And
-said:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">As Adam saw<span style="mso-spacerun: yes">  </span>the Angel pushing and shutting<span style="mso-tab-count:1">
+          </span>The door of GodÂ’s garden he groaned aloud<span style="mso-tab-count:1">
+          </span>And said:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[3]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">3</span>
 
-[Share in the pain, O Paradise, of your beggared master[\
-          ]{style="mso-tab-count:1"}And with the sound of your leaves
-implore the creator[\
-          ]{style="mso-tab-count:1"}Not to shut
-you:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Share in the pain, O Paradise, of your beggared master<span style="mso-tab-count:1">
+          </span>And with the sound of your leaves implore the creator<span style="mso-tab-count:1">
+          </span>Not to shut you:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[4]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">4</span>
 
-[Bend down your trees like living beings and fall before[\
-          ]{style="mso-tab-count:1"}Him who holds the key, that thus you
-may remain open[\
-          ]{style="mso-tab-count:1"}For one who cries:\
-]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Bend down your trees like living beings and fall before<span style="mso-tab-count:1">
+          </span>Him who holds the key, that thus you may remain open<span style="mso-tab-count:1">
+          </span>For one who cries:
+</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[5]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">5</span>
 
-[I breathe the fragrance[   ]{style="mso-spacerun:
-yes"}of your beauty[   ]{style="mso-spacerun: yes"}and I melt[  
-]{style="mso-spacerun: yes"}as I recall[\
-          ]{style="mso-tab-count:1"}How I delighted there[  
-]{style="mso-spacerun: yes"}from the sweet scent[\
-          ]{style="mso-tab-count:1"}Of the
-flowers:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">I breathe the fragrance<span style="mso-spacerun:
+yes">   </span>of your beauty<span style="mso-spacerun: yes">   </span>and I melt<span style="mso-spacerun: yes">   </span>as I recall<span style="mso-tab-count:1">
+          </span>How I delighted there<span style="mso-spacerun: yes">   </span>from the sweet scent<span style="mso-tab-count:1">
+          </span>Of the flowers:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[6]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">6</span>
 
-[Now I have learnt[   ]{style="mso-spacerun: yes"}what I suffered,[  
-]{style="mso-spacerun: yes"}now I have understood[  
-]{style="mso-spacerun: yes"}what God[\
-          ]{style="mso-tab-count:1"}Said to me in Paradise,[  
-]{style="mso-spacerun: yes"}Â‘In taking Eve[\
-          ]{style="mso-tab-count:1"}You steal away from
-meÂ’:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Now I have learnt<span style="mso-spacerun: yes">   </span>what I suffered,<span style="mso-spacerun: yes">   </span>now I have understood<span style="mso-spacerun: yes">   </span>what God<span style="mso-tab-count:1">
+          </span>Said to me in Paradise,<span style="mso-spacerun: yes">   </span>Â‘In taking Eve<span style="mso-tab-count:1">
+          </span>You steal away from meÂ’:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[7]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">7</span>
 
-[Paradise,[   ]{style="mso-spacerun: yes"}all virtue,[  
-]{style="mso-spacerun: yes"}all holiness,[  
-]{style="mso-spacerun: yes"}all happiness,\
-[          ]{style="mso-tab-count:1"}Planted because of Adam,[  
-]{style="mso-spacerun: yes"}shut because of Eve,[\
-          ]{style="mso-tab-count:1"}How shall I lament for
-you?]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Paradise,<span style="mso-spacerun: yes">   </span>all virtue,<span style="mso-spacerun: yes">   </span>all holiness,<span style="mso-spacerun: yes">   </span>all happiness,
+<span style="mso-tab-count:1">          </span>Planted because of Adam,<span style="mso-spacerun: yes">   </span>shut because of Eve,<span style="mso-tab-count:1">
+          </span>How shall I lament for you?</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[8]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">8</span>
 
-[I am polluted,[   ]{style="mso-spacerun: yes"}I am ruined,[  
-]{style="mso-spacerun: yes"}I am enslaved[  
-]{style="mso-spacerun: yes"}to my slaves;[\
-          ]{style="mso-tab-count:1"}For reptiles and wild beats,[  
-]{style="mso-spacerun: yes"}whom I subjected by fear,[\
-          ]{style="mso-tab-count:1"}Now make me
-tremble;]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">I am polluted,<span style="mso-spacerun: yes">   </span>I am ruined,<span style="mso-spacerun: yes">   </span>I am enslaved<span style="mso-spacerun: yes">   </span>to my slaves;<span style="mso-tab-count:1">
+          </span>For reptiles and wild beats,<span style="mso-spacerun: yes">   </span>whom I subjected by fear,<span style="mso-tab-count:1">
+          </span>Now make me tremble;</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[9]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">9</span>
 
-[No longer[   ]{style="mso-spacerun: yes"}do the flowers[  
-]{style="mso-spacerun: yes"}offer me[  
-]{style="mso-spacerun: yes"}pleasure,[\
-          ]{style="mso-tab-count:1"}But thorns and thistles
-[[\[2\]]{.MsoFootnoteReference
-style="mso-special-character:footnote"}](#_ftn2){#_ftnref2} the earth
-raises for me,[\
-          ]{style="mso-tab-count:1"}Not
-produce:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">No longer<span style="mso-spacerun: yes">   </span>do the flowers<span style="mso-spacerun: yes">   </span>offer me<span style="mso-spacerun: yes">   </span>pleasure,<span style="mso-tab-count:1">
+          </span>But thorns and thistles <a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> the earth raises for me,<span style="mso-tab-count:1">
+          </span>Not produce:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[10]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">10</span>
 
-[The table[   ]{style="mso-spacerun: yes"}without toil[  
-]{style="mso-spacerun: yes"}I overthrew[  
-]{style="mso-spacerun: yes"}by my own will;[\
-          ]{style="mso-tab-count:1"}And now[  
-]{style="mso-spacerun: yes"}in the sweat[  
-]{style="mso-spacerun: yes"}of my brow[   ]{style="mso-spacerun:
-yes"}I eat[\
-          ]{style="mso-tab-count:1"}My
-bread:[[\[3\]]{.MsoFootnoteReference
-style="mso-special-character:footnote"}](#_ftn3){#_ftnref3}]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">The table<span style="mso-spacerun: yes">   </span>without toil<span style="mso-spacerun: yes">   </span>I overthrew<span style="mso-spacerun: yes">   </span>by my own will;<span style="mso-tab-count:1">
+          </span>And now<span style="mso-spacerun: yes">   </span>in the sweat<span style="mso-spacerun: yes">   </span>of my brow<span style="mso-spacerun:
+yes">   </span>I eat<span style="mso-tab-count:1">
+          </span>My bread:<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a></span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[11]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">11</span>
 
-[My throat,[   ]{style="mso-spacerun: yes"}which holy[  
-]{style="mso-spacerun: yes"}waters[   ]{style="mso-spacerun: yes"}had
-made sweet,[\
-          ]{style="mso-tab-count:1"}Has become bitter from the
-multitude[   ]{style="mso-spacerun: yes"}of my groans,[\
-          ]{style="mso-tab-count:1"}As I cry
-out:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">My throat,<span style="mso-spacerun: yes">   </span>which holy<span style="mso-spacerun: yes">   </span>waters<span style="mso-spacerun: yes">   </span>had made sweet,<span style="mso-tab-count:1">
+          </span>Has become bitter from the multitude<span style="mso-spacerun: yes">   </span>of my groans,<span style="mso-tab-count:1">
+          </span>As I cry out:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[12]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">12</span>
 
-[How have I fallen?[   ]{style="mso-spacerun:
-yes"}Where have I arrived?[   ]{style="mso-spacerun: yes"}From a
-pedestal[   ]{style="mso-spacerun: yes"}to the ground;[\
-          ]{style="mso-tab-count:1"}From a divine admonition[  
-]{style="mso-spacerun: yes"}to a wretched existence[\
-          ]{style="mso-tab-count:1"}I have been
-reduced:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">How have I fallen?<span style="mso-spacerun:
+yes">   </span>Where have I arrived?<span style="mso-spacerun: yes">   </span>From a pedestal<span style="mso-spacerun: yes">   </span>to the ground;<span style="mso-tab-count:1">
+          </span>From a divine admonition<span style="mso-spacerun: yes">   </span>to a wretched existence<span style="mso-tab-count:1">
+          </span>I have been reduced:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[13]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">13</span>
 
-[Now Satan[   ]{style="mso-spacerun: yes"}rejoices[  
-]{style="mso-spacerun: yes"}having stripped me[  
-]{style="mso-spacerun: yes"}of my glory;[\
-          ]{style="mso-tab-count:1"}But this gives him no joy;[  
-]{style="mso-spacerun: yes"}for see, my God[\
-          ]{style="mso-tab-count:1"}Clothes
-me:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Now Satan<span style="mso-spacerun: yes">   </span>rejoices<span style="mso-spacerun: yes">   </span>having stripped me<span style="mso-spacerun: yes">   </span>of my glory;<span style="mso-tab-count:1">
+          </span>But this gives him no joy;<span style="mso-spacerun: yes">   </span>for see, my God<span style="mso-tab-count:1">
+          </span>Clothes me:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[14]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">14</span>
 
-[God himself[   ]{style="mso-spacerun: yes"}pitied me,[  
-]{style="mso-spacerun: yes"}clothes[   ]{style="mso-spacerun: yes"}my
-nakedness;[\
-          ]{style="mso-tab-count:1"}By this he shows me[  
-]{style="mso-spacerun: yes"}that he too cares[\
-          ]{style="mso-tab-count:1"}For me, the
-transgressor:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">God himself<span style="mso-spacerun: yes">   </span>pitied me,<span style="mso-spacerun: yes">   </span>clothes<span style="mso-spacerun: yes">   </span>my nakedness;<span style="mso-tab-count:1">
+          </span>By this he shows me<span style="mso-spacerun: yes">   </span>that he too cares<span style="mso-tab-count:1">
+          </span>For me, the transgressor:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[15]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">15</span>
 
-[The clothing[   ]{style="mso-spacerun: yes"}signifies for me[  
-]{style="mso-spacerun: yes"}the state[  
-]{style="mso-spacerun: yes"}that is to come,[\
-          ]{style="mso-tab-count:1"}For the one who has now clothed
-me[   ]{style="mso-spacerun: yes"}in a little while wears me[\
-          ]{style="mso-tab-count:1"}And saves
-me:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">The clothing<span style="mso-spacerun: yes">   </span>signifies for me<span style="mso-spacerun: yes">   </span>the state<span style="mso-spacerun: yes">   </span>that is to come,<span style="mso-tab-count:1">
+          </span>For the one who has now clothed me<span style="mso-spacerun: yes">   </span>in a little while wears me<span style="mso-tab-count:1">
+          </span>And saves me:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[16]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">16</span>
 
-[Â‘Swiftly Adam[   ]{style="mso-spacerun: yes"}you have understood[  
-]{style="mso-spacerun: yes"}the wish[   ]{style="mso-spacerun: yes"}of
-my compassion;[\
-          ]{style="mso-tab-count:1"}Therefore I do not deprive you[  
-]{style="mso-spacerun: yes"}of this your hope[\
-          ]{style="mso-tab-count:1"}As you
-cry:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Â‘Swiftly Adam<span style="mso-spacerun: yes">   </span>you have understood<span style="mso-spacerun: yes">   </span>the wish<span style="mso-spacerun: yes">   </span>of my compassion;<span style="mso-tab-count:1">
+          </span>Therefore I do not deprive you<span style="mso-spacerun: yes">   </span>of this your hope<span style="mso-tab-count:1">
+          </span>As you cry:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[17]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">17</span>
 
-[I do not wish[   ]{style="mso-spacerun: yes"}nor do I will[  
-]{style="mso-spacerun: yes"}the death[   ]{style="mso-spacerun: yes"}of
-the one I fashioned;[\
-          ]{style="mso-tab-count:1"}But having chastened him enough[  
-]{style="mso-spacerun: yes"}I will glorify eternally[\
-          ]{style="mso-tab-count:1"}The one who
-cries:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.Â’
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">I do not wish<span style="mso-spacerun: yes">   </span>nor do I will<span style="mso-spacerun: yes">   </span>the death<span style="mso-spacerun: yes">   </span>of the one I fashioned;<span style="mso-tab-count:1">
+          </span>But having chastened him enough<span style="mso-spacerun: yes">   </span>I will glorify eternally<span style="mso-tab-count:1">
+          </span>The one who cries:</span><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.Â’
 
-[18]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua";
-color:red"}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red">18</span>
 
-Now therefore, Saviour,[   ]{style="mso-spacerun: yes"}save me also[  
-]{style="mso-spacerun: yes"}who seek for you[  
-]{style="mso-spacerun: yes"}with longing;[[\
-          ]{style="mso-tab-count:1"}I do not wish to take you in,[  
-]{style="mso-spacerun: yes"}but I wish to be taken in by
-you[[\[4\]]{.MsoFootnoteReference style="mso-special-character:
-footnote"}](#_ftn4){#_ftnref4}[\
-          ]{style="mso-tab-count:1"}And to cry to
-you:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+Now therefore, Saviour,<span style="mso-spacerun: yes">   </span>save me also<span style="mso-spacerun: yes">   </span>who seek for you<span style="mso-spacerun: yes">   </span>with longing;<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:1">
+          </span>I do not wish to take you in,<span style="mso-spacerun: yes">   </span>but I wish to be taken in by you<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:
+footnote">[4]</span></a><span style="mso-tab-count:1">
+          </span>And to cry to you:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[\[19\][[\[5\]]{.MsoFootnoteReference
-style="mso-special-character:footnote"}](#_ftn5){#_ftnref5}]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[19\]<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a></span>
 
-[\[O incomparable,[   ]{style="mso-spacerun: yes"}all-holy,[  
-]{style="mso-spacerun: yes"}all-immaculate[  
-]{style="mso-spacerun: yes"}look down[\
-          ]{style="mso-tab-count:1"}From heaven as compassionate[  
-]{style="mso-spacerun: yes"}and save me as unworthily[\
-          ]{style="mso-tab-count:1"}I
-shout:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">\[O incomparable,<span style="mso-spacerun: yes">   </span>all-holy,<span style="mso-spacerun: yes">   </span>all-immaculate<span style="mso-spacerun: yes">   </span>look down<span style="mso-tab-count:1">
+          </span>From heaven as compassionate<span style="mso-spacerun: yes">   </span>and save me as unworthily<span style="mso-tab-count:1">
+          </span>I shout:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[\[20\][]{style="color:red"}]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[20\]<span style="color:red"></span></span>
 
-[Rouse[    ]{style="mso-spacerun: yes"}my mind to[  
-]{style="mso-spacerun: yes"}praise,[   ]{style="mso-spacerun: yes"}raise
-up[\
-          ]{style="mso-tab-count:1"}The one who lies sick in bed,[  
-]{style="mso-spacerun: yes"}who unworthily, Saviour,[\
-          ]{style="mso-tab-count:1"}Cries to
-you:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Rouse<span style="mso-spacerun: yes">    </span>my mind to<span style="mso-spacerun: yes">   </span>praise,<span style="mso-spacerun: yes">   </span>raise up<span style="mso-tab-count:1">
+          </span>The one who lies sick in bed,<span style="mso-spacerun: yes">   </span>who unworthily, Saviour,<span style="mso-tab-count:1">
+          </span>Cries to you:</span><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.
 
-[\[21\][]{style="color:red"}]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[21\]<span style="color:red"></span></span>
 
-[Raise up[   ]{style="mso-spacerun: yes"}make firm,[  
-]{style="mso-spacerun: yes"}O Lover of mankind,[  
-]{style="mso-spacerun: yes"}the one who has now[\
-          ]{style="mso-tab-count:1"}Stumbled as a profligate in life;[  
-]{style="mso-spacerun: yes"}draw near me, Saviour,[\
-          ]{style="mso-tab-count:1"}As I
-cry:]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\
-          ]{style="mso-tab-count:
-1"}[          ]{style="mso-tab-count:1"}O Merciful, have mercy on the
-one who has fallen.]{style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Raise up<span style="mso-spacerun: yes">   </span>make firm,<span style="mso-spacerun: yes">   </span>O Lover of mankind,<span style="mso-spacerun: yes">   </span>the one who has now<span style="mso-tab-count:1">
+          </span>Stumbled as a profligate in life;<span style="mso-spacerun: yes">   </span>draw near me, Saviour,<span style="mso-tab-count:1">
+          </span>As I cry:</span><span style="font-size:14.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
+1">
+          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-[\[22\][]{style="color:red"}]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[22\]<span style="color:red"></span></span>
 
-[Unity, Trinity[   ]{style="mso-spacerun: yes"}undivided[  
-]{style="mso-spacerun: yes"}unseparated,[  
-]{style="mso-spacerun: yes"}at the prayers[\
-          ]{style="mso-tab-count:1"}Of the Mother of God take pity on
-me[   ]{style="mso-spacerun: yes"}and overlook the sins[\
-          ]{style="mso-tab-count:1"}Of those who cry:[\
-                    ]{style="mso-tab-count:1"}O Merciful, have mercy on
-the one who has
-fallen.\]]{style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}
-
-<div style="mso-element:footnote-list">
-
-\
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;">Unity, Trinity<span style="mso-spacerun: yes">   </span>undivided<span style="mso-spacerun: yes">   </span>unseparated,<span style="mso-spacerun: yes">   </span>at the prayers<span style="mso-tab-count:1">
+          </span>Of the Mother of God take pity on me<span style="mso-spacerun: yes">   </span>and overlook the sins<span style="mso-tab-count:1">
+          </span>Of those who cry:<span style="mso-tab-count:1">
+                    </span>O Merciful, have mercy on the one who has fallen.\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;"></span>
 
 ------------------------------------------------------------------------
 
-<div id="ftn1" style="mso-element:footnote">
+<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:25 (LXX). </span><span style="font-size:12.0pt;mso-bidi-font-size:
+13.5pt;font-family:&quot;Book Antiqua&quot;">The first line of Stanza 1 echoes the LXX text of Genesis 3:24, which reads Â’And \[God\] settled Adam opposite the Paradise of pleasure and set in place the CherubimÂ’. This rendering has influenced both the liturgical and the iconographic traditions. The Hebrew has only one verb, Â’And \[God\] settled east of the garden of Eden the CherubimÂ’. The Catholic *New American Bible* has adopted the LXX reading as the correct one.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-[[\[1\]]{.MsoFootnoteReference
-style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"}](#_ftnref1){#_ftn1}[
-Cf. Gen. 3:25 (LXX).
-]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}[The
-first line of Stanza 1 echoes the LXX text of Genesis 3:24, which reads
-Â’And \[God\] settled Adam opposite the Paradise of pleasure and set in
-place the CherubimÂ’. This rendering has influenced both the liturgical
-and the iconographic traditions. The Hebrew has only one verb, Â’And
-\[God\] settled east of the garden of Eden the CherubimÂ’. The Catholic
-*New American Bible* has adopted the LXX reading as the correct
-one.]{style="font-size:12.0pt;mso-bidi-font-size:
-13.5pt;font-family:"Book Antiqua""}[]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
+<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:18.</span>
 
-</div>
+<span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Book Antiqua&quot;"> </span><a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:20.</span>
 
-<div id="ftn2" style="mso-element:footnote">
+<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">The trope in the second line of Stanza 18 is almost impossible to translate. The verb I have translated Â’take inÂ’ in both clauses is the same, and means both Â’cheatÂ’ and Â’stealÂ’.</span><span style="font-size:12.0pt;mso-bidi-font-size:
+10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-[[\[2\]]{.MsoFootnoteReference
-style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"}](#_ftnref2){#_ftn2}[
-Cf. Gen.
-3:18.]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
-
-[ ]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:"Book Antiqua""}[[\[3\]]{.MsoFootnoteReference
-style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"}](#_ftnref3){#_ftn3}[
-Cf. Gen.
-3:20.]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
-
-</div>
-
-<div id="ftn4" style="mso-element:footnote">
-
-[[\[4\]]{.MsoFootnoteReference
-style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"}](#_ftnref4){#_ftn4}[
-]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}[The
-trope in the second line of Stanza 18 is almost impossible to translate.
-The verb I have translated Â’take inÂ’ in both clauses is the same, and
-means both Â’cheatÂ’ and
-Â’stealÂ’.]{style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:"Book Antiqua""}[]{style="font-size:12.0pt;mso-bidi-font-size:
-10.0pt;font-family:"Book Antiqua""}
-
-</div>
-
-<div id="ftn5" style="mso-element:footnote">
-
-[[\[5\]]{.MsoFootnoteReference
-style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"}](#_ftnref5){#_ftn5}[
-These stanzas, 19-22, are considered spurious by the editor, though they
-are present in all but one <span
-style="font-variant:small-caps;">ms</span>. 18 forms a final prayer,
-which is feature of the classic kontakion, and the final stanzas, which
-form the word ADAM in the acrostic seem to be an unnecessary addition.
-They are not really about Adam at all and greatly inferior in quality,
-being simply a collection of
-commonplaces.]{style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:"Book Antiqua""}
-
-</div>
-
-</div>
+<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These stanzas, 19-22, are considered spurious by the editor, though they are present in all but one <span style="font-variant:small-caps;">ms</span>. 18 forms a final prayer, which is feature of the classic kontakion, and the final stanzas, which form the word ADAM in the acrostic seem to be an unnecessary addition. They are not really about Adam at all and greatly inferior in quality, being simply a collection of commonplaces.</span>
 
  
 
-+-----------------------------------------------------------------------+
-| --------------------------------------------------------------------- |
-| ---                                                                   |
-|                                                                       |
-| All texts and translations on this page are copyright to\             |
-| Archimandrite Ephrem Â©                                               |
-|                                                                       |
-|                                                                       |
-|                                                                       |
-| **This page was last updated on 19 February 2001**                    |
-+-----------------------------------------------------------------------+
+<table>
+<colgroup>
+<col width="100%" />
+</colgroup>
+<tbody>
+<tr class="odd">
+<td><hr />
+<p>All texts and translations on this page are copyright to<br />
+Archimandrite Ephrem Â©</p>
+<p> </p>
+<p><strong>This page was last updated on 19 February 2001</strong></p></td>
+</tr>
+</tbody>
+</table>
 
  
 
 ------------------------------------------------------------------------
 
-All texts and translations on this page are copyright to\
+All texts and translations on this page are copyright to
 Archimandrite Ephrem Â©
 
 **This page was last updated on 03 November 2008**

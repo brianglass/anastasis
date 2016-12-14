@@ -1,6 +1,4 @@
-\[ [Home](index.md) \] \[ [Up](holy.md) \] \[ [Matins](HWSat-M.md) \]
-\[ [First Hour](HWSat01hr.md) \] \[ [Hours and Typika](HWSat-Hrs.md) \]
-\[ Vespers and Liturgy \]
+\[ [Home](index.md) \] \[ [Up](holy.md) \] \[ [Matins](HWSat-M.md) \] \[ [First Hour](HWSat01hr.md) \] \[ [Hours and Typika](HWSat-Hrs.md) \] \[ Vespers and Liturgy \]
 
 ON HOLY AND GREAT SATURDAY
 
@@ -10,76 +8,28 @@ VESPERS
 
 The priest gives the blessing:
 
-Blessed is the Kingdom of the Father, and of the Son, and of the Holy
-Spirit, now and always, and to ages of ages.
+Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, now and always, and to ages of ages.
 
 ****
 
 The appointed monk or the Superior reads the Opening Psalm as follows:
 
-Amen. Come let us worship and fall down before the King, our God.\
-Come let us worship and fall down before Christ the King, our God.\
-Come let us worship and fall down before Christ himself, the King and
-our God.
+Amen. Come let us worship and fall down before the King, our God.
+Come let us worship and fall down before Christ the King, our God.
+Come let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
-Psalm 103\
+Psalm 103
 
-Bless the Lord, my soul! O Lord my God, you have been greatly magnified.
-You have clothed yourself with thanksgiving and majesty, wrapping
-yourself in light as in a cloak, stretching out the heavens like a
-curtain, roofing his upper chambers with waters, placing clouds as his
-mount, walking on the wings of the wind, making spirits his Angels and a
-flame of fire his Ministers, establishing the earth on its sure base; it
-will not be moved to age on age. The deep, like a cloak, is its mantle;
-waters will stand upon the mountains. At your rebuke they will flee;
-they will quail at the voice of your thunder. The mountains rise and the
-plains descend to the place which you established for them. You fixed a
-limit that they will not pass, nor will they return to cover the earth.
-You send out springs into the valleys; waters will run between the
-mountains. They will give drink to all the beasts of the field; the wild
-asses will await them to quench their thirst. Beside them the birds of
-the air will make their dwelling: and sing among the rocks. He waters
-the mountains from his upper chambers; the earth will be filled from the
-fruit of your works. He makes grass spring up for the cattle, and green
-herb for the service of mankind; to bring food out of the earth, and
-wine makes glad the human heart; to make the face cheerful with oil, and
-bread strengthens the human heart. The trees of the plain will be
-satisfied, the cedars of Lebanon that you planted. There the sparrows
-will build their nests; the heron’s dwelling is at their head. The high
-mountains are for the deer; rocks a refuge for hares. He made the moon
-to mark the seasons; the sun knew the hour of its setting. You appointed
-darkness, and it was night, in which all the beasts of the forest will
-prowl; young lions roaring to plunder and to seek their food from God.
-The sun rose and they were gathered together and they will lie down in
-their dens. Man will go out to his labour; and to his labouring until
-evening. How your works have been magnified, O Lord. With wisdom you
-have made them all, and the earth has been filled with your creation.
-Also this great, wide sea; there there are creeping things without
-number, living creatures small and great. There ships go to and fro;
-this dragon which you fashioned to sport in it. All things look to you
-to give them their food in due season. When you give it them, they will
-gather it. When you open your hand all things will be filled with
-goodness. But when you turn away your face they will be troubled. You
-will take away their spirit, and they will perish and return to their
-dust. You will send forth your spirit, and they will be created, and you
-will renew the face of the earth. May the glory of the Lord endure to
-the ages. The Lord will rejoice at his works. He looks upon the earth
-and makes it tremble. He touches the mountains, and they smoke. I will
-sing to the Lord while I live; I will praise my God while I exist. May
-my words be pleasing to him. While as for me, I shall rejoice in the
-Lord. O that sinners might perish from the earth, and the wicked, so
-that they are no more. Bless the Lord, my soul! ****
+Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heron’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth has been filled with your creation. Also this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. When you open your hand all things will be filled with goodness. But when you turn away your face they will be troubled. You will take away their spirit, and they will perish and return to their dust. You will send forth your spirit, and they will be created, and you will renew the face of the earth. May the glory of the Lord endure to the ages. The Lord will rejoice at his works. He looks upon the earth and makes it tremble. He touches the mountains, and they smoke. I will sing to the Lord while I live; I will praise my God while I exist. May my words be pleasing to him. While as for me, I shall rejoice in the Lord. O that sinners might perish from the earth, and the wicked, so that they are no more. Bless the Lord, my soul! ****
 
 And again
 
-The sun knew the hour of its setting: you made darkness, and it was
-night. How your works have been magnified, O Lord. With wisdom you have
-made them all!
+The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit.\
-Both now and for ever, and to the ages of ages. Amen.\
+Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen.
 Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
 
 Litany of Peace
@@ -96,45 +46,33 @@ Lord, have mercy. **And so after each petition.**
 
 Priest:
 
-For the peace from on high and for the salvation of our souls, let us
-pray to the Lord.
+For the peace from on high and for the salvation of our souls, let us pray to the Lord.
 
-For the peace of the whole world, for the welfare of the holy Churches
-of God, and for the union of all, let us pray to the Lord.
+For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord.
 
-For this holy house, and for those who enter it with faith, reverence
-and the fear of God, let us pray to the Lord.
+For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord.
 
 For our Archbishop
 
-**N**., for the honoured order of presbyters, for the diaconate in
-Christ, for all the clergy and the people, let us pray to the Lord.
+**N**., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord.
 
-\[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her
-Government, and all in authority, let us pray to the Lord.
+\[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord.
 
 For our father and superior, Priest-monk
 
 **N***.*, and all our brotherhood in Christ, let us pray to the Lord.\]
 
-For this city, for every city, town and village, and for the faithful
-who dwell in them, let us pray to the Lord.
+For this city, for every city, town and village, and for the faithful who dwell in them, let us pray to the Lord.
 
-For favourable weather, an abundance of the fruits of the earth, and
-temperate seasons, let us pray to the Lord.
+For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord.
 
-For those who travel by land, air or water, for the sick, the suffering,
-for those in captivity, and for their safety and salvation, let us pray
-to the Lord.
+For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord.
 
-For our deliverance from all affliction, wrath, danger and constraint,
-let us pray to the Lord.
+For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord.
 
 Help us, save us, have mercy on us, and keep us, O God, by your grace.
 
-Commemorating our all-holy, pure, most blessed and glorious Lady, Mother
-of God and Ever-Virgin Mary, with all the Saints, let us entrust
-ourselves and one another and our whole life to Christ our God.
+Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God.
 
 ****
 
@@ -144,8 +82,7 @@ To you, O Lord. ****
 
 Priest:
 
-For to you belong all glory, honour and worship, to the Father, the Son
-and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -153,29 +90,23 @@ Amen. ****
 
 At
 
-Lord, I have cried **we insert 8 Stichera, 4 from the Oktoichos and 4 of
-the Day, doubling the first. Tone 1.**
+Lord, I have cried **we insert 8 Stichera, 4 from the Oktoichos and 4 of the Day, doubling the first. Tone 1.**
 
-Psalm 140\
+Psalm 140
 
-\[**A**\] Lord, I have cried to you, hear me; hear me, O Lord. Lord, I
-have cried to you, hear me. Give heed to the voice of my supplication
-when I cry to you. Hear me, O Lord.
+\[**A**\] Lord, I have cried to you, hear me; hear me, O Lord. Lord, I have cried to you, hear me. Give heed to the voice of my supplication when I cry to you. Hear me, O Lord.
 
 \[
 
-**B**\] Let my prayer be directed like incense before you: the lifting
-up of my hands be an evening sacrifice. Hear me, O Lord.
+**B**\] Let my prayer be directed like incense before you: the lifting up of my hands be an evening sacrifice. Hear me, O Lord.
 
 \[
 
-**A**\] Set a guard, O Lord, on my mouth: and a strong door about my
-lips.
+**A**\] Set a guard, O Lord, on my mouth: and a strong door about my lips.
 
 \[
 
-**B**\] Do not incline my heart to evil words: to make excuses for my
-sins.
+**B**\] Do not incline my heart to evil words: to make excuses for my sins.
 
 \[
 
@@ -183,45 +114,35 @@ sins.
 
 \[
 
-**B**\] The just will chastise me with mercy and reprove me: but let not
-the oil of sinners anoint my head.
+**B**\] The just will chastise me with mercy and reprove me: but let not the oil of sinners anoint my head.
 
 \[
 
-**A**\] For yet my prayer shall be in their pleasures: their judges have
-been swallowed up near the rock.
+**A**\] For yet my prayer shall be in their pleasures: their judges have been swallowed up near the rock.
 
 \[
 
-**B**\] They will hear my words for they are sweet: as a clod of earth
-is crushed upon the ground their bones have been scattered at the mouth
-of Hell.
+**B**\] They will hear my words for they are sweet: as a clod of earth is crushed upon the ground their bones have been scattered at the mouth of Hell.
 
 \[
 
-**A**\] For my eyes look to you, O Lord, my Lord: I have hoped in you,
-do not take away my soul.
+**A**\] For my eyes look to you, O Lord, my Lord: I have hoped in you, do not take away my soul.
 
 \[
 
-**B**\] Keep me from the snare that they have hidden for me: and from
-the traps of evil-doers.
+**B**\] Keep me from the snare that they have hidden for me: and from the traps of evil-doers.
 
 \[
 
-**A**\] The sinners will fall into their own net: I am alone until I
-pass by. ****
+**A**\] The sinners will fall into their own net: I am alone until I pass by. ****
 
 Psalm 141
 
-\
-\[**B**\] With my voice I cried to the Lord: with my voice I entreated
-the Lord.
+\[**B**\] With my voice I cried to the Lord: with my voice I entreated the Lord.
 
 \[
 
-**A**\] I will pour out my entreaty before him: and tell him all my
-trouble.
+**A**\] I will pour out my entreaty before him: and tell him all my trouble.
 
 \[
 
@@ -233,8 +154,7 @@ trouble.
 
 \[
 
-**B**\] I looked to my right hand and saw: but there was none who knew
-me.
+**B**\] I looked to my right hand and saw: but there was none who knew me.
 
 \[
 
@@ -242,8 +162,7 @@ me.
 
 \[
 
-**B**\] I cried to you, Lord, I said, ‘You are my hope: my portion in
-the land of the living.’
+**B**\] I cried to you, Lord, I said, ‘You are my hope: my portion in the land of the living.’
 
 \[
 
@@ -251,8 +170,7 @@ the land of the living.’
 
 \[
 
-**B**\] Deliver me from those who persecute me: for they are too strong
-for me.
+**B**\] Deliver me from those who persecute me: for they are too strong for me.
 
 \[
 
@@ -264,13 +182,12 @@ for me.
 
 Tone 1
 
-Psalm 129\
+Psalm 129
 8.
 
 Out of the depths I have cried to you, O Lord: Lord hear my voice.
 
-Receive our evening prayers, O Holy Lord, and grant us forgiveness of
-sins; for it was you alone who revealed the Resurrection in the world.
+Receive our evening prayers, O Holy Lord, and grant us forgiveness of sins; for it was you alone who revealed the Resurrection in the world.
 
 ****
 
@@ -278,34 +195,25 @@ sins; for it was you alone who revealed the Resurrection in the world.
 
 O let your ears be attentive: to the voice of my supplication.
 
-Go around Sion, you peoples, and encompass her, and give glory in her to
-him who rose from the dead; for he is our God, who has redeemed us from
-our iniquities.
+Go around Sion, you peoples, and encompass her, and give glory in her to him who rose from the dead; for he is our God, who has redeemed us from our iniquities.
 
 ****
 
 6.
 
-If you, Lord, should mark iniquities: Lord, who will stand? But there is
-forgiveness with you.
+If you, Lord, should mark iniquities: Lord, who will stand? But there is forgiveness with you.
 
-Come, you peoples, let us praise and worship Christ as we glorify his
-Resurrection from the dead; for he is our God, who has redeemed us from
-the error of the foe.
+Come, you peoples, let us praise and worship Christ as we glorify his Resurrection from the dead; for he is our God, who has redeemed us from the error of the foe.
 
 ****
 
 5.
 
-For your name’s sake I have waited for you, O Lord: my soul has waited
-on your word: my soul has hoped in the Lord. ****
+For your name’s sake I have waited for you, O Lord: my soul has waited on your word: my soul has hoped in the Lord. ****
 
 By Anatolios.
 
-Rejoice, you heavens, sound the trumpet, you foundations of the earth,
-shout aloud your joy, you mountains; for see, Emmanuel has nailed our
-sins to the Cross, and he that gives life has slain death and raised up
-Adam, for he loves mankind.
+Rejoice, you heavens, sound the trumpet, you foundations of the earth, shout aloud your joy, you mountains; for see, Emmanuel has nailed our sins to the Cross, and he that gives life has slain death and raised up Adam, for he loves mankind.
 
 ****
 
@@ -313,76 +221,46 @@ Tone 8
 
 4.
 
-From the morning watch until night, from the morning watch: let Israel
-hope in the Lord.
+From the morning watch until night, from the morning watch: let Israel hope in the Lord.
 
-Today Hell groans and cries, ‘It were better for me had I not accepted
-the one born of Mary, for he has come upon me and destroyed my might. He
-has smashed the gates of brass. Souls which before I held, he, being
-God, has raised’. Glory, O Lord, to your Cross and to your Resurrection!
+Today Hell groans and cries, ‘It were better for me had I not accepted the one born of Mary, for he has come upon me and destroyed my might. He has smashed the gates of brass. Souls which before I held, he, being God, has raised’. Glory, O Lord, to your Cross and to your Resurrection!
 
 ****
 
 3.
 
-For with the Lord there is mercy, and with him plentiful redemption: and
-he will redeem Israel from all his iniquities.
+For with the Lord there is mercy, and with him plentiful redemption: and he will redeem Israel from all his iniquities.
 
-Today Hell groans and cries, ‘It were better for me had I not accepted
-the one born of Mary, for he has come upon me and destroyed my might. He
-has smashed the gates of brass. Souls which before I held, he, being
-God, has raised’. Glory, O Lord, to your Cross and to your Resurrection!
+Today Hell groans and cries, ‘It were better for me had I not accepted the one born of Mary, for he has come upon me and destroyed my might. He has smashed the gates of brass. Souls which before I held, he, being God, has raised’. Glory, O Lord, to your Cross and to your Resurrection!
 
 ****
 
-Psalm 116\
+Psalm 116
 2.
 
 Praise the Lord, all you nations: praise him all you peoples.
 
-Today Hell groans and cries, ‘My authority has been destroyed. I
-received a mortal as one of the dead, but have no strength at all to
-hold him, but with him I shall lose those over whom I reigned. I held
-the dead from every age, but see, he raises them all’. Glory, O Lord, to
-your Cross and to your Resurrection!
+Today Hell groans and cries, ‘My authority has been destroyed. I received a mortal as one of the dead, but have no strength at all to hold him, but with him I shall lose those over whom I reigned. I held the dead from every age, but see, he raises them all’. Glory, O Lord, to your Cross and to your Resurrection!
 
 ****
 
 1.
 
-For his mercy has been mighty towards us: and the truth of the Lord
-endures to the ages.
+For his mercy has been mighty towards us: and the truth of the Lord endures to the ages.
 
-Today Hell groans and cries, ‘My authority has been destroyed. I
-received a mortal as one of the dead, but have no strength at all to
-hold him, but with him I shall lose those over whom I reigned. I held
-the dead from every age, but see, he raises them all’. Glory, O Lord, to
-your Cross and to your Resurrection!
+Today Hell groans and cries, ‘My authority has been destroyed. I received a mortal as one of the dead, but have no strength at all to hold him, but with him I shall lose those over whom I reigned. I held the dead from every age, but see, he raises them all’. Glory, O Lord, to your Cross and to your Resurrection!
 
 Glory.
 
 **Tone 6.**
 
-Great Moses mystically prefigured this present day when he said, ‘And
-God blessed the seventh day’. For this is the blessed Sabbath; this is
-the day of rest on which the only-begotten Son of God rested from all
-his works, through the dispensation in accordance with death, he kept
-the Sabbath in the flesh; and returning once again to what he was
-through the Resurrection he has granted us eternal life, for he alone is
-good and loves mankind.
+Great Moses mystically prefigured this present day when he said, ‘And God blessed the seventh day’. For this is the blessed Sabbath; this is the day of rest on which the only-begotten Son of God rested from all his works, through the dispensation in accordance with death, he kept the Sabbath in the flesh; and returning once again to what he was through the Resurrection he has granted us eternal life, for he alone is good and loves mankind.
 
 Both now.
 
 **Theotokion. Tone 1**
 
-Let us hymn the whole world’s glory, engendered from mankind, and who
-gave birth to the Master, the Gate of heaven, Mary the Virgin, the song
-of the Bodiless Powers and adornment of the faithful; for she has been
-proclaimed Heaven and Temple of the Godhead. She, by destroying the
-middle wall of enmity, has brought peace instead and thrown open the
-King’s palace. Therefore, holding fast to her as anchor of the faith, we
-have as champion the Lord born from her. Take courage therefore, take
-courage, people of God; for he will make war on the foe as All-powerful.
+Let us hymn the whole world’s glory, engendered from mankind, and who gave birth to the Master, the Gate of heaven, Mary the Virgin, the song of the Bodiless Powers and adornment of the faithful; for she has been proclaimed Heaven and Temple of the Godhead. She, by destroying the middle wall of enmity, has brought peace instead and thrown open the King’s palace. Therefore, holding fast to her as anchor of the faith, we have as champion the Lord born from her. Take courage therefore, take courage, people of God; for he will make war on the foe as All-powerful.
 
 ****
 
@@ -394,16 +272,11 @@ Wisdom. Stand upright! ****
 
 We say
 
-\
-THE THANKSGIVING\
-AT THE LIGHTING OF THE LAMPS\
+THE THANKSGIVING
+AT THE LIGHTING OF THE LAMPS
 **An ancient poem, or, as some say, by the martyr Athenogenes.**
 
-O joyful light of the holy glory of the immortal, heavenly, holy,
-blessed Father, O Jesus Christ. Now that we have come to the setting of
-the sun and see the evening light, we sing the praise of God, Father,
-Son and Holy Spirit. It is right at all times to hymn you with holy
-voices, Son of God, giver of life: therefore the world glorifies you.
+O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life: therefore the world glorifies you.
 
 ****
 
@@ -427,714 +300,106 @@ And so at each reading.
 
 **1:1-13**\]
 
-In the beginning God made the heaven and the earth. Now the earth was
-invisible and unformed, and darkness was upon the deep and a spirit of
-God was being borne upon the water. And God said: Let there be light,
-and there was light. And God saw the light, that it was good; and God
-made a separation between the light and the darkness. And God called the
-light Day, and the darkness he called Night; and there was evening and
-there was morning, one day. And God said: Let there be a firmament in
-the midst of the water and let there be a separation between the water
-and the water; and it was so. And God made the firmament; and God made a
-separation between the water, which was below the firmament, and between
-the water which was above the firmament. And God called the firmament
-Heaven; and God saw that it was good, and there was evening and there
-was morning, a second day. And God said: Let the water below heaven be
-gathered together into one gathering, and let dry land appear; and it
-was so. And the water below heaven was gathered together into their
-gatherings, and the dry land appeared. And God called the dry land
-Earth, and the accumulations of the waters he called Seas. And God saw
-that it was good. And God said: Let the earth sprout herb of grass,
-sowing seed according to its kind and according to its likeness, and
-fruiting tree making fruit, whose seed is in it according to its kind
-upon the earth; and it was so. And the earth brought forth herb of
-grass, sowing seed according to its kind and according to its likeness,
-and fruiting tree making fruit, whose seed was in it according to its
-kind upon the earth, and God saw that it was good. And there was evening
-and morning, a third day.
+In the beginning God made the heaven and the earth. Now the earth was invisible and unformed, and darkness was upon the deep and a spirit of God was being borne upon the water. And God said: Let there be light, and there was light. And God saw the light, that it was good; and God made a separation between the light and the darkness. And God called the light Day, and the darkness he called Night; and there was evening and there was morning, one day. And God said: Let there be a firmament in the midst of the water and let there be a separation between the water and the water; and it was so. And God made the firmament; and God made a separation between the water, which was below the firmament, and between the water which was above the firmament. And God called the firmament Heaven; and God saw that it was good, and there was evening and there was morning, a second day. And God said: Let the water below heaven be gathered together into one gathering, and let dry land appear; and it was so. And the water below heaven was gathered together into their gatherings, and the dry land appeared. And God called the dry land Earth, and the accumulations of the waters he called Seas. And God saw that it was good. And God said: Let the earth sprout herb of grass, sowing seed according to its kind and according to its likeness, and fruiting tree making fruit, whose seed is in it according to its kind upon the earth; and it was so. And the earth brought forth herb of grass, sowing seed according to its kind and according to its likeness, and fruiting tree making fruit, whose seed was in it according to its kind upon the earth, and God saw that it was good. And there was evening and morning, a third day.
 
 SECOND READING
 
-The Reading is from the Prophecy of Isaias\
+The Reading is from the Prophecy of Isaias
 \[**60:1-16\]**
 
-Be enlightened, be enlightened, Jerusalem, for your light has come and
-the glory of the Lord has dawned upon you. See, darkness will cover the
-earth as thick darkness upon nations; but upon you will the Lord
-manifest himself, and his glory will appear upon you. And kings will
-walk in your light and nations in your splendour. Like up your eyes
-around and see your children gathered; see, all your sons have come from
-afar, and your daughters will be raised on men’s shoulders. Then you
-will see, and fear and be amazed in your heart, because wealth of sea
-and of nations and of peoples will transfer to you; and herds of camels
-will come to you and camels of Madiam and Gaipha will cover you; all
-they from Saba will come, bringing gold and they will bear incense and
-precious stone and they will declare the good tidings of the salvation
-of the Lord. And all the sheep of Kedar will be gathered to you and the
-rams of Nabaioth will come to you, and there will be offered acceptable
-sacrifices on my altar, and my house of prayer will be glorified. Who
-are these who fly like clouds and as doves with their nestlings? The
-isles awaited me and in the first place the ships of Tharsis to bring
-your children from afar and their silver and gold with them for the sake
-of the holy name of the Lord and for the sake of the glorious Holy One
-of Israel. And strangers will build your walls and their kings will
-stand before you; for because of my wrath I smote you and because of
-mercy I loved you. And your gates will be open continually, night and
-day they will not be shut, to bring to you the power of the nations and
-their kings as captives; for the nations and kings who will not serve
-you will perish and the nations will be made a desert in the desert
-places. And the glory of Libanus will come to you with cypress and pine
-and cedar together, to glorify my holy place and I shall glorify the
-place of my feet. And the sons of those who humbled you and of those who
-embittered you will come to you afraid, and you will be called City of
-the Lord, Sion of the Holy One of Israel. Because of your being
-abandoned and hated, and there was no one to help you, I will give you
-eternal joy, gladness for generations of generations; and you will suck
-the milk of nations and eat the wealth of kings; and you will know that
-it is I the Lord who save you and I the God of Israel who deliver you.
+Be enlightened, be enlightened, Jerusalem, for your light has come and the glory of the Lord has dawned upon you. See, darkness will cover the earth as thick darkness upon nations; but upon you will the Lord manifest himself, and his glory will appear upon you. And kings will walk in your light and nations in your splendour. Like up your eyes around and see your children gathered; see, all your sons have come from afar, and your daughters will be raised on men’s shoulders. Then you will see, and fear and be amazed in your heart, because wealth of sea and of nations and of peoples will transfer to you; and herds of camels will come to you and camels of Madiam and Gaipha will cover you; all they from Saba will come, bringing gold and they will bear incense and precious stone and they will declare the good tidings of the salvation of the Lord. And all the sheep of Kedar will be gathered to you and the rams of Nabaioth will come to you, and there will be offered acceptable sacrifices on my altar, and my house of prayer will be glorified. Who are these who fly like clouds and as doves with their nestlings? The isles awaited me and in the first place the ships of Tharsis to bring your children from afar and their silver and gold with them for the sake of the holy name of the Lord and for the sake of the glorious Holy One of Israel. And strangers will build your walls and their kings will stand before you; for because of my wrath I smote you and because of mercy I loved you. And your gates will be open continually, night and day they will not be shut, to bring to you the power of the nations and their kings as captives; for the nations and kings who will not serve you will perish and the nations will be made a desert in the desert places. And the glory of Libanus will come to you with cypress and pine and cedar together, to glorify my holy place and I shall glorify the place of my feet. And the sons of those who humbled you and of those who embittered you will come to you afraid, and you will be called City of the Lord, Sion of the Holy One of Israel. Because of your being abandoned and hated, and there was no one to help you, I will give you eternal joy, gladness for generations of generations; and you will suck the milk of nations and eat the wealth of kings; and you will know that it is I the Lord who save you and I the God of Israel who deliver you.
 
 THIRD READING
 
-The Reading is from Exodus.\
+The Reading is from Exodus.
 \[**12:1-12\]**
 
-The Lord said to Moses and Aaron in the land of Egypt, saying: This
-month is the beginning of months for you, it is for you the first among
-the months of the year; speak to the whole congregation of the of the
-children of Israel saying: On the tenth of this month let each take a
-sheep according to the houses of their families; if they should be too
-few in the house so that there are not enough for a sheep, he is to take
-with him his neighbour according to the number of souls; each shall be
-numbered for him according the sufficiency for a sheep; it shall be for
-you a sheep, perfect, male, a yearling; you shall take it from the lambs
-and the kids. And it shall be kept by you until the fourteenth of this
-month and the whole multitude of the congregation of the children of
-Israel shall slaughter it towards evening; and they are to take some of
-the blood and put it on the two door-posts and on the lintel in the
-houses in which they eat it, and they are to eat the meat in this night;
-roasted by fire, and they are to eat unleavened bread on bitter herbs.
-You are not to eat it raw or boiled in water, but only roasted by fire,
-the head with the feet and the entrails. You are not to leave any of it
-until morning and you are not to break a bone of it; but what is left
-over of it until morning you are to burn up with fire. This is how you
-are to eat it: your loins girt, your sandals on your feet and your
-staves in your hands; and you are to eat it in haste: it is a Pascha for
-the Lord.
+The Lord said to Moses and Aaron in the land of Egypt, saying: This month is the beginning of months for you, it is for you the first among the months of the year; speak to the whole congregation of the of the children of Israel saying: On the tenth of this month let each take a sheep according to the houses of their families; if they should be too few in the house so that there are not enough for a sheep, he is to take with him his neighbour according to the number of souls; each shall be numbered for him according the sufficiency for a sheep; it shall be for you a sheep, perfect, male, a yearling; you shall take it from the lambs and the kids. And it shall be kept by you until the fourteenth of this month and the whole multitude of the congregation of the children of Israel shall slaughter it towards evening; and they are to take some of the blood and put it on the two door-posts and on the lintel in the houses in which they eat it, and they are to eat the meat in this night; roasted by fire, and they are to eat unleavened bread on bitter herbs. You are not to eat it raw or boiled in water, but only roasted by fire, the head with the feet and the entrails. You are not to leave any of it until morning and you are not to break a bone of it; but what is left over of it until morning you are to burn up with fire. This is how you are to eat it: your loins girt, your sandals on your feet and your staves in your hands; and you are to eat it in haste: it is a Pascha for the Lord.
 
 FOURTH READING
 
-The Reading of the Prophecy of Jonas.\
+The Reading of the Prophecy of Jonas.
 \[**1-4\]**
 
-The word of the Lord came to Jonas, the son of Amathi, saying: Arise and
-journey to Nineve the great city, and preach in it, because the cry of
-its wickedness has gone up before me. And Jonas arose to flee to Tharsis
-from the face of the Lord; and he went down to Joppa and found a boat
-bound for Tharsis, and he paid the fare, and boarded it, to sail with
-them to Tharsis from the face of the Lord. And the Lord raised a great
-wind on the sea; and there came a great storm on the sea, and the boat
-was in danger of breaking up. And the sailors were afraid and each cried
-to his god, and they threw the cargoes that were in the boat into the
-sea to lighten it of them. But Jonas had gone down into the hold of the
-boat and was sleeping and snoring. And the captain approached him and
-said to him: Why are you snoring? Arise, and call on your God, perhaps
-God will save us, and we may not perish. And each one said to his
-neighbour: Come, let us cast lots, and let us find out for what reason
-this evil is upon us. And they cast lots, and the lot fell on Jonas. And
-they said to him: Tell us for what reason this evil is upon us. What is
-your work? Where have you come from? And where are you going? And from
-what country and from people are you? And he said to them: I am a
-servant of the Lord, and I worship the Lord, the God of heaven, who made
-the sea and the dry land. And the men feared with a great fear, and they
-said to him: Why did you do this? Because the men knew that he was
-fleeing from the face of the Lord, because he had told them; and they
-said to him: What are we to do with you, and so the sea will become calm
-for us? Because the sea was rising and raising an even greater storm.
-And Jonas said to them: Take me, and throw me into the sea, and the sea
-will become calm for you; because I know that it is because of me that
-this great storm is upon you. And the men were striving to return to
-land, and they could not, because the sea rose ever higher against them.
-And they cried out to the Lord and said: Let it not be, Lord; let us not
-perish because of the soul of this person, and do not bring on us just
-blood; because you, Lord, have done as you wished. And they took Jonas
-and threw him into the sea and the sea ceased from its raging. And the
-men feared the Lord with a great fear, and they sacrificed a sacrifice
-to the Lord, and they vowed vows. And the Lord had ordered a great whale
-to swallow down Jonas; and Jonas was in the belly of the whale for three
-days and three nights. And Jonas prayed to the Lord his God and said: I
-cried to the Lord my God in my trouble: and he heard me; from the bowels
-of hell my cry; you heard my voice. You cast me into the depths of the
-heart of the sea: and rivers surrounded me. All your billows and your
-waves passed over me. And I said: I have been thrust from your eyes;
-shall I look again towards your holy temple. Water encompassed me, even
-to my soul: the final deep closed round me. My head went down to the
-clefts of the mountains. I descended into the earth, whose bars are
-eternal barriers. Let my life come up from corruption to you, O Lord my
-God. As my soul was departing from me I remembered the Lord; and let my
-prayer come to you, to your holy temple. Those who preserve vain and
-foolish things have forsaken their own Mercy. But I shall sacrifice to
-you with a voice of praise and confession; I will pay you. O Lord,
-whatever I have vowed, for my salvation. And the Lord ordered the whale;
-and it cast Jonas out upon the dry land. And the word of the Lord came
-to Jonas a second time, saying: Arise and journey to Nineve the great
-city, and preach in it in accordance with the previous word which I
-spoke to you. And Jonas arose and journeyed to Nineve, as the Lord had
-told him. Now Nineve was a great city to God, of about three days
-journey. And Jonas began to journey into the city, about one day’s
-journey, and he preached and said: Still three days and Nineve will be
-overthrown. And the men of Nineve believed God and proclaimed a fast,
-and dressed in sackcloth from the greatest of them to the least. And the
-word reached the king of Nineve, and he rose from his throne, and took
-off his robe, and out on sackcloth, and sat on ashes. And there was a
-proclamation and a declaration in Nineve from the king and from his
-nobles, saying: Humans and beasts, oxen and sheep are not to eat, not to
-pasture and not to drink water. So humans and beasts put on sackcloth
-and cried out insistently to God; and they turned away each from their
-wicked way and from the injustice in their hands, saying: Who knows if
-God will repent and be entreated and turn back from the anger of his
-rage, and we may not perish? And God saw their works, that they had
-turned from their wicked ways, and God repented of the evil which he had
-said he would do to them, and he did not do it. And Jonas was very
-deeply grieved, and he was troubled, and he prayed to the Lord and said:
-Were not these my words when I was still in my land? Because of this I
-made haste to escape to Tharsis, because I knew that you are merciful,
-and pitying and long-suffering and full of mercy, and repent over evils.
-And now, Master, Lord, take my soul from me, for it is better for me to
-die than to live. And the Lord said to Jonas: Are you then so very
-grieved? And Jonas left the city, and sat down opposite the city, and
-made a tent for himself, and sat under it in the shade, until he should
-see what would happen to the city. And God gave orders to a gourd, and
-it came up over Jonas head, to be a shade for him above his head, to
-shade him from his troubles; and Jonas rejoiced with great joy at the
-gourd. And God gave orders to a worm at dawn on the morrow, and it smote
-the gourd and it withered up. And it came to pass that as soon as the
-sun had dawned that God gave orders to a burning east wind; and the sun
-beat down on Jonas’ head; and he fainted and despaired of his soul, and
-said: It were better for me to die than live. And God said to Jonas: Are
-you then so very grieved over the gourd? And he said: I am very grieved,
-even to death. And the Lord said: You had pity for the gourd, for which
-you had suffered no evil, nor did you rear it; it came into being before
-night, and perished before night. And I, shall I not have pity for
-Nineve the great city, in which dwell more than one hundred and twenty
-thousand people, who do not know their right hand or their left, and
-many animals.
+The word of the Lord came to Jonas, the son of Amathi, saying: Arise and journey to Nineve the great city, and preach in it, because the cry of its wickedness has gone up before me. And Jonas arose to flee to Tharsis from the face of the Lord; and he went down to Joppa and found a boat bound for Tharsis, and he paid the fare, and boarded it, to sail with them to Tharsis from the face of the Lord. And the Lord raised a great wind on the sea; and there came a great storm on the sea, and the boat was in danger of breaking up. And the sailors were afraid and each cried to his god, and they threw the cargoes that were in the boat into the sea to lighten it of them. But Jonas had gone down into the hold of the boat and was sleeping and snoring. And the captain approached him and said to him: Why are you snoring? Arise, and call on your God, perhaps God will save us, and we may not perish. And each one said to his neighbour: Come, let us cast lots, and let us find out for what reason this evil is upon us. And they cast lots, and the lot fell on Jonas. And they said to him: Tell us for what reason this evil is upon us. What is your work? Where have you come from? And where are you going? And from what country and from people are you? And he said to them: I am a servant of the Lord, and I worship the Lord, the God of heaven, who made the sea and the dry land. And the men feared with a great fear, and they said to him: Why did you do this? Because the men knew that he was fleeing from the face of the Lord, because he had told them; and they said to him: What are we to do with you, and so the sea will become calm for us? Because the sea was rising and raising an even greater storm. And Jonas said to them: Take me, and throw me into the sea, and the sea will become calm for you; because I know that it is because of me that this great storm is upon you. And the men were striving to return to land, and they could not, because the sea rose ever higher against them. And they cried out to the Lord and said: Let it not be, Lord; let us not perish because of the soul of this person, and do not bring on us just blood; because you, Lord, have done as you wished. And they took Jonas and threw him into the sea and the sea ceased from its raging. And the men feared the Lord with a great fear, and they sacrificed a sacrifice to the Lord, and they vowed vows. And the Lord had ordered a great whale to swallow down Jonas; and Jonas was in the belly of the whale for three days and three nights. And Jonas prayed to the Lord his God and said: I cried to the Lord my God in my trouble: and he heard me; from the bowels of hell my cry; you heard my voice. You cast me into the depths of the heart of the sea: and rivers surrounded me. All your billows and your waves passed over me. And I said: I have been thrust from your eyes; shall I look again towards your holy temple. Water encompassed me, even to my soul: the final deep closed round me. My head went down to the clefts of the mountains. I descended into the earth, whose bars are eternal barriers. Let my life come up from corruption to you, O Lord my God. As my soul was departing from me I remembered the Lord; and let my prayer come to you, to your holy temple. Those who preserve vain and foolish things have forsaken their own Mercy. But I shall sacrifice to you with a voice of praise and confession; I will pay you. O Lord, whatever I have vowed, for my salvation. And the Lord ordered the whale; and it cast Jonas out upon the dry land. And the word of the Lord came to Jonas a second time, saying: Arise and journey to Nineve the great city, and preach in it in accordance with the previous word which I spoke to you. And Jonas arose and journeyed to Nineve, as the Lord had told him. Now Nineve was a great city to God, of about three days journey. And Jonas began to journey into the city, about one day’s journey, and he preached and said: Still three days and Nineve will be overthrown. And the men of Nineve believed God and proclaimed a fast, and dressed in sackcloth from the greatest of them to the least. And the word reached the king of Nineve, and he rose from his throne, and took off his robe, and out on sackcloth, and sat on ashes. And there was a proclamation and a declaration in Nineve from the king and from his nobles, saying: Humans and beasts, oxen and sheep are not to eat, not to pasture and not to drink water. So humans and beasts put on sackcloth and cried out insistently to God; and they turned away each from their wicked way and from the injustice in their hands, saying: Who knows if God will repent and be entreated and turn back from the anger of his rage, and we may not perish? And God saw their works, that they had turned from their wicked ways, and God repented of the evil which he had said he would do to them, and he did not do it. And Jonas was very deeply grieved, and he was troubled, and he prayed to the Lord and said: Were not these my words when I was still in my land? Because of this I made haste to escape to Tharsis, because I knew that you are merciful, and pitying and long-suffering and full of mercy, and repent over evils. And now, Master, Lord, take my soul from me, for it is better for me to die than to live. And the Lord said to Jonas: Are you then so very grieved? And Jonas left the city, and sat down opposite the city, and made a tent for himself, and sat under it in the shade, until he should see what would happen to the city. And God gave orders to a gourd, and it came up over Jonas head, to be a shade for him above his head, to shade him from his troubles; and Jonas rejoiced with great joy at the gourd. And God gave orders to a worm at dawn on the morrow, and it smote the gourd and it withered up. And it came to pass that as soon as the sun had dawned that God gave orders to a burning east wind; and the sun beat down on Jonas’ head; and he fainted and despaired of his soul, and said: It were better for me to die than live. And God said to Jonas: Are you then so very grieved over the gourd? And he said: I am very grieved, even to death. And the Lord said: You had pity for the gourd, for which you had suffered no evil, nor did you rear it; it came into being before night, and perished before night. And I, shall I not have pity for Nineve the great city, in which dwell more than one hundred and twenty thousand people, who do not know their right hand or their left, and many animals.
 
 FIFTH READING
 
-The Reading is from Jesus son of Navi.\
+The Reading is from Jesus son of Navi.
 \[**5:10-15\]**
 
-The children of Israel encamped in Galgala and kept the Passover on the
-fourteenth day of the first month in the evening, to the west of
-Jericho, on the far side of the Jordan in the plain. And they ate of the
-corn of the land on the morrow of Passover, unleavened and new. On this
-day the manna ceased, after they had eaten of the corn of the land, and
-there was no longer manna for the children of Israel; they harvested the
-country of the Phoenicians in that year. And it came to pass when Jesus
-was in Jericho that he looked up with his eyes and saw someone standing
-in front of him, and a drawn sword was in his hand; and Jesus approached
-him and said to him: Are you ours, or of the enemies? But he said to
-him: I, the Chief Captain of the power of the Lord, have now come. And
-Jesus fell on his face to the ground, and worshipped, and said to him:
-Master, what order do you give your servant? And the Lord’s Chief
-Captain said to Jesus: Untie your sandal from your feet; for the place
-on which you are standing is holy. And Jesus did so.
+The children of Israel encamped in Galgala and kept the Passover on the fourteenth day of the first month in the evening, to the west of Jericho, on the far side of the Jordan in the plain. And they ate of the corn of the land on the morrow of Passover, unleavened and new. On this day the manna ceased, after they had eaten of the corn of the land, and there was no longer manna for the children of Israel; they harvested the country of the Phoenicians in that year. And it came to pass when Jesus was in Jericho that he looked up with his eyes and saw someone standing in front of him, and a drawn sword was in his hand; and Jesus approached him and said to him: Are you ours, or of the enemies? But he said to him: I, the Chief Captain of the power of the Lord, have now come. And Jesus fell on his face to the ground, and worshipped, and said to him: Master, what order do you give your servant? And the Lord’s Chief Captain said to Jesus: Untie your sandal from your feet; for the place on which you are standing is holy. And Jesus did so.
 
 SIXTH READING
 
-The Reading is from Exodus.\
+The Reading is from Exodus.
 \[**13:20-22, 14:1-31, 15:1-19\]**
 
-The children of Israel departed from Sokchoth and encamped at Othom by
-the desert. God was leading them by day with a pillar of cloud to show
-them the way, but by night with a pillar of fire. The pillar of cloud
-did not fail to appear to them by day, and the pillar of fire by night
-before all the people. And the Lord spoke to Moses, saying: Speak to the
-children of Israel, and let them turn away and encamp opposite the
-settlement between Magdol and the sea, opposite BeÃ«lsephÃ´n; before
-them you will camp by the sea. And Pharao will say to his people: These
-children of Israel are wandering in the land; for the desert has shut
-them in. But I will harden Pharao’s heart, and he will pursue after
-them; and I shall be glorified in Pharao and in all his army; and the
-Egyptians will know that I am the Lord; and the did this. And it was
-reported to the king of the Egyptians that the people had fled; and the
-heart of Pharao and his servants was changed against the people, and
-they said: Why did we do this—to send the children of Israel away so as
-not to slave for us? So Pharao yoked his chariots and assembled all his
-people with himself, and took six hundred chosen chariots and all the
-cavalry of the Egyptians, and the captains over them all. And the Lord
-hardened the heart of Pharao, king of Egypt, and he went in pursuit
-after the children of Israel; but the children of Israel marched out
-with upraised hand. And the Egyptians went in pursuit after them and
-found them encamped by the sea. And all the cavalry and chariots of
-Pharao, and the horsemen and his army were opposite the settlement in
-front of BeÃ«sepphÃ´n; and Pharao approached. And the children looked up
-with their eyes and they saw, and lo, the Egyptians were encamped behind
-them, and they were greatly afraid; but the children of Israel cried out
-to the Lord, and said to Moses: Because there were no graves in Egypt
-have you brought us out to die in the desert? What have you done this,
-leading us out of Egypt? Is not this the word which we spoke to you when
-we said: Leave us alone that we may be slaves of the Egyptians? For it
-is better for us to be slaves to the Egyptians than to die in this
-desert. But Moses said to the people: Take courage, stand firm, and see
-the salvation which comes from the Lord, which he will perform for us
-to-day. For the way in which you have seen the Egyptians to-day, you
-will not see them again for ever. The Lord will fight for you, and you
-will keep silent. But the Lord said to Moses: Why do you cry out to me?
-Speak to the children of Israel, and them yoke up again; and you, lift
-up your staff and stretch out hand upon the sea, and divide it; and let
-the children of Israel enter the midst of the sea on dry ground. And
-see, I shall harden Pharao’s heart, and that of all the Egyptians, and
-they will enter after them; and I shall be glorified in Pharao and in
-all his army, and in his chariots and in his horses; and all the
-Egyptians will know that I am the Lord, when I am glorified in Pharao
-and in his chariots and in his horses. And the Angel of God, who marched
-before the camp of the children of Israel, removed and marched at their
-rear; while the pillar of cloud also removed from in front of them and
-stood in their rear. And it entered between the camp of the Egyptians
-and the camp of the children of Israel, and stopped; and there was
-darkness and gloom; and the night passed and they did not come near one
-another the whole night. But Moses stretched out his hand upon the sea;
-and the Lord drove the sea with a strong south wind the whole night
-long, and made the sea dry; and the water was parted. And the children
-of Israel entered the midst of the sea on dry land; and its water was a
-wall on the right and a wall on the left. But the Egyptians went in
-pursuit and entered after them, and all the cavalry of Pharao, and the
-chariots and the riders into the midst of the sea. But it came to pass
-at the dawn watch that the Lord looked upon the camp of the Egyptians in
-a pillar of fire and cloud, and he troubled the camp of the Egyptians;
-and bound the axles of their chariots, and made them go with difficulty.
-And the Egyptians said: Let us fly from before Israel; for the Lord is
-fighting the Egyptians for them. But the Lord said to Moses: Stretch out
-your hand upon the sea and let the water be restored and let it cover
-the Egyptians, the chariots and the riders. But Moses stretched out his
-hand upon the sea, and the water was restored towards day to its place;
-but the Egyptians fled under the water; and the Lord shook off the
-Egyptians into the midst of the sea; and the water came back, it covered
-the chariots and the riders and all the power of Pharao, those who
-entered after them into the sea, and there was not one of them left
-behind. But the children of Israel marched through dry land in the midst
-of the sea; while the water was a wall for them on the right and on the
-left. And the Lord delivered Israel on that day from the hand of the
-Egyptians; and Israel saw the Egyptians dead by the shore of the sea.
-While Israel saw the mighty hand, what the Lord had done to the
-Egyptians; and the people feared the Lord and believed God and Moses his
-servant. Then Moses and the children of Israel sang this song to the
-Lord, and said: Let us sing to the Lord, for he is greatly glorified:
-horse and rider he has cast into the sea. Helper and protector he has
-become for my salvation: he is my God and I will glorify him; my
-father’s God and I will exalt him. The Lord shatters wars, the Lord is
-his name. Pharao’s chariots and power he has cast into the sea; his
-chosen mounted captains he has drowned in the Red Sea. With the deep he
-covered them: they sank to the bottom like a stone. Your right hand,
-Lord, has been glorified with strength; your right hand, Lord, has
-crushed enemies; and by the multitude of your glory you have smashed the
-opponents. You sent forth your anger, it consumed them like a reed. And
-through the spirit of your wrath the water parted; the waters became
-fixed like a wall, and the waves became fixed in the midst of the sea.
-The enemy said: I will pursue, I will overtake, I will divide the spoil,
-I will fill my soul, I will destroy with my sword, my right hand shall
-lord it. You sent forth your spirit, the sea covered them, they sank
-like lead in a mass of water. Who is like you among the gods, Lord? Who
-is like you? Glorified in holiness, wondrous in glories, performing
-marvels. You stretched out your right hand, the earth swallowed them
-down. You guided with justice this people of yours, which you have
-redeemed; by your strength you have called them into your holy
-resting-place. Nations heard and were enraged; pangs have seized the
-inhabitants of PhilistiÃ¯m. Then the leaders of Edom and the rulers of
-the Moabites hastened: trembling took hold of them: all the inhabitants
-of Canaan melted away. Let fear and trembling fall upon them: by the
-greatness of your arm let them be turned to stone; till your people pass
-over, O Lord: till your people, whom you have gained, pass over. Bring
-them and plant them on the mountain of your inheritance, your prepared
-dwelling, which you have made, Lord: the sanctuary which your hands have
-prepared. The Lord reigns over the ages and for ever and ever: for
-Pharaoh’s horse went with the chariots and horsemen into the sea, and
-the Lord brought the water of the sea upon them; but the children of
-Israel walked on dry land in the midst of the sea.
+The children of Israel departed from Sokchoth and encamped at Othom by the desert. God was leading them by day with a pillar of cloud to show them the way, but by night with a pillar of fire. The pillar of cloud did not fail to appear to them by day, and the pillar of fire by night before all the people. And the Lord spoke to Moses, saying: Speak to the children of Israel, and let them turn away and encamp opposite the settlement between Magdol and the sea, opposite BeÃ«lsephÃ´n; before them you will camp by the sea. And Pharao will say to his people: These children of Israel are wandering in the land; for the desert has shut them in. But I will harden Pharao’s heart, and he will pursue after them; and I shall be glorified in Pharao and in all his army; and the Egyptians will know that I am the Lord; and the did this. And it was reported to the king of the Egyptians that the people had fled; and the heart of Pharao and his servants was changed against the people, and they said: Why did we do this—to send the children of Israel away so as not to slave for us? So Pharao yoked his chariots and assembled all his people with himself, and took six hundred chosen chariots and all the cavalry of the Egyptians, and the captains over them all. And the Lord hardened the heart of Pharao, king of Egypt, and he went in pursuit after the children of Israel; but the children of Israel marched out with upraised hand. And the Egyptians went in pursuit after them and found them encamped by the sea. And all the cavalry and chariots of Pharao, and the horsemen and his army were opposite the settlement in front of BeÃ«sepphÃ´n; and Pharao approached. And the children looked up with their eyes and they saw, and lo, the Egyptians were encamped behind them, and they were greatly afraid; but the children of Israel cried out to the Lord, and said to Moses: Because there were no graves in Egypt have you brought us out to die in the desert? What have you done this, leading us out of Egypt? Is not this the word which we spoke to you when we said: Leave us alone that we may be slaves of the Egyptians? For it is better for us to be slaves to the Egyptians than to die in this desert. But Moses said to the people: Take courage, stand firm, and see the salvation which comes from the Lord, which he will perform for us to-day. For the way in which you have seen the Egyptians to-day, you will not see them again for ever. The Lord will fight for you, and you will keep silent. But the Lord said to Moses: Why do you cry out to me? Speak to the children of Israel, and them yoke up again; and you, lift up your staff and stretch out hand upon the sea, and divide it; and let the children of Israel enter the midst of the sea on dry ground. And see, I shall harden Pharao’s heart, and that of all the Egyptians, and they will enter after them; and I shall be glorified in Pharao and in all his army, and in his chariots and in his horses; and all the Egyptians will know that I am the Lord, when I am glorified in Pharao and in his chariots and in his horses. And the Angel of God, who marched before the camp of the children of Israel, removed and marched at their rear; while the pillar of cloud also removed from in front of them and stood in their rear. And it entered between the camp of the Egyptians and the camp of the children of Israel, and stopped; and there was darkness and gloom; and the night passed and they did not come near one another the whole night. But Moses stretched out his hand upon the sea; and the Lord drove the sea with a strong south wind the whole night long, and made the sea dry; and the water was parted. And the children of Israel entered the midst of the sea on dry land; and its water was a wall on the right and a wall on the left. But the Egyptians went in pursuit and entered after them, and all the cavalry of Pharao, and the chariots and the riders into the midst of the sea. But it came to pass at the dawn watch that the Lord looked upon the camp of the Egyptians in a pillar of fire and cloud, and he troubled the camp of the Egyptians; and bound the axles of their chariots, and made them go with difficulty. And the Egyptians said: Let us fly from before Israel; for the Lord is fighting the Egyptians for them. But the Lord said to Moses: Stretch out your hand upon the sea and let the water be restored and let it cover the Egyptians, the chariots and the riders. But Moses stretched out his hand upon the sea, and the water was restored towards day to its place; but the Egyptians fled under the water; and the Lord shook off the Egyptians into the midst of the sea; and the water came back, it covered the chariots and the riders and all the power of Pharao, those who entered after them into the sea, and there was not one of them left behind. But the children of Israel marched through dry land in the midst of the sea; while the water was a wall for them on the right and on the left. And the Lord delivered Israel on that day from the hand of the Egyptians; and Israel saw the Egyptians dead by the shore of the sea. While Israel saw the mighty hand, what the Lord had done to the Egyptians; and the people feared the Lord and believed God and Moses his servant. Then Moses and the children of Israel sang this song to the Lord, and said: Let us sing to the Lord, for he is greatly glorified: horse and rider he has cast into the sea. Helper and protector he has become for my salvation: he is my God and I will glorify him; my father’s God and I will exalt him. The Lord shatters wars, the Lord is his name. Pharao’s chariots and power he has cast into the sea; his chosen mounted captains he has drowned in the Red Sea. With the deep he covered them: they sank to the bottom like a stone. Your right hand, Lord, has been glorified with strength; your right hand, Lord, has crushed enemies; and by the multitude of your glory you have smashed the opponents. You sent forth your anger, it consumed them like a reed. And through the spirit of your wrath the water parted; the waters became fixed like a wall, and the waves became fixed in the midst of the sea. The enemy said: I will pursue, I will overtake, I will divide the spoil, I will fill my soul, I will destroy with my sword, my right hand shall lord it. You sent forth your spirit, the sea covered them, they sank like lead in a mass of water. Who is like you among the gods, Lord? Who is like you? Glorified in holiness, wondrous in glories, performing marvels. You stretched out your right hand, the earth swallowed them down. You guided with justice this people of yours, which you have redeemed; by your strength you have called them into your holy resting-place. Nations heard and were enraged; pangs have seized the inhabitants of PhilistiÃ¯m. Then the leaders of Edom and the rulers of the Moabites hastened: trembling took hold of them: all the inhabitants of Canaan melted away. Let fear and trembling fall upon them: by the greatness of your arm let them be turned to stone; till your people pass over, O Lord: till your people, whom you have gained, pass over. Bring them and plant them on the mountain of your inheritance, your prepared dwelling, which you have made, Lord: the sanctuary which your hands have prepared. The Lord reigns over the ages and for ever and ever: for Pharaoh’s horse went with the chariots and horsemen into the sea, and the Lord brought the water of the sea upon them; but the children of Israel walked on dry land in the midst of the sea.
 
 SEVENTH READING
 
-The Reading is from the Prophecy of Sophonias.\
+The Reading is from the Prophecy of Sophonias.
 \[**3:8a.9-15\]**
 
-Thus says the Lord: Wait upon me for the day of my resurrection for
-witness; because then I shall turn upon peoples a tongue for its
-generation, for them all to call upon the name of the Lord, to serve him
-under one yoke. From the end of the rivers of Ethiopia I shall receive
-those who implore me; children of the scattered will bring me
-sacrifices. On that day you will not be put to shame because of all your
-practices with which you dishonoured me; because then I shall remove
-from you your disdainful pride, and you shall no more set yourself to
-magnify yourself upon my holy mountain. And I shall leave in you a meek
-and humble people; and the remnant of Israel will reverence the name of
-the Lord, and they will not commit injustice, will not speak vanities,
-and there will not be found in their mouth a deceitful tongue; because
-they will pasture and lie down, and there will be none to terrify them.
-Rejoice greatly, daughter of Sion, proclaim, daughter of Jerusalem; be
-glad and exult from your whole heart, daughter of Jerusalem. The Lord
-has taken away your injustices; he has rescued you from the hand of your
-foes; the King of Israel, the Lord, is in your midst; you will no longer
-see evils.
+Thus says the Lord: Wait upon me for the day of my resurrection for witness; because then I shall turn upon peoples a tongue for its generation, for them all to call upon the name of the Lord, to serve him under one yoke. From the end of the rivers of Ethiopia I shall receive those who implore me; children of the scattered will bring me sacrifices. On that day you will not be put to shame because of all your practices with which you dishonoured me; because then I shall remove from you your disdainful pride, and you shall no more set yourself to magnify yourself upon my holy mountain. And I shall leave in you a meek and humble people; and the remnant of Israel will reverence the name of the Lord, and they will not commit injustice, will not speak vanities, and there will not be found in their mouth a deceitful tongue; because they will pasture and lie down, and there will be none to terrify them. Rejoice greatly, daughter of Sion, proclaim, daughter of Jerusalem; be glad and exult from your whole heart, daughter of Jerusalem. The Lord has taken away your injustices; he has rescued you from the hand of your foes; the King of Israel, the Lord, is in your midst; you will no longer see evils.
 
 EIGHTH READING
 
-The Reading is from the 3rd Book of Kingdoms.\
+The Reading is from the 3rd Book of Kingdoms.
 \[**17:8-24\]**
 
-The word of the Lord came to Elias saying: Rise, and journey to Sarepta
-in Sidonia; see, I have commanded a widow there to look after you. And
-he rose and journeyed to Sarepta and came to the gate of the city; and
-see, there was a widow gathering sticks. And Elias called after her and
-said to her: Fetch me, please, a little water in a vessel and I shall
-drink. And she went to fetch it, and Elias called after her: Fetch me,
-please, a morsel of bread too in your hand. And the woman said: As the
-Lord your God lives, I have not so much as a cake, but only a handful of
-flour in a pitcher and a little oil in a flask; and see, I am gathering
-a couple of twigs and I shall go in and prepare it for myself and my
-children, and we will eat it and die. And Elias said to her: Take
-courage, go in and do as you have said; but make me from it a little
-cake, and you shall bring it to me first and then you shall make for
-yourself and your children last. Because thus says the Lord: The pitcher
-of flour will not run out and the flask of oil not diminish until the
-day when the Lord gives rain upon the land. And the woman went and did
-so; and she ate and he and her children. And from that day the pitcher
-of flour did not run out and the flask of oil did not diminish according
-to the word of the Lord, which he had spoken through the hand of Elias.
-And it came to pass after this that the son of the woman, the mistress
-of the house, fell sick, and his sickness was very severe, until there
-was no spirit left in him. And she said to Elias: Why do you trouble me,
-man of God? Have you come here to remind me of my injustice and to kill
-my son? And Elias said to the woman: Give me your son; and he took him
-from her bosom and carried him to the upper chamber, in which he was
-lodging, and laid him to sleep on the bed. And Elias cried out to the
-Lord and said: Alas, Lord, the witness of the widow with whom I dwell,
-you have done evil in killing her son. And he breathed on the child
-three times and called on the Lord and said: Lord my God, Let the soul
-of this child return to it. And it came to pass that the child cried
-out; and he brought him down from the upper chamber into the house and
-gave him to his mother. And Elias said: Look, your son lives. And the
-woman said to Elias: See, I know that you are a man of God, and that the
-word of the Lord in your mouth is true.
+The word of the Lord came to Elias saying: Rise, and journey to Sarepta in Sidonia; see, I have commanded a widow there to look after you. And he rose and journeyed to Sarepta and came to the gate of the city; and see, there was a widow gathering sticks. And Elias called after her and said to her: Fetch me, please, a little water in a vessel and I shall drink. And she went to fetch it, and Elias called after her: Fetch me, please, a morsel of bread too in your hand. And the woman said: As the Lord your God lives, I have not so much as a cake, but only a handful of flour in a pitcher and a little oil in a flask; and see, I am gathering a couple of twigs and I shall go in and prepare it for myself and my children, and we will eat it and die. And Elias said to her: Take courage, go in and do as you have said; but make me from it a little cake, and you shall bring it to me first and then you shall make for yourself and your children last. Because thus says the Lord: The pitcher of flour will not run out and the flask of oil not diminish until the day when the Lord gives rain upon the land. And the woman went and did so; and she ate and he and her children. And from that day the pitcher of flour did not run out and the flask of oil did not diminish according to the word of the Lord, which he had spoken through the hand of Elias. And it came to pass after this that the son of the woman, the mistress of the house, fell sick, and his sickness was very severe, until there was no spirit left in him. And she said to Elias: Why do you trouble me, man of God? Have you come here to remind me of my injustice and to kill my son? And Elias said to the woman: Give me your son; and he took him from her bosom and carried him to the upper chamber, in which he was lodging, and laid him to sleep on the bed. And Elias cried out to the Lord and said: Alas, Lord, the witness of the widow with whom I dwell, you have done evil in killing her son. And he breathed on the child three times and called on the Lord and said: Lord my God, Let the soul of this child return to it. And it came to pass that the child cried out; and he brought him down from the upper chamber into the house and gave him to his mother. And Elias said: Look, your son lives. And the woman said to Elias: See, I know that you are a man of God, and that the word of the Lord in your mouth is true.
 
 NINTH READING
 
-The Reading is from the Prophecy of Isaias.\
+The Reading is from the Prophecy of Isaias.
 \[**61:10-11; 62:1-5\]**
 
-Let my soul rejoice in the Lord; for he has clothed me with a garment of
-salvation and a tunic of gladness, he has put a mitre on me as on a
-bridegroom, and he has adorned me as a bride with adornments; and as
-earth putting forth it flowers and a garden its seeds, so the Lord has
-made justice and gladness dawn before all the nations. \[**62:1**\]
-Because of Sion I shall keep silence and because of Jerusalem I shall
-not rest, until my justice has gone forth like light, while my salvation
-shall burn like a torch. And nations will see your justice and kings
-your glory; and one will call your name a new name, which the Lord will
-name; and you will be a crown of beauty in the Lord’s hand, a diadem of
-kingship in the hand of your God. And you will no longer be called
-Abandoned, and your land will no longer be called Desert, for you will
-be called My Will and your land Inhabited; because the Lord has been
-well pleased with you, and your land will be inhabited. And as young man
-lives with a virgin, so will your children dwell; and it will be in the
-way that a bridegroom is glad in his bride, so the Lord will glad at
-you.
+Let my soul rejoice in the Lord; for he has clothed me with a garment of salvation and a tunic of gladness, he has put a mitre on me as on a bridegroom, and he has adorned me as a bride with adornments; and as earth putting forth it flowers and a garden its seeds, so the Lord has made justice and gladness dawn before all the nations. \[**62:1**\] Because of Sion I shall keep silence and because of Jerusalem I shall not rest, until my justice has gone forth like light, while my salvation shall burn like a torch. And nations will see your justice and kings your glory; and one will call your name a new name, which the Lord will name; and you will be a crown of beauty in the Lord’s hand, a diadem of kingship in the hand of your God. And you will no longer be called Abandoned, and your land will no longer be called Desert, for you will be called My Will and your land Inhabited; because the Lord has been well pleased with you, and your land will be inhabited. And as young man lives with a virgin, so will your children dwell; and it will be in the way that a bridegroom is glad in his bride, so the Lord will glad at you.
 
 TENTH READING
 
-The Reading is from Genesis.\
+The Reading is from Genesis.
 \[**22:1-18\]**
 
-It came to pass after these things that God tested Abraham and said to
-him: Abraham, Abraham; but he said: Here am I. And he said: Take your
-son, your beloved, whom you love, Isaac, and journey to the high land
-and offer him there as a whole burnt offering on one of the mountains,
-which I shall tell you. In the morning Abraham arose, saddled his ass;
-while he took with him two servants and Isaac his son, and having split
-wood for the holocaust he arose and journeyed and came to the place
-which God had told him on the third day. And looking up with his eyes
-Abraham saw the place from afar. And Abraham said to his servants: Stay
-here with the ass, while I and the child cross over as far as there and
-when we have worshipped we shall return to you. Abraham took the wood
-for the holocaust and placed it on Isaac his son; while he took in his
-hand both the fire and the knife, and they journeyed the two of them
-together. Isaac said to Abraham his father: Father. He said: What is it,
-child? He said: See, the fire and the wood; where is the sheep for the
-holocaust? Abraham said: God will see for himself to a sheep for the
-holocaust, child. Both of them journeyed together and they came to the
-place, which God had told him; and there Abraham built and altar and
-placed the wood on it and binding Isaac his son he placed him on the
-altar on top of the wood. And Abraham stretched out his hand to take the
-knife to slay his son. And the Angel of the Lord called him from Heaven
-and said to him: Abraham, Abraham. But he said: Here I am. And he said:
-Do not lay you hand on the child, nor do anything to him; for now I know
-that you fear God and have not spared your beloved son for my sake. And
-looking up with his eyes Abraham saw, and lo a ram caught in a Sabek
-plant by the horns; and Abraham went and took the ram and offered it as
-a holocaust instead of Isaac his son. And god called the name of the
-place: The Lord saw; as they say to this day: On the mountain the Lord
-was seen. And the Angel of the Lord called Abraham a second time from
-Heaven saying: By myself I have sworn, says the Lord, because you have
-done this thing, and have not spared your beloved son for my sake,
-therefore blessing I will bless you, and multiplying I will multiply
-your seed as the stars of Heaven and as the sand which is on the shore
-of the sea, and your seed will inherit the cities of their foes; and in
-your seed all the nations of the earth will be blessed, because you have
-obeyed my voice.
+It came to pass after these things that God tested Abraham and said to him: Abraham, Abraham; but he said: Here am I. And he said: Take your son, your beloved, whom you love, Isaac, and journey to the high land and offer him there as a whole burnt offering on one of the mountains, which I shall tell you. In the morning Abraham arose, saddled his ass; while he took with him two servants and Isaac his son, and having split wood for the holocaust he arose and journeyed and came to the place which God had told him on the third day. And looking up with his eyes Abraham saw the place from afar. And Abraham said to his servants: Stay here with the ass, while I and the child cross over as far as there and when we have worshipped we shall return to you. Abraham took the wood for the holocaust and placed it on Isaac his son; while he took in his hand both the fire and the knife, and they journeyed the two of them together. Isaac said to Abraham his father: Father. He said: What is it, child? He said: See, the fire and the wood; where is the sheep for the holocaust? Abraham said: God will see for himself to a sheep for the holocaust, child. Both of them journeyed together and they came to the place, which God had told him; and there Abraham built and altar and placed the wood on it and binding Isaac his son he placed him on the altar on top of the wood. And Abraham stretched out his hand to take the knife to slay his son. And the Angel of the Lord called him from Heaven and said to him: Abraham, Abraham. But he said: Here I am. And he said: Do not lay you hand on the child, nor do anything to him; for now I know that you fear God and have not spared your beloved son for my sake. And looking up with his eyes Abraham saw, and lo a ram caught in a Sabek plant by the horns; and Abraham went and took the ram and offered it as a holocaust instead of Isaac his son. And god called the name of the place: The Lord saw; as they say to this day: On the mountain the Lord was seen. And the Angel of the Lord called Abraham a second time from Heaven saying: By myself I have sworn, says the Lord, because you have done this thing, and have not spared your beloved son for my sake, therefore blessing I will bless you, and multiplying I will multiply your seed as the stars of Heaven and as the sand which is on the shore of the sea, and your seed will inherit the cities of their foes; and in your seed all the nations of the earth will be blessed, because you have obeyed my voice.
 
 ELEVENTH READING
 
-The Reading is from the Prophecy of Isaias.\
+The Reading is from the Prophecy of Isaias.
 \[**61:1-10\]**
 
-The Spirit of the Lord is upon me, because he has anointed me; he has
-sent me to preach the good news to the poor, to heal those who are
-broken in heart, to proclaim forgiveness to prisoners and sight to the
-blind, to declare an acceptable year of the Lord and a day of recompense
-to God, to comfort all those who mourn, to give those who mourn in Sion
-glory instead of ash, an anointing of gladness to the mourners, a
-garment of glory instead of a spirit of despondency; and they will be
-called generations of justice, a planting of the Lord for glory; and
-they will build eternal deserts, they will raise up those that were
-formerly deserted; and they will renew deserted cities, deserted for
-generations. And foreigners will come shepherding your sheep, and
-strangers as ploughmen and vinedressers. While you will be called
-priests of the Lord, ministers of God; you will eat the strength of
-nations and be marvelled at by their wealth. Thus they will inherit the
-land a second time, and eternal gladness will be upon their head. For I
-am the Lord who love justice and hate robberies of injustice; and I will
-give their toil to the just and I will make an eternal covenant with
-them. And their seed will be known among the nations and their offspring
-in the midst of the peoples; everyone who sees them will know them, for
-they are seed blessed by God and with gladness they will be glad in the
-Lord.
+The Spirit of the Lord is upon me, because he has anointed me; he has sent me to preach the good news to the poor, to heal those who are broken in heart, to proclaim forgiveness to prisoners and sight to the blind, to declare an acceptable year of the Lord and a day of recompense to God, to comfort all those who mourn, to give those who mourn in Sion glory instead of ash, an anointing of gladness to the mourners, a garment of glory instead of a spirit of despondency; and they will be called generations of justice, a planting of the Lord for glory; and they will build eternal deserts, they will raise up those that were formerly deserted; and they will renew deserted cities, deserted for generations. And foreigners will come shepherding your sheep, and strangers as ploughmen and vinedressers. While you will be called priests of the Lord, ministers of God; you will eat the strength of nations and be marvelled at by their wealth. Thus they will inherit the land a second time, and eternal gladness will be upon their head. For I am the Lord who love justice and hate robberies of injustice; and I will give their toil to the just and I will make an eternal covenant with them. And their seed will be known among the nations and their offspring in the midst of the peoples; everyone who sees them will know them, for they are seed blessed by God and with gladness they will be glad in the Lord.
 
 TWELFTH READING
 
-The Reading is from the 4th Book of Kingdoms.\
+The Reading is from the 4th Book of Kingdoms.
 \[**4:8-37\]**
 
-There came a day an Elissaios crossed to Soman, and there an important
-woman constrained him to take food; and it came to pass that as often as
-he went there he turned aside to eat there. And the woman said to her
-husband: See, I know that this man, who comes through to us continually,
-is a holy man of God; so let us make for him a little upstairs room and
-put a bed and a table and stool and a lamp in it; and it shall be that
-when he comes to us he will turn aside there. And a day came and he
-entered there and turned aside to the upstairs room and slept there. And
-he said to his boy GiÃ«zi: Call the Sunamite woman to me. And he called
-her, and she stood before him. And he said to him: Say to her then: You
-have shown this amazing trouble for us. What must we do for you? Have
-you some request to the King or to the captain of the host? But she
-said: I dwell in the midst of my people. And he said to GiÃ«zi: What
-must we do for her? And his boy GiÃ«zi said: Indeed she has no son, and
-her husband is an old man. And he called her, and she stood by the door.
-And Elissaios said to her: At this moment, when the season is, you,
-alive, will embrace a son. But she said: No, my Lord, do not lie to your
-servant. And the woman conceived in the womb and gave birth to a son at
-that time, as the season was, alive, as Elissaios had to her. And the
-boy grew; and it came to pass, when he went out to his father to the
-reapers, that he said to his father: My head, my head. And he said to
-the servant boy: Take him to his mother. And he took him to his mother,
-and he slept on her knees until midday and he died. And she took him and
-laid him on the bed of the man of God, and shut the door on him and went
-out. And she called her husband and said: Send me one of the boys and
-one of the she asses, and I will hurry to the man of God and then
-return. And he said to her: Why are you going to him to-day? It is not
-new moon or Sabbath. But she said: Peace. And she saddled the she ass
-and said to her boy: Now, go, and do not hesitate because of me to ride,
-unless I tell you. Come, journey and go as far as the man of God on
-Mount Carmel. And she went and journeyed as far as the man of God on the
-mountain. And it came to pass that Elissaios saw her coming, and said to
-his boy GiÃ«zi: Look, that Sunamite woman; now run to meet her, and you
-are to say: Is it peace? Is it peace for your husband? Is it peace for
-the boy? But she said: Peace. And she came to Elissaios on the mountain
-and seized his feet, and GiÃ«zi approached to push her away. And
-Elissaios said: Let her alone, because her soul is greatly grieved, and
-the Lord has hidden it from me and not told me. But she said: Did I ask
-a son of my lord? For did I not say: Do not lie to me. And Elissaios
-said to GiÃ«zi: Gird yourself and take my staff in your hand and go. If
-you meet a man, you are not to bless him, and if a man blesses you, you
-are not to answer him. And you are to lay my staff on the face of the
-boy. And the boy’s mother said: As the Lord lives and as your soul
-lives, I shall not leave you. And Elissaios arose and went behind her.
-And GiÃ«zi went on ahead of her and placed the staff on the boy’s face,
-and there was no sound nor any hearing. And he returned to meet him and
-gave him the news, saying: The boy has not been raised. And Elissaios
-entered the house; and lo, the boy was lying dead on his bed. And
-Elissaios entered the house and shut the door on the two of them and
-prayed to the Lord. And he climbed up and lay on the boy and put his
-mouth to his mouth and his eyes to his eyes and his hands to his hands,
-and he bowed himself upon him, and the boy’s flesh grew warm. And he
-returned and walked in the house, up and down, and went up and bowed
-over the boy seven times; and the boy opened his eyes. And Elissaios
-shouted to GiÃ«zi and said: Call this Sunamite woman to me; and he
-called her, and she came to him. And Elissaios said to her: Take your
-son. And the woman came and fell at his feet and worshipped to the
-ground; and she took her son and went out.
+There came a day an Elissaios crossed to Soman, and there an important woman constrained him to take food; and it came to pass that as often as he went there he turned aside to eat there. And the woman said to her husband: See, I know that this man, who comes through to us continually, is a holy man of God; so let us make for him a little upstairs room and put a bed and a table and stool and a lamp in it; and it shall be that when he comes to us he will turn aside there. And a day came and he entered there and turned aside to the upstairs room and slept there. And he said to his boy GiÃ«zi: Call the Sunamite woman to me. And he called her, and she stood before him. And he said to him: Say to her then: You have shown this amazing trouble for us. What must we do for you? Have you some request to the King or to the captain of the host? But she said: I dwell in the midst of my people. And he said to GiÃ«zi: What must we do for her? And his boy GiÃ«zi said: Indeed she has no son, and her husband is an old man. And he called her, and she stood by the door. And Elissaios said to her: At this moment, when the season is, you, alive, will embrace a son. But she said: No, my Lord, do not lie to your servant. And the woman conceived in the womb and gave birth to a son at that time, as the season was, alive, as Elissaios had to her. And the boy grew; and it came to pass, when he went out to his father to the reapers, that he said to his father: My head, my head. And he said to the servant boy: Take him to his mother. And he took him to his mother, and he slept on her knees until midday and he died. And she took him and laid him on the bed of the man of God, and shut the door on him and went out. And she called her husband and said: Send me one of the boys and one of the she asses, and I will hurry to the man of God and then return. And he said to her: Why are you going to him to-day? It is not new moon or Sabbath. But she said: Peace. And she saddled the she ass and said to her boy: Now, go, and do not hesitate because of me to ride, unless I tell you. Come, journey and go as far as the man of God on Mount Carmel. And she went and journeyed as far as the man of God on the mountain. And it came to pass that Elissaios saw her coming, and said to his boy GiÃ«zi: Look, that Sunamite woman; now run to meet her, and you are to say: Is it peace? Is it peace for your husband? Is it peace for the boy? But she said: Peace. And she came to Elissaios on the mountain and seized his feet, and GiÃ«zi approached to push her away. And Elissaios said: Let her alone, because her soul is greatly grieved, and the Lord has hidden it from me and not told me. But she said: Did I ask a son of my lord? For did I not say: Do not lie to me. And Elissaios said to GiÃ«zi: Gird yourself and take my staff in your hand and go. If you meet a man, you are not to bless him, and if a man blesses you, you are not to answer him. And you are to lay my staff on the face of the boy. And the boy’s mother said: As the Lord lives and as your soul lives, I shall not leave you. And Elissaios arose and went behind her. And GiÃ«zi went on ahead of her and placed the staff on the boy’s face, and there was no sound nor any hearing. And he returned to meet him and gave him the news, saying: The boy has not been raised. And Elissaios entered the house; and lo, the boy was lying dead on his bed. And Elissaios entered the house and shut the door on the two of them and prayed to the Lord. And he climbed up and lay on the boy and put his mouth to his mouth and his eyes to his eyes and his hands to his hands, and he bowed himself upon him, and the boy’s flesh grew warm. And he returned and walked in the house, up and down, and went up and bowed over the boy seven times; and the boy opened his eyes. And Elissaios shouted to GiÃ«zi and said: Call this Sunamite woman to me; and he called her, and she came to him. And Elissaios said to her: Take your son. And the woman came and fell at his feet and worshipped to the ground; and she took her son and went out.
 
 THIRTEENTH READING
 
-The Reading is from the Prophecy of Isaias.\
+The Reading is from the Prophecy of Isaias.
 \[**63:11-19, 64:1-5\]**
 
-Thus says the Lord: Where is he who brought the shepherd of the sheep
-out of the earth? Where is he who put the Holy Spirit in them? Who led
-Moses by his right hand, the arm of his glory? He overpowered the water
-in front of him, to make for himself an eternal name. He led them
-through the deep like a horse through the desert, and they did not grow
-weary, like cattle through a plain; a spirit came down from the Lord and
-guided them; thus you led out your people to make for yourself a name of
-glory. Turn from heaven and look from your holy house and from your
-glory: where is your zeal and your strength? Where is the multitude of
-your mercy and your pities, because you have held back from us? You are
-our Father, because Abraham did not know us, and Israel did not
-acknowledge us, but you, Lord our Father, deliver us; from the beginning
-your name is upon us. Why have you made us wander from your way, Lord?
-Why have your hardened our heart not to fear you? Turn back for your
-servants’ sake, for the tribes of your inheritance, that we may inherit
-a little of your holy mountain. Our opponents have trampled down your
-sanctuary. We have become as from the beginning, when you did not rule
-us, when your name had not been invoked upon us. \[*64:1*\] If you open
-heaven, trembling will take hold on the mountains from you, and they
-will melt, as wax melts before the face of fire, and fire will burn up
-the opponents and your name will be manifest among the opponents; at
-your presence nations will be troubled; trembling from you will take
-hold of mountains. From of old we have not heard, our eyes have not seen
-a God but you, and the works which you will do for those who await your
-mercy. For they will meet with those who do what is just and who will
-remember your ways.
+Thus says the Lord: Where is he who brought the shepherd of the sheep out of the earth? Where is he who put the Holy Spirit in them? Who led Moses by his right hand, the arm of his glory? He overpowered the water in front of him, to make for himself an eternal name. He led them through the deep like a horse through the desert, and they did not grow weary, like cattle through a plain; a spirit came down from the Lord and guided them; thus you led out your people to make for yourself a name of glory. Turn from heaven and look from your holy house and from your glory: where is your zeal and your strength? Where is the multitude of your mercy and your pities, because you have held back from us? You are our Father, because Abraham did not know us, and Israel did not acknowledge us, but you, Lord our Father, deliver us; from the beginning your name is upon us. Why have you made us wander from your way, Lord? Why have your hardened our heart not to fear you? Turn back for your servants’ sake, for the tribes of your inheritance, that we may inherit a little of your holy mountain. Our opponents have trampled down your sanctuary. We have become as from the beginning, when you did not rule us, when your name had not been invoked upon us. \[*64:1*\] If you open heaven, trembling will take hold on the mountains from you, and they will melt, as wax melts before the face of fire, and fire will burn up the opponents and your name will be manifest among the opponents; at your presence nations will be troubled; trembling from you will take hold of mountains. From of old we have not heard, our eyes have not seen a God but you, and the works which you will do for those who await your mercy. For they will meet with those who do what is just and who will remember your ways.
 
 FOURTEENTH READING
 
-The Reading is from the Prophecy of Jeremy.\
+The Reading is from the Prophecy of Jeremy.
 \[**38:31-34\]**
 
-Thus says the Lord: Lo, days are coming and I shall make a covenant with
-the house of Israel, and a new covenant with the house of Juda, not
-according to the covenant which I made with their fathers, on the day
-when I took their hand to lead them out of the land of Egypt, because
-they did not abide by my covenant, and I disregarded them, says the
-Lord. Because this is my covenant, which I will make with the house of
-Israel after those days, says the Lord, I will surely give my laws into
-their minds and I shall write them on their hearts, and I shall be for
-them as God, and they shall be for me a people. And they will not teach
-each his fellow citizen, and each his brother, saying: Know the Lord;
-because they will all know me, from the smallest among them to the
-greatest, because I shall be merciful to their iniquities, and I shall
-not remember their sins any more.
+Thus says the Lord: Lo, days are coming and I shall make a covenant with the house of Israel, and a new covenant with the house of Juda, not according to the covenant which I made with their fathers, on the day when I took their hand to lead them out of the land of Egypt, because they did not abide by my covenant, and I disregarded them, says the Lord. Because this is my covenant, which I will make with the house of Israel after those days, says the Lord, I will surely give my laws into their minds and I shall write them on their hearts, and I shall be for them as God, and they shall be for me a people. And they will not teach each his fellow citizen, and each his brother, saying: Know the Lord; because they will all know me, from the smallest among them to the greatest, because I shall be merciful to their iniquities, and I shall not remember their sins any more.
 
 FIFTEENTH READING
 -----------------
 
-The Reading is from the Prophecy of Daniel.\
+The Reading is from the Prophecy of Daniel.
 \[**3:1-88\]**
 
-In the eighteenth year Nabuchodonosor made a golden image; its height
-was sixty cubits and its breadth was six cubits; and he set it up in the
-plain of DeÃ¯ra, in the country of Babylon. And he sent to gather all
-the governors and generals and magistrates and chiefs and princes, all
-those with authority, all the governors of countries to come to the
-dedication of the image. And they were gathered, the magistrates,
-governors, generals, chiefs, great princes, those with authority, all
-the governors of countries for the dedication of the image which
-Nabuchodonosor the king had set up; and they stood before the image. And
-the herald cried loudly: To you it is ordered, peoples, tribes,
-languages, at what hour you shall hear the sound of trumpet, pipe, harp,
-sackbut, psaltery and every kind of music, you shall fall down and
-worship the golden image which Nabuchodonosor the king has set up. And
-any one who does not fall down and worship, at that hour shall be cast
-into the burning furnace of fire. And it came to pass that when the
-people heard the sound of trumpet, pipe, harp, sackbut, psaltery and
-every kind of music, all the peoples, tribes and languages fell down and
-worshipped the golden image which Nabuchodonosor had set up. Then
-certain Chaldean men approached and accused the Jews and they spoke and
-said to king Nabuchodonosor: O king, live for ever! You, O king, have
-given an order that everyone who hears the sound of trumpet, pipe, harp,
-sackbut, psaltery and every kind of music and does not fall down and
-worship the golden image, shall be cast into the burning furnace of
-fire. There are Jewish men, whom you have placed over the works of the
-country of Babylon, Sedrach, Misach and Abdenago, who have not obeyed
-your order, O king, and do not serve your gods and who do not worship
-the golden image which you have set up. Then in rage and anger
-Nabuchodonosor ordered Sedrach, Misach and Abdenago to be brought; and
-they were brought before the king; and Nabuchodonosor answered and said
-to them: Is it true, Sedrach, Misach and Abdenago that you do not serve
-my gods, and do not worship the golden image that I have set up? Now
-therefore, when you hear the sound of trumpet, pipe, harp, sackbut,
-psaltery and every kind of music, you are to fall down and worship the
-golden image that I have set up; and if you do not worship, in that hour
-you will be cast into the burning furnace of fire. And who is the god
-that will rescue you from my hands? Sedrach, Misach and Abdenago
-answered king Nabuchodonosor: We have no need to answer you over this
-matter; for our God, whom we serve, is in heaven, able to rescue us from
-the burning furnace of fire and he will from your hands, O king, because
-we will not serve your gods and we will not worship the golden image
-that you have set up. Then Nabuchodonosor was filled with rage, and his
-countenance was changed towards Sedrach, Misach and Abdenago, and he
-ordered the furnace to be heated sevenfold, so that it should burn to
-the uttermost; and he ordered his strongest men to fetter Sedrach,
-Misach and Abdenago and to cast them into the burning furnace of fire.
-Then the man bound then with their coats, caps, leggings and other
-clothing and they were cast into the middle of the burning fiery
-furnace, since the word of the king was pressing; and the furnace was
-heated exceedingly, sevenfold. And these three, Sedrach, Misach and
-Abdenago, fell bound into the midst of the burning furnace of fire, and
-they walked in the middle of the flame, praising god and blessing the
-Lord. And Azarias prayed thus; and opening his mouth in the middle of
-the fire he said: Blessed are you, O Lord, the God of our fathers: and
-praised and glorified is your name to the ages. For you are just in all
-that you have done for us. And all your works are true, and your ways
-are right, and all your judgements are true. And judgements of truth you
-have executed in all that you have brought upon us. And upon Jerusalem
-the holy city of our fathers. Because in truth you have brought all
-these things upon us, because of our sins. Because we have sinned and
-committed iniquity in departing from you, and we have sinned in all
-things, and we have not obeyed your commandments, nor kept them, nor
-have we done as you commanded us, that it might be well with us. And all
-that you have done to us, and all that you have brought upon us, you
-have done with true judgement; and you handed us over into the hands of
-our lawless foes, hateful rebels, and to an unjust king, the most wicked
-in all the earth. And now we cannot open our mouth; we have become a
-shame and disgrace to your servants, and to those who honour you. Do not
-hand us over for ever, for your holy name’s sake, and do not annul your
-covenant, and do not withdraw your mercy from us, for the sake of
-Abraham your beloved, and Isaac your servant, and Israel your holy one.
-To whom you said that you would multiply their seed as the stars of
-heaven, and as the sand that is by the shore of the sea. Because,
-Master, we have become smaller than all the nations, and we are humbled
-in all the earth to-day because of our sins. And at this moment there is
-neither prince, nor prophet nor leader; neither holocaust, nor
-sacrifice, not offering, nor incense; no place to make an offering
-before you and to find mercy. Yet with a contrite heart and with a
-spirit of humility may we be accepted, as though with holocausts of rams
-and bulls and tens of thousands of fat lambs, so may our sacrifice be
-acceptable before you to-day, and may it be perfected behind you;
-because there is no shame for those who trust in you. And now we are
-following you with our whole heart, and we fear you, and seek your face;
-do not put us to shame. But do with us according to your fairness, and
-according to the multitude of your mercy. Deliver us according to your
-wondrous works, and give glory to your name, O Lord. And let all who
-harm your servants be disgraced, and put to shame from all their power,
-and let their strength be smashed. And let them know that you Lord,
-alone are God, and glorious in the whole inhabited world. And the king’s
-servants, who cast them in, did not cease stoking the furnace with
-naphtha, pitch, tow and brushwood. And the flame poured out above the
-furnace forty nine cubits; and it spread out and burnt up those of the
-Chaldeans it found around the furnace. But the Angel of the Lord came
-down into the furnace with Azarias and his companions, and shook the
-flame of the fire out of the furnace. And he made the midst of the
-furnace as though a moist wind were whistling through it; and the fire
-did not touch them at all, nor hurt them, nor trouble them. Then the
-Three as with one voice, hymned, blessed and glorified God in the
-furnace, saying: Blessed are you, O Lord, the God of our fathers: to be
-praised and exalted unto the ages. And blessed is your glorious, holy
-name: to be praised and exalted unto the ages. Blessed are you in the
-temple of your glory: to be praised and exalted unto the ages. Blessed
-are you who behold the deeps and sit upon the Cherubim: to be praised
-and exalted unto the ages. Blessed are you on the glorious throne of
-your kingdom: to be praised and exalted unto the ages. Blessed are you
-in the firmament of heaven: to be praised and exalted unto the ages.
+In the eighteenth year Nabuchodonosor made a golden image; its height was sixty cubits and its breadth was six cubits; and he set it up in the plain of DeÃ¯ra, in the country of Babylon. And he sent to gather all the governors and generals and magistrates and chiefs and princes, all those with authority, all the governors of countries to come to the dedication of the image. And they were gathered, the magistrates, governors, generals, chiefs, great princes, those with authority, all the governors of countries for the dedication of the image which Nabuchodonosor the king had set up; and they stood before the image. And the herald cried loudly: To you it is ordered, peoples, tribes, languages, at what hour you shall hear the sound of trumpet, pipe, harp, sackbut, psaltery and every kind of music, you shall fall down and worship the golden image which Nabuchodonosor the king has set up. And any one who does not fall down and worship, at that hour shall be cast into the burning furnace of fire. And it came to pass that when the people heard the sound of trumpet, pipe, harp, sackbut, psaltery and every kind of music, all the peoples, tribes and languages fell down and worshipped the golden image which Nabuchodonosor had set up. Then certain Chaldean men approached and accused the Jews and they spoke and said to king Nabuchodonosor: O king, live for ever! You, O king, have given an order that everyone who hears the sound of trumpet, pipe, harp, sackbut, psaltery and every kind of music and does not fall down and worship the golden image, shall be cast into the burning furnace of fire. There are Jewish men, whom you have placed over the works of the country of Babylon, Sedrach, Misach and Abdenago, who have not obeyed your order, O king, and do not serve your gods and who do not worship the golden image which you have set up. Then in rage and anger Nabuchodonosor ordered Sedrach, Misach and Abdenago to be brought; and they were brought before the king; and Nabuchodonosor answered and said to them: Is it true, Sedrach, Misach and Abdenago that you do not serve my gods, and do not worship the golden image that I have set up? Now therefore, when you hear the sound of trumpet, pipe, harp, sackbut, psaltery and every kind of music, you are to fall down and worship the golden image that I have set up; and if you do not worship, in that hour you will be cast into the burning furnace of fire. And who is the god that will rescue you from my hands? Sedrach, Misach and Abdenago answered king Nabuchodonosor: We have no need to answer you over this matter; for our God, whom we serve, is in heaven, able to rescue us from the burning furnace of fire and he will from your hands, O king, because we will not serve your gods and we will not worship the golden image that you have set up. Then Nabuchodonosor was filled with rage, and his countenance was changed towards Sedrach, Misach and Abdenago, and he ordered the furnace to be heated sevenfold, so that it should burn to the uttermost; and he ordered his strongest men to fetter Sedrach, Misach and Abdenago and to cast them into the burning furnace of fire. Then the man bound then with their coats, caps, leggings and other clothing and they were cast into the middle of the burning fiery furnace, since the word of the king was pressing; and the furnace was heated exceedingly, sevenfold. And these three, Sedrach, Misach and Abdenago, fell bound into the midst of the burning furnace of fire, and they walked in the middle of the flame, praising god and blessing the Lord. And Azarias prayed thus; and opening his mouth in the middle of the fire he said: Blessed are you, O Lord, the God of our fathers: and praised and glorified is your name to the ages. For you are just in all that you have done for us. And all your works are true, and your ways are right, and all your judgements are true. And judgements of truth you have executed in all that you have brought upon us. And upon Jerusalem the holy city of our fathers. Because in truth you have brought all these things upon us, because of our sins. Because we have sinned and committed iniquity in departing from you, and we have sinned in all things, and we have not obeyed your commandments, nor kept them, nor have we done as you commanded us, that it might be well with us. And all that you have done to us, and all that you have brought upon us, you have done with true judgement; and you handed us over into the hands of our lawless foes, hateful rebels, and to an unjust king, the most wicked in all the earth. And now we cannot open our mouth; we have become a shame and disgrace to your servants, and to those who honour you. Do not hand us over for ever, for your holy name’s sake, and do not annul your covenant, and do not withdraw your mercy from us, for the sake of Abraham your beloved, and Isaac your servant, and Israel your holy one. To whom you said that you would multiply their seed as the stars of heaven, and as the sand that is by the shore of the sea. Because, Master, we have become smaller than all the nations, and we are humbled in all the earth to-day because of our sins. And at this moment there is neither prince, nor prophet nor leader; neither holocaust, nor sacrifice, not offering, nor incense; no place to make an offering before you and to find mercy. Yet with a contrite heart and with a spirit of humility may we be accepted, as though with holocausts of rams and bulls and tens of thousands of fat lambs, so may our sacrifice be acceptable before you to-day, and may it be perfected behind you; because there is no shame for those who trust in you. And now we are following you with our whole heart, and we fear you, and seek your face; do not put us to shame. But do with us according to your fairness, and according to the multitude of your mercy. Deliver us according to your wondrous works, and give glory to your name, O Lord. And let all who harm your servants be disgraced, and put to shame from all their power, and let their strength be smashed. And let them know that you Lord, alone are God, and glorious in the whole inhabited world. And the king’s servants, who cast them in, did not cease stoking the furnace with naphtha, pitch, tow and brushwood. And the flame poured out above the furnace forty nine cubits; and it spread out and burnt up those of the Chaldeans it found around the furnace. But the Angel of the Lord came down into the furnace with Azarias and his companions, and shook the flame of the fire out of the furnace. And he made the midst of the furnace as though a moist wind were whistling through it; and the fire did not touch them at all, nor hurt them, nor trouble them. Then the Three as with one voice, hymned, blessed and glorified God in the furnace, saying: Blessed are you, O Lord, the God of our fathers: to be praised and exalted unto the ages. And blessed is your glorious, holy name: to be praised and exalted unto the ages. Blessed are you in the temple of your glory: to be praised and exalted unto the ages. Blessed are you who behold the deeps and sit upon the Cherubim: to be praised and exalted unto the ages. Blessed are you on the glorious throne of your kingdom: to be praised and exalted unto the ages. Blessed are you in the firmament of heaven: to be praised and exalted unto the ages.
 
 ****
 
@@ -1146,18 +411,15 @@ Praise the Lord, and highly exalt him, unto the ages.
 
 ****
 
-Then the Canonarch reads the following hymn, while we, after each verse
-sing the refrain:
+Then the Canonarch reads the following hymn, while we, after each verse sing the refrain:
 
 Praise the Lord **as above.**
 
-Bless the Lord all you works of the Lord; praise, and highly exalt him
-to all the ages.
+Bless the Lord all you works of the Lord; praise, and highly exalt him to all the ages.
 
 Bless the Lord Angels of the Lord, heavens of the Lord;
 
-Bless the Lord all you waters above the heavens, all you powers of the
-Lord;
+Bless the Lord all you waters above the heavens, all you powers of the Lord;
 
 Bless the Lord sun and moon, stars of heaven;
 
@@ -1173,8 +435,7 @@ Bless the Lord light and dark, nights and days;
 
 Bless the Lord earth, mountains and hills, and all that grow in it;
 
-Bless the Lord springs, seas and rivers, whales and all that move in the
-waters;
+Bless the Lord springs, seas and rivers, whales and all that move in the waters;
 
 Bless the Lord all you birds of the air, beasts and cattle;
 
@@ -1206,16 +467,13 @@ Praise the Lord, and highly exalt him, unto the ages. ****
 
 Reader:
 
-We praise, bless and worship the Lord, praising and highly exalting him
-unto the ages. Singers: We praise the Lord and highly exalt him unto the
-ages. ****
+We praise, bless and worship the Lord, praising and highly exalting him unto the ages. Singers: We praise the Lord and highly exalt him unto the ages. ****
 
 Then the small Litany.
 
 Instead of the Trisagion:
 
-As many of you as have been baptised into Christ, have put on Christ.
-Alleluia!
+As many of you as have been baptised into Christ, have put on Christ. Alleluia!
 
 ****
 
@@ -1233,14 +491,12 @@ Wisdom. ****
 
 Reader:
 
-Prokeimenon. Tone 5.\
-Let all the earth worship you and sing to you; let it sing to your name.
-****
+Prokeimenon. Tone 5.
+Let all the earth worship you and sing to you; let it sing to your name. ****
 
 Verse:
 
-** Let all the earth worship you and sing to you; let it sing to your
-name. ****
+** Let all the earth worship you and sing to you; let it sing to your name. ****
 
 Priest:
 
@@ -1260,20 +516,7 @@ Let us attend. ****
 
 Reader:
 
-Brethren, as many of us as have been baptised into Christ, have been
-baptised into his death. We have been buried then with him through
-baptism to death; so that, as Christ has been raised from the dead
-through the glory of the Father, we too may thus walk in newness of
-life. For if we have grown into union with him through a death like his,
-we shall certainly be united with him in a resurrection like his. We
-know that our old self was crucified with him so that the body of sin
-might be destroyed, and that we might no longer be slaves of sin. For
-whoever has died has been justified from sin. But if we have died with
-Christ, we believe that we shall also live with him. We know that
-Christ, being raised from the dead, dies no more; death no longer has
-dominion over him. For the death he died, he died to sin, once for all;
-but the life he lives he lives to God. So you must also consider
-yourselves dead to sin, but alive to God, in Christ Jesus our Lord.
+Brethren, as many of us as have been baptised into Christ, have been baptised into his death. We have been buried then with him through baptism to death; so that, as Christ has been raised from the dead through the glory of the Father, we too may thus walk in newness of life. For if we have grown into union with him through a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self was crucified with him so that the body of sin might be destroyed, and that we might no longer be slaves of sin. For whoever has died has been justified from sin. But if we have died with Christ, we believe that we shall also live with him. We know that Christ, being raised from the dead, dies no more; death no longer has dominion over him. For the death he died, he died to sin, once for all; but the life he lives he lives to God. So you must also consider yourselves dead to sin, but alive to God, in Christ Jesus our Lord.
 
 ****
 
@@ -1287,86 +530,44 @@ And to your spirit. ****
 
 We do not say
 
-Alleluia**, but, after it has been sung once by the celebrating clergy,
-we sing immediately the following verse in Tone 7**
+Alleluia**, but, after it has been sung once by the celebrating clergy, we sing immediately the following verse in Tone 7**
 
-Arise, O God, judge the earth; for you shall have an inheritance among
-the nations.
+Arise, O God, judge the earth; for you shall have an inheritance among the nations.
 
 ****
 
-We repeat this after each of the following verses of Psalm 81, recited
-by the Canonarch.
+We repeat this after each of the following verses of Psalm 81, recited by the Canonarch.
 
 God stood in the assembly of gods; he will judge gods in the midst.
 
 How long will judge unjustly; and accept the persons of sinners?
 
-Judge for the orphan and the beggar; do justice to the humble and
-pauper. Rescue the poor and the beggar; deliver them from the hand of
-the sinner.
+Judge for the orphan and the beggar; do justice to the humble and pauper. Rescue the poor and the beggar; deliver them from the hand of the sinner.
 
-They have not known, nor understood; they walk in darkness. Let all the
-foundations of the earth be shaken.
+They have not known, nor understood; they walk in darkness. Let all the foundations of the earth be shaken.
 
-I said: You are gods, and all children of the Most High; but you die
-like men, and fall like one of the rulers.
+I said: You are gods, and all children of the Most High; but you die like men, and fall like one of the rulers.
 
 ****
 
 Then the Gospel as usual and the Liturgy of St Basil the Great.
 
-The reading is from the Holy Gospel according to Matthew.\
+The reading is from the Holy Gospel according to Matthew.
 \[**28:1-20\]**
 
-After the Sabbath, as it grew light on the first day of the week, Mary
-Magdalen and the other Mary came to see the tomb. And behold there was a
-great earthquake; for an Angel of the Lord came down from heaven,
-approached and rolled away the stone from the door and sat upon it. Hi
-appearance was like lightning and his clothing white as snow. From fear
-of him those who were on guard were shaken with fear and became like
-dead men. The Angel answered and said to the women, ‘Do not be afraid. I
-know that you are looking for Jesus the crucified. He is not here. He
-has been raised from the dead. Come, see the place where the Lord lay.
-And go quickly, tell his disciples that he has been raised from the dead
-and see, he is going ahead of you into Galilee. It is there you will see
-him. See, I have told you.’ And they went out quickly from the grave
-with fear and great and ran to announce it to his disciples. As they
-were on their way to announce it to his disciples, behold Jesus met them
-and said, ‘Rejoice!’ But they approached, seized his feet and worshipped
-him. Then Jesus said to them, ‘Do not be afraid! Go and announce to my
-disciples that they are to go into Galilee and they will see me there.’
-As they were going, some of the guard entered the city and announced to
-the chief priests all that had taken place. They assembled with the
-elders and took counsel and then gave a large sum of money to the
-soldiers, saying, ‘Say, “His disciples came by night and stole him while
-we were asleep.” And if this gets to the ears of the governor, we will
-satisfy him and keep you unharmed.’ They took the money and did as they
-had been instructed. And this report has been circulated among the Jews
-to this day. But the eleven disciples went to Galilee, to the mountain
-that Jesus had ordered them. And when they saw they worshipped him; but
-some doubted. And Jesus approached and spoke to them, saying, ‘All
-authority has been given to me in heaven and on earth. Go, therefore,
-and make disciples of all the nations, baptizing them in the name of the
-Father and of the Son and of the Holy Spirit; teaching them to observe
-everything that I have commanded you. And behold, I am with you all
-days, until the consummation of the age.’
+After the Sabbath, as it grew light on the first day of the week, Mary Magdalen and the other Mary came to see the tomb. And behold there was a great earthquake; for an Angel of the Lord came down from heaven, approached and rolled away the stone from the door and sat upon it. Hi appearance was like lightning and his clothing white as snow. From fear of him those who were on guard were shaken with fear and became like dead men. The Angel answered and said to the women, ‘Do not be afraid. I know that you are looking for Jesus the crucified. He is not here. He has been raised from the dead. Come, see the place where the Lord lay. And go quickly, tell his disciples that he has been raised from the dead and see, he is going ahead of you into Galilee. It is there you will see him. See, I have told you.’ And they went out quickly from the grave with fear and great and ran to announce it to his disciples. As they were on their way to announce it to his disciples, behold Jesus met them and said, ‘Rejoice!’ But they approached, seized his feet and worshipped him. Then Jesus said to them, ‘Do not be afraid! Go and announce to my disciples that they are to go into Galilee and they will see me there.’ As they were going, some of the guard entered the city and announced to the chief priests all that had taken place. They assembled with the elders and took counsel and then gave a large sum of money to the soldiers, saying, ‘Say, “His disciples came by night and stole him while we were asleep.” And if this gets to the ears of the governor, we will satisfy him and keep you unharmed.’ They took the money and did as they had been instructed. And this report has been circulated among the Jews to this day. But the eleven disciples went to Galilee, to the mountain that Jesus had ordered them. And when they saw they worshipped him; but some doubted. And Jesus approached and spoke to them, saying, ‘All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all the nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit; teaching them to observe everything that I have commanded you. And behold, I am with you all days, until the consummation of the age.’
 
 ****
 
 Instead of the Cherubic Hymn we sing the following in Tone 5:
 
-Let all mortal flesh keep silence, and stand with fear and trembling,
-and take no thought for any earthly thing; for the King of kings and
-Lord of lords comes to be slain and given as food for the faithful.
+Let all mortal flesh keep silence, and stand with fear and trembling, and take no thought for any earthly thing; for the King of kings and Lord of lords comes to be slain and given as food for the faithful.
 
 ****
 
 Here the Great Entrance takes place.
 
-Before him go the choirs of Angels, with every Principality and Power;
-the many-eyed Cherubim and the six-winged Seraphim covering their faces
-and crying out the hymn: Alleluia, Alleluia, Alleluia.
+Before him go the choirs of Angels, with every Principality and Power; the many-eyed Cherubim and the six-winged Seraphim covering their faces and crying out the hymn: Alleluia, Alleluia, Alleluia.
 
 ****
 
@@ -1374,10 +575,7 @@ At
 
 Above all **we sing the Irmos of the 9th Ode of the Canon in Tone 6:**
 
-Mourn not for me, O Mother, as you behold in the grave the Son, whom
-without seed you conceived in your womb; for I shall arise and be
-glorified, and as God I shall exalt in glory without end those who
-magnify you with faith and love.
+Mourn not for me, O Mother, as you behold in the grave the Son, whom without seed you conceived in your womb; for I shall arise and be glorified, and as God I shall exalt in glory without end those who magnify you with faith and love.
 
 ****
 
@@ -1391,25 +589,15 @@ Instead of
 
 We have seen the true light **** we sing in Tone 6:**
 
-Remember us also, O Compassionate One, as you remembered the Thief, in
-the kingdom of heaven.
+Remember us also, O Compassionate One, as you remembered the Thief, in the kingdom of heaven.
 
 ****
 
-After the Dismissal the blessed bread is distributed by the Priest. Then
-there takes place the blessing of bread and wine. The Ecclesiarch must
-ensure that the Dismissal of the Church after the Liturgy takes place
-when it is the second hour of the night. After the Dismissal we do not
-leave the Church, but sit in our places, and the Cellarer comes in and
-distributes to the Brethren a slice of bread and six dates or figs and a
-beaker of wine. When we have finished there begins the great reading of
-the Acts of the Apostles. When we have reached the moment, the
-Lamplighter lights all the lamps of the Temple, and goes out and strikes
-the simandron. The reader stops and we begin the Pannychida as follows.
+After the Dismissal the blessed bread is distributed by the Priest. Then there takes place the blessing of bread and wine. The Ecclesiarch must ensure that the Dismissal of the Church after the Liturgy takes place when it is the second hour of the night. After the Dismissal we do not leave the Church, but sit in our places, and the Cellarer comes in and distributes to the Brethren a slice of bread and six dates or figs and a beaker of wine. When we have finished there begins the great reading of the Acts of the Apostles. When we have reached the moment, the Lamplighter lights all the lamps of the Temple, and goes out and strikes the simandron. The reader stops and we begin the Pannychida as follows.
 
 ------------------------------------------------------------------------
 
-All texts and translations on this page are copyright to\
+All texts and translations on this page are copyright to
 Archimandrite Ephrem Â©
 
 **This page was last updated on 03 November 2008**
