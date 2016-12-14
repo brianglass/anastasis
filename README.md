@@ -5,4 +5,4 @@ With his passing (may his memory be eternal!), easy access to his translations w
 a correspondence with the appropriate people in order to make sure this repository is permitted, but am making 
 these texts available here in the interim.
 
-Please begin with [Archimandrite Ephrem's Index](index.md).
+Please begin with [Archimandrite Ephrem's Index](files/index.md).
