@@ -1,0 +1,320 @@
+\[ [Home](index.md) \] \[ [Up](john-dam.md) \]
+\[ [Antipascha](thomcan.md) \]
+\[ [First Canon for the Assumption](asccan01.md) \]
+\[ [Second Canon for Pentecost](pentcan2.md) \]
+\[ [Prophet Elias](20julcan.md) \] \[ Symeon Stylites \]
+\[ [Protomartyr Thekla](TheklaCan.md) \] \[ [Pascha](PaschaCan.md) \]
+\[ [Paschal Canon with Notes](paschal_canon_with_notes.md) \]
+
+ 
+
+**CANON TO SAINT SYMEON STYLITES**
+
+![](SymStyl.gif){width="179" height="271"}
+
+INTRODUCTION
+
+The author of the Canon to Saint Symeon Stylites is given in the Menaion
+as ‘Monk John’, the usual designation of Saint John of Damascus in the
+service books.
+
+The canon is of unusual interest since the writer clearly had the life
+of saint written by Theodoret, bishop of Cyrrhus, in front of him as
+well as at least one other source. I hope to trace these other sources
+and to update this page shortly. For most of the canon he follows
+Theodoret closely, even to occasional verbal citations. In the
+translation that follows I have given the relevant passages from
+Theodoret after the troparion in a different typeface. My free
+translation is made from the critical edition in the French Sources
+ChrÃ©tiennes \[volume 257, pages 158-215\] of the Historia Philothea by
+Alice Leroy-Mohlingen in 1979.
+
+Theodoret’s account of Saint Symeon is of the greatest importance, since
+he was personally acquainted with him and had visited him at his pillar
+a number of times. He describes vividly an occasion when, after the
+saint had told the crowds to ask for Theodoret’s blessing, he was mobbed
+by the enthusiastic pilgrims and only escaped being smothered by the
+saint’s shouting to them to stand back.
+
+------------------------------------------------------------------------
+
+**THE CANON**
+
+**The Acrostic, without the Theotokia, is:**\
+Accept the hymn, O blessed Symeon.
+
+**By Monk John\
+Ode 1. Tone 8. Let us sing to the Lord.**
+
+As with the broken instrument of my tongue I weave this song for you,
+God-bearing Symeon, grant me through your supplications divinely
+inspired light of knowledge.
+
+Persians, Ethiopians, Indians and Scythians and a multitude of Arabs
+recognised your wisdom, Father, and they glorified Christ who is
+glorified through you.
+
+> Persians, Medes and Ethiopians knew him, while his fame had reached
+> the Scythians nomads and taught them of his love of toil and wisdom.
+> \[Life 1\] A number of the manuscripts of Theodoret read here not
+> ‘Medes’, but ‘Indians’. This Canon is not cited in the critical
+> apparatus.
+
+You were filled with spiritual grace; for, like Jacob, David and Moses,
+you appeared from the sheepfolds as leader of spiritual flocks, O
+blessed one.
+
+> He was first taught by his parents to shepherd the flocks, so that in
+> this way he might be compared to the great men, the patriarch Jacob,
+> chaste Joseph, Moses the lawgiver, David the king and Micheas the
+> prophet. \[Life 2\]
+
+**Theotokion**
+
+Immaculate Mother of God, hail honoured one, who contained in your womb
+the uncontainable God, entreat that those who sing your praise you may
+be redeemed.
+
+**Ode 3. Plant your fear, Lord.**
+
+Swiftly fleeing the icy blast of the winds, you boldly reached a
+dwelling of salvation, Symeon, from which you plucked the fruit of life
+that does not age.
+
+> Once when there was heavy snow and the flocks were forced to stay
+> inside, he profited from this break and went to the holy church with
+> his parents. \[Life 2\]
+
+Gladly you inclined your obedient ear to the Master who promised
+blessedness; and blessed was the way of life you found.
+
+> He said that he heard the voice of the Gospel calling those who weep
+> and mourn blessed, but those who laugh wretched. \[Life 2\]
+
+Having welcomed the seeds of the word in the furrows of your heart, with
+floods of tears, you reaped for Christ a full ear of virtues.
+
+> Having welcomed the seeds of God’s word and hidden them well in the
+> deep furrows of his soul, he hurried, so he told me, to the nearby
+> shrine of the holy martyrs. \[Life 3\]
+
+**Theotokion.**
+
+Bride of God, ineffably you conceived the Saviour and Lord, who from
+troubles delivers us who call on you in truth.
+
+**Ode 4. Lord, I have heard.**
+
+It was not on sand but on the deepest toils that you laid the foundation
+of your ascetic life, All blessed one, and built an unshakeable tower of
+virtues.
+
+> He had the following vision in a dream. ‘I seemed’, he said, ‘to be
+> digging foundations. Then I heard someone standing there say that I
+> must dig the trench still deeper. So, as he had ordered me, I
+> increased the depth and again tried to take a break. But once more he
+> commanded me to dig and not to relax my efforts. Having told me to do
+> this three or four times, finally he said that the depth was
+> sufficient and ordered me to build without toil, because the toil had
+> ceased and the work of building would be without toil’. \[Life 3\]
+
+The roughest rope your body’s lot to nail it to the fear of the spirit,
+you found, O Venerable one, the allotment of a divine inheritance.
+
+> I heard from him and from the present superior of the same flock the
+> story of how he once took a rope made of palm leaves — it was
+> extremely rough even the touch of the hands — and strapped it round
+> his waist, not putting it outside, but attaching to the skin itself.
+> And he pulled it so tight that the part of his body to which it was
+> attached became an open sore all the way round. \[Life 5\] The
+> reference to the ‘divine inheritance’ is to Psalm 15,6 ‘The ropes
+> \[lines\] have fallen for me in the best places, and my inheritance is
+> the best’.
+
+The hidden passions of the body ebbed away in rotting decay, that even
+the worms feared you as you slept.
+
+Imitating the life-giving Dead after his voluntary passion, as in a tomb
+you placed yourself in a gloomy well.
+
+> When he had reached the more deserted parts of the mountain, he found
+> a dry cistern that was not too deep, got down into it and began to
+> offer hymns to God. \[Life 6\]
+
+**Theotokion.**
+
+Immaculate Mary, implore the God whom you bore to grant your servants
+pardon of their offences.
+
+**Ode 5. Enlighten us.**
+
+Christ showed you, Symeon, to be a new Daniel; for, through a
+revelation, he brought you unharmed from a pit infested with wild
+beasts.
+
+> When the shepherds had showed them \[his fellow monks\] the cistern,
+> they at once gave loud shouts, then, fetching a rope, they pulled him
+> up, not without great difficulty, for going up is by no means as easy
+> as going down. \[Life 6\] In the Syriac life this has become a
+> sinister cave, in which the devil torments the saint with visions of
+> every kind of reptile and savage beast.
+
+Offering your whole self to the Lord, you bared yourself to the hostile
+elements of snow, ice and heat.
+
+You were shown to be a new Moses and a new Elias, throughout your life
+living for the forty days on one meal, venerable Father.
+
+> In his zeal constantly to increase his wealth of virtue, he wished,
+> like those godlike men, Moses and Elias, to remain without food for
+> forty days. \[Life 7\]
+
+**Theotokion.**
+
+Ever implore your Son and our God, pure Mary who knew not wedlock, to
+send down his mercy upon us the faithful.
+
+**Ode 6. Grant me a tunic.**
+
+Blessed Father, Christ displayed you as a worker of signs and wonders,
+having shown you to be a dwelling place of divine force.
+
+> His reputation spread far and wide and it was only the people nearby
+> but those who lived many days journey away who hastened to him. Some
+> brought people who were paralysed, others asked help for the sick,
+> others begged to become fathers, and what they could obtain naturally
+> they sought to obtain through him. \[Life 11\]
+
+Your body was raised on the column as on a cross; therefore you have
+been glorified with Christ who was raised on a tree for your sake.
+
+> Visitors came in ever increasing numbers and all tried to touch him
+> and to pluck a blessing from his clothing of skins. To begin with he
+> found this excess of honour misplaced, then, unable to stand the
+> fatigue of the business, he had the idea of taking his stand on a
+> pillar. \[Life 12\]
+
+Having found a pathway in the air, inspired Symeon, bring up to the
+heights of heaven those who faithfully sing your praise.
+
+> To begin with he had it made six cubits high, then twelve, after this
+> twenty two and now it is thirty six. For he longed to fly up to heaven
+> and to abandon this earthly life. \[Life 12\]
+
+**Theotokion.**
+
+We the faithful declare you, Mother of God, to be the temple and ark of
+God, living bridal chamber and gate of heaven.
+
+**Ode 7. Youths who honoured God.**
+
+You ended a drought for the despairing and opened for them the gates of
+rain, you steadied the shaken land, and taught peoples to cry: Blessed
+is the God of our fathers!
+
+> Theodoret only speaks of Symeon’s having prophesied a drought, but the
+> Syriac life recounts his having ended one through his prayers.
+
+As a mighty beacon of the Church and sun of many lights, O Symeon, you
+sent out beams in all directions, enlightened peoples and taught them to
+cry: Blessed is the God of our fathers!
+
+> His station on the pillar enlightened the Ishmaelites, enslaved by
+> tens of thousands to the gloom of idolatry. For, placed as on a
+> lampstand, this radiant lamp shed his rays on every side like the sun.
+> \[Life 13\]
+
+Streams flowing together from every side, a sea of men welded together
+in the fold of your ascetic discipline, Servant of Christ, was taught by
+you to cry out: Blessed is the God of our fathers!
+
+> As I said, one could see Iberians, Armenians ands Persians arriving
+> and accepting holy Baptism. While Ishmaelites arriving in groups of
+> three or four hundred at a time, sometimes even thousands, renounced
+> their ancestral error with acclamation, smashed in front of that great
+> beacon the idols that they had worshipped, abandoned the orgies of
+> Aphrodite and taken part in the divine Mysteries. \[Life 13\]
+
+Of old in the arms of the Elder, but now in the tables of your heart,
+Venerable Symeon, Christ took his rest by his invisible power; therefore
+you cried: Blessed is the God of our fathers!
+
+**Theotokion.**
+
+It was fitting for him who took flesh without seed to come forth from
+you, immaculate Virgin; for you, O Pure one, brought forth him who
+surpasses all things, to whom with hymns we shout and cry: Blessed is
+the God of our fathers!
+
+**Ode 8. The One glorified in the holy mountain.**
+
+Having left every attachment and pitying a mother’s weakness, as though
+living, you appeared after death, crying out: Praise the Lord and highly
+exalt him to all the ages.
+
+You gave strength to a paralysed sick youth and ordered him to carry the
+tribal chief like his bed on his shoulders as he praised the Lord and
+highly exalted him to all the ages.
+
+> On another occasion I saw a quite remarkable wonder. Someone, who was
+> in fact a Saracen tribal chief, came and implored the saint to help a
+> man who limbs had become paralysed during the journey. When the man
+> had been brought before him, he ordered him to renounce the idolatry
+> of his ancestors. When the man gladly obeyed and had done as he was
+> ordered, the saint asked him if he believed in the Father, the
+> Only-begotten Son and the Holy Spirit. When he had confessed that he
+> believed, the saint said, ‘Since you believe in these names, arise!’
+> When he had arisen, he ordered him to carry the chieftain, who was a
+> very large man, to his tent on his shoulders. He took him and
+> departed, while everyone present uttered hymns of thanksgiving to God.
+> \[Life 16\]
+
+The One who made Job shine brightly through suffering, O servant of
+Christ, turned you, when your flesh was suppurating with rottenness,
+into a priceless pearl, as he glorified you, Symeon, to all the ages.
+
+> They say that, as a result of his standing, a malignant ulcer
+> developed on his left leg and that great quantities of pus oozed from
+> it continually. \[Life 23\]
+
+At Symeon’s entreaties, Master, you summoned a boastful robber chief, as
+of old Thief on the Tree; therefore we praise you and highly exalt you
+to all the ages.
+
+**Theotokion.**
+
+Virgin Mother of God, who received the Angel’s ‘Hail!’, bore the Lord of
+glory and made the light dawn on the world, we all hymn you and glorify
+you.
+
+**Ode 9. The One revealed on the mountain**
+
+As one who had shown himself a king through steadfastness in sufferings,
+godly Symeon, Christ approved you as sharer of his royal rule; therefore
+in hymns we magnify you.
+
+Granted the grace of healing from the inexhaustible treasury of the
+Spirit, godly Symeon, you reward with healings those who celebrate your
+memory.
+
+You walked the path of heavenly virtue, you displayed the prize from on
+high, you have reached the heavenly dwellings: intercede that our souls
+may be saved.
+
+**Theotokion.**
+
+You were shown, O Virgin, to be the bush that burned yet was not
+consumed by fire, by conceiving without seed the God and Saviour of the
+world, whom we unceasingly magnify.
+
+![](simeon.jpg){width="168" height="259"}
+
+All that remains of Saint Symeon’s pillar\
+at Qal’at Sim’an.
+
+------------------------------------------------------------------------
+
+All texts and translations on this page are copyright to\
+Archimandrite Ephrem Â©
+
+**This page was last updated on 03 November 2008**

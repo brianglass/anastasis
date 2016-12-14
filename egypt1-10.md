@@ -1,0 +1,452 @@
+\[ [Home](index.md) \] \[ [Up](egypt-int.md) \]
+
+ 
+
+ 
+
+1st Exhortation
+---------------
+
+\[O: To Ascetics\]
+------------------
+
+Glory to you, O God, glory to you. And again I shall say, Glory to you,
+O God, praised and exalted above all forever.
+
+We should, at every moment, beloved, thank God, who has granted us to
+come under his good yoke and has delivered us from things passing and
+corruptible. I want to serve words which grace has enlightened my mind
+to speak. But I do not want to speak with sophisticated words, being
+myself an uneducated and undistinguished person. Moreover things which
+are said with sophistication are not clear to everyone, and particularly
+to those who have had no part of worldly philosophy. Therefore I must
+offer a clear discourse, which those who hear can understand, according
+to the blessed Apostle, *If then I do not know the meaning of the sound,
+I shall be a foreigner to the one who is talking to me and the one who
+is talking to me will be a foreigner to me*. The spiritual discourse can
+persuade those who are subjects of the faith, even if it is lacking
+learning and polish. But blessed is God who grants all things to all men
+and enlightens each according to his advantage. I am not unaware that
+this is above my measure; but it is written, *There is a time to be
+silent and a time to speak*.
+
+What defence then shall we have on the day of judgement if we have not
+helped according to our ability those who are weary through
+inexperience, and especially at the present moment, when they are also
+storm-tossed by bad teaching and lawless advice? For the bloodthirsty
+lion and enemy of truth does not cease to deceive those who do not take
+great care, for he does not wish to devour men’s flesh but he strives to
+cast their souls into Hell. How many are there do you think who after
+their retreat he has subjected again with dishonourable passions? How
+many after they have been conformed to the brotherhood has he not turned
+into deserters and made strangers to their habit? Therefore it is
+necessary not to turn aside, but brother helped by brother, they stand
+not trapped by the snares of the Devil. We speak following the Apostle;
+for *of ourselves we are not adequate to reckon anything as of
+ourselves, but our adequacy is from God, who has made us adequate*,
+unworthy though we are, to serve him. May the Lord give you, who receive
+this discourse, like the good earth, to render perfect and abundant
+fruit in justice to Christ our Saviour; to whom be glory to the ages.
+Amen.
+
+2nd Exhortation. An invitation to right conduct.
+------------------------------------------------
+
+Beloved, are you a Christian through God’s grace? Keep the commandments
+of our Lord Jesus Christ; for it is written, *In truth I understand that
+God is no respecter of persons, but in every nation one who fears him
+and works justice is acceptable to him*. But if you wish to walk the
+strict way of life of the monks so that you may meet with greater
+things, unless you fix in your thought that you have already passed over
+from this life and consider that this world and its glory are as a tent
+that has been struck, you cannot conquer the earthly passions and
+worldly desires which overwhelm people to the ruin and destruction of
+the flesh; for he is without deception who said, *If any one wishes to
+come after me, let him deny himself and take up his cross and follow me.
+For he who wishes to find his soul will lose it; but he who loses it for
+my sake will find it. For what advantage will someone have if he gain
+the whole world but pay the price of his life?* For the toil is not to
+lay the foundation but to complete the building. For the higher the
+building is erected, so much greater is the toil given to the builder
+until the completion of the work. Let us listen to the voice of the
+Saviour when he says, *Which of you wishing to build a tower does not
+first sit down and reckon the expense, whether he has the necessary?
+Lest perchance when he has laid the foundation and is not able to
+finish, all those who see him will start to mock him and say, This man
+started to build, and was unable to finish*.
+
+A soldier’s war is short, but that of the monk lasts until his departure
+to the Lord. Because of this it is necessary to make a start in the work
+with all fervour, vigilance and endurance. If then, beloved, you would
+try to slay a lion, take it by ambush, lest it crush your bones like an
+earthenware vessel. If you fall into the sea, do not give up until you
+reach the dry land, lest you go down to the deep like a stone. My
+brother, if you wish to compete, be vigilant, lest the opponent win the
+victory and exult over you, and you, instead of a crown, receive the
+opposite. Everyone who wants to become a monk has this in readiness, to
+endure nobly, lest perchance when he enters he may say, I didn’t know
+that I would have to undergo all this.
+
+See, all this has been told you in advance, that you too may strengthen
+your resolve, knowing that by this your testing will appear. Understand
+what is said, beloved, lest to-day, when you stand at the threshold and
+when asked say I can endure all this, and tomorrow you beg to be excused
+in both words and deeds; for the Angels of God are standing by and
+listening to everything that comes from your lips. See, beloved, no one
+is forcing you, and if you truly submit, do not lie, because the Lord
+will destroy all those who speak lies.
+
+These are the things which befall someone who approaches God: first
+temptation, then tribulation, then toil, despondency, nakedness,
+sufferings, anguish, contempt; in these the endurance and testing of
+believers is manifested; and in all these the person who gives himself
+wholeheartedly to God’s direction, and submits to his will, triumphs
+completely. For God only asks of us a perfect intention, and he himself
+will give us the strength and grant us the victory; as it is written,
+*He is the champion of all who hope in him*. And again he says, *The
+Lord is near to all who call upon him in truth*. *He will do the will of
+those who fear him and will listen to their supplication and will save
+them*. Pray for us, I beg you, that the Lord will grant us to do
+blamelessly what we are about to say. For we do not give advice as
+though we had reached these measures, but let us call on the Lord Jesus
+Christ the giver and bestower of words as we begin to unfold the word,
+so that we may both be profited and give profit. If those who are called
+apothecaries diligently searched for roots and species of plants and
+have committed them to writing, and this shows better God’s dispensation
+for the comfort of those who are sick according to the flesh, is it not
+much more incumbent on us to reveal the treasure of the grace according
+to his gift? For the wicked slave did not escape punishment by hiding
+his lord’s talent through laziness. Who does not groan over me, who bear
+the name of monk as a sham? Who will not weep for me, who have lost my
+devotion and my endurance? And what shall I do when my Master Christ
+visits me? And so I beg, beloved, intercede for me the unprofitable
+servant, that I may be delivered from the present wicked age, and his
+grace will open my lips to sing the glory of the holy, consubstantial
+Trinity, Father and Son and Holy Spirit; because we and our words are in
+his hand; for it is he who teaches man knowledge. To him be glory to the
+ages. Amen.
+
+3rd Exhortation. To Novice Ascetics.
+------------------------------------
+
+Beloved, if, having renounced life, you have entered among the brothers
+and come to dwell in a coenobitic community of brothers and wish to live
+with them and to serve our Lord Jesus Christ, and you see some of the
+brothers behaving in a disorderly way or talking of things which are not
+pleasing to God, pay no attention to them or their words, and leave them
+to talk to themselves. For people who talk of things that do not please
+God do not fear the Lord but pass their time in indifference; their
+mouth always talks proud things at every moment. You, though, keep God
+before your eyes. For it is written in a Psalm, I *saw the Lord before
+me always, because he is at my right hand, so that I may not be shaken*.
+And let not the dread Serpent teach you to say ‘If the elders themselves
+behave wickedly, what shall I do, who am a youngster?’ But listen to the
+Lord when he says, *Many are called, few are chosen*. Therefore love to
+be saved, that you may be one of the elect. For those who act evilly,
+whether in a coenobitic community or in whatever place, they are the
+sons of the Evil One, they are likened to the tares among the corn.
+Become corn then, that you may be gathered into the Lord’s barns and not
+a tare burned up by unquenchable fire. But neither let us judge anyone,
+because we do not know how he lives in his cell, or what toil he has
+towards God. Nor if we see some one laughing or talking, because we do
+not know how he behaves in his cell, or what toil he has towards God.
+And so it is necessary for each of us to pay attention to himself,
+because each of us will give an account of himself to God.
+
+Pay attention with all your heart to the psalmody and to the reading of
+the divine Scriptures, and drink together the fatness which comes from
+them in your soul, like an infant sucking the breast; for from them you
+may learn the prizes of the virtues, and there will be joy and gladness
+for your heart.
+
+Be meek and obedient and prudent. Meek, so that if you are compelled to
+serve a child, you will follow him and perform the work; keeping silence
+return to your cell, keeping silence with your lips, but praying in your
+heart. Be obedient, that you may preserve the purity of your body in the
+Lord like a precious pearl. Do not beautify yourself by your clothing,
+and do not be conceited because of wealthy parents; for he that boasts,
+let him boast in the Lord. Because all flesh is grass, and all the glory
+of mankind as the flower of the grass. The grass withered, and its
+flower failed; but the word of the Lord endures for ever. Keep your eye
+below, but your soul above. Do not be familiar with a boy; with a woman,
+it is too obvious to mention it. Do not have long conversations with a
+youth; do not associate with drunkards, or the disorderly or buffoons;
+but be all day in fear of God, as he says in the Apostle, *Walk in
+wisdom, making the most of the time, because the days are evil. Do not
+be foolish, but understand the will of the Lord. Do not get drunk with
+wine, for in that is debauchery*. And again, *So that the opponent will
+be routed, having nothing bad to say of you*.
+
+4th Exhortation
+---------------
+
+Beloved, see I am putting before another instruction in the Lord; if you
+keep it, afterwards he will reward you with gladness. If having
+renounced the life of vanity you have entered a coenobitic community of
+numerous brothers in your wish to become a monk, do not let the Enemy
+deceive you to leave the coenobitic community before you have taken the
+holy habit of the monk. Do not do so finally. You will bitterly repent
+of it; but endure, setting good beginnings with all humility.
+
+Do not quail before the temptations that will come against you from the
+Enemy, but endure, that you may earn the beatitude. For it is written,
+*Blessed is the man who endures temptation, because when he has been
+tried he will receive the crown of life, which the Lord has promised to
+those who love him*. You wish not to be mastered by temptation? Cut off
+your every wish. If you think that some action is good, while to your
+superior in the Lord it is judged not to be good, obey him in the Lord;
+for love of contention and following out one’s own idea is a sign of
+disaster. For a beginner who is also disobedient acquires for himself a
+contemptible name. For it says in the Psalm, *Serve the Lord wit fear
+and be glad with him in trembling; accept correction, lest the Lord be
+angered and you perish from the just way*. Moreover one who loves
+justice will not perish; while one who hates correction, damages
+himself. Just as wine and vinegar cannot be put into an earthenware jar,
+so the virtue of the monastic life cannot live alongside lack of
+correction. And let the Apostle persuade you when he says, *What
+agreement is there between Christ and Beliar? Or what in common between
+light and darkness?* But love temperance to the highest degree, that the
+Spirit of God may dwell in you. And you are granted the habit of the
+monastic life, do not then acquiesce in thoughts if they wish to
+separate you from the brotherhood, lest from your youth you learn to be
+a wanderer and unsettled. See that you do not lose the devotion which
+you had on entering, but hold fast to it to the end. Evil speech or
+swearing, let them not be named on your lips, as befits saints; but be
+someone who has humility. In every answer let there be ‘Forgive me’,
+that you may eradicate from yourself the useless manners of the world,
+and having lived a life pleasing to the Lord you will receive praise
+from him. When you come to the monastic life you do not need gold or
+silver or raiment; but having put heaven before everything, according to
+the commandment of our Saviour Jesus Christ, acquire these for yourself:
+faith, self-mastery, endurance and humility and the rest, which God will
+give you out of his goodness. To him be glory to the ages of ages. Amen.
+
+5th Exhortation. To Novice Ascetics.
+------------------------------------
+
+\[O: Against haughtiness.\]
+
+If someone comes to be a monk from an exalted station in life, let him
+guard himself from the demon of haughtiness, lest he fall into the
+spirit of pride and disobedience and harm himself. Beloved, it is no
+shame for, if you are a subject in the Lord, nor if you work at what is
+good with your own hands; for the little distress and tribulation that
+you endure for the Lord becomes for you the cause of eternal life. And
+what more should I say? For like the person who changed a drachma into
+ten thousand talents of gold, so is every distress of the monastic life
+to the coming tribulation, which meets those who do ill. You then bring
+small things, and great ones are given you. Be vigilant then, beloved,
+like a good soldier. Do not neglect the gift which is in you, lest both
+things should come upon you: both to grieve human beings, that is your
+parents according to the flesh, and not to please God. But struggle,
+that those who see you may glorify God at your good way of life. For it
+is written, *Those who fear the Lord will see me and be glad*. And
+again, *There is much peace for those who love your law, and there is no
+stumbling block for them*. And so guard yourself from haughtiness, and
+the Lord will be your portion. To him be glory to the ages. Amen.
+
+6th Exhortation
+---------------
+
+Beloved, if you make good beginnings, so you will also complete your old
+age so as to be well pleasing, and you will be a beacon lighting many on
+the way of the Lord. While if you go from the womb wicked, you will live
+as regards yourself wickedly. Lay a sure foundation then, that your work
+may rise to the heights. Above all, brother, fear God and glorify him
+with your whole heart, that he too may glorify you with his saints. From
+your youth take up the meekest wisdom, not letting go of it until your
+last breath; for it will lead you onto paths of justice, and you will be
+a vessel of election from your youth, and make your old age honoured,
+and you will have praise from God, and men will magnify the Lord in you.
+
+If then you are assigned by the abbot as subordinate of a brother, do
+not allow yourself to say in your thought: I am the child of important
+and distinguished parents, while he is the son of uncultured and poor
+ones, or that he has often been brought out of slavery; how can I be
+subordinate to him? It would be a insult for me to do this. Do not think
+thus, beloved; for you would not be thinking about him with wisdom. For
+one who thinks such things has not yet put off the old man, who is
+perishing according to the desires of deception. While we, beloved,
+because we are dedicated by God to brothers united in soul for service,
+let us endure, so that we may be worthy of the freedom of the just, as
+we consider the Master of all things, who made himself a poor for our
+sakes, though he was rich, that he might make us rich by his poverty.
+
+Beloved, place your neck beneath his yoke, that you may find rest for
+your soul; because it is written, *Every one who is puffed up is unclean
+before the Lord*. To him be glory to the ages of ages. Amen.
+
+7th Exhortation. To Novices.
+----------------------------
+
+\[O: On the manual work of monks\]
+
+And do not be depressed about your manual work. For frequently the
+thought will come to you that ‘You will never be able to master this
+manual work; for you are weak and depressed, and you will never be able
+to endure the misery of this work. For see how your limbs begin to
+suffer from toil; for you have not been used to exertion. But go on,
+travel back to where you came from; for there, it says, if you wish to
+fear God, you may be saved’. You though, as faithful, do not be weakened
+by such thoughts, but endure for the Lord who has called you to his
+kingdom and his joy. For he has said, *Amen, Amen, I say to you, if you
+have faith as a grain of mustard seed, you will say to this mountain,
+‘Be moved’; and it will be moved; and nothing will be impossible for
+you*. Let us then also endure, beloved; for we have not hoped in man who
+is unable to save, but in God who saves those who hope in him. As it is
+written, *Those who trust in the Lord, are as Mount Sion*. And the Holy
+Spirit calls blessed those who hope in the Lord when he says, *Lord, God
+of powers, blessed is the one who hopes in you*.
+
+Hold fast then, beloved of the Lord. If you learned letters, did you not
+endure the drudgery? And if you learned a craft in the world, did you
+not endure the toil? Is it not far more incumbent upon us to endure all
+things for the Lord? For it is written, *You will eat the toils of your
+fruits. Blessed are you, and it will be well with you*. And the Apostle
+encourages us when he says, *Work the good with your own hands, so that
+not only may he that works eat of it, but that he may share with one who
+has need the fruit of his own toils*.
+
+Let there then be eagerness by all of us to be delivered from our sins;
+for if we wish, we may be delivered. For he has said, *Ask and it will
+be given you; every one who asks receives, and who seeks finds, to one
+knocks it will be opened*. For it is he who has given the world the
+inexhaustible treasure of repentance. To him be glory to the ages. Amen.
+
+8th Exhortation
+---------------
+
+About the scandals which occur, we know one who said, *Judge not, and
+you will not be judged; by the judgement with which you judge, you will
+be judged; and by the measure with which you measure, it will be
+measured out to you in turn*. That you may have help in this thought,
+consider that the just Lot dwelt in Sodom, but was not led away with
+their pride and licentiousness; and so he was saved, as it is written,
+*For that just man, living among them day after day, was tormented in
+his just soul by their lawless deeds*. But he adds something when he
+says, *The Lord knows how to deliver the godly from trials, and to keep
+the unjust under punishment until the day of judgement* and so forth. So
+it is not a question of self-mastery and meekness to-day, and
+dissoluteness and pride to-morrow. Of stillness, vigil and humility
+to-day, and temptations, immoderate sleep and disobedience and suchlike
+things to-morrow. Of renunciation of the world, renunciation of earthly
+affairs, renunciation of fatherland and friends and parents according to
+the flesh to-day because of hope in the Lord, and tomorrow let us seek
+country and fatherland and inheritance, to sink ourselves in many evils.
+For Lot’s wife turned back and became a pillar of salt. And so the Lord
+also teaches when he says, *No one who puts his hand to the plough and
+turns back is fit for the kingdom of heaven*. So always keep in mind
+that day on which, when you had put everything aside, you left the world
+for the Lord’s sake, and when you were fired by the fear of God, and
+fervent in spirit for the Lord. And keep the goal until the end, for the
+one who endures to the end will be saved, that you may receive the
+reward of your work with eternal life; because you have approached the
+true God and despised all things that you may gain Christ, to whom be
+glory to the ages. Amen.
+
+9th Exhortation. On obedience.\
+Another title: On perseverance and endurance
+--------------------------------------------
+
+\[*Thwaites*\]
+
+And do not be discouraged about time; for the Foe suggests to some the
+desire for the habit at the wrong moment, so that the brother, unable to
+bear the smoothness of the pleasure, may flee the stadium. But you,
+beloved, as you are keen to please God, persevere; as the Apostle says*,
+If you can become free, make use of it*. Look at the ancient generations
+and see that all the saints acquired the promises through perseverance
+and endurance. Let us encourage ourselves then each day, so that we may
+be found as their fellow heirs in the kingdom of heaven. First, did not
+the patriarch Jacob serve Laban the Syrian in Mesopotamia for fourteen
+years for the sake of Rachel, in the heat of the day and the cold of the
+night? Joseph, the beloved, too likewise was he not a slave in a foreign
+land for many years? For it is written: *And Joseph was seventeen,
+shepherding the sheep with his brothers*. And again it says*: And Joseph
+was thirty when he stood before Pharao*. Moses likewise, the Lord’s
+servant, dwelt as a stranger in the land of Madian for forty years. And
+the sons of Israel after forty years entered the promised land. Likewise
+Daniel, the virtuous man, with the three youths also, who turned the
+furnace to dew through faith, endured slavery and tribulations and
+calumnies in a foreign land, and so they were saved. While we cannot
+endure an insignificant distress. Because we do not believe, endurance
+is far from us. For you have so given yourself to grief, as though you
+had lost someone else’s deposit, as though you had gone to prison. Give
+yourself eagerness in the Lord, and play the man as one to be trusted,
+lest you lose the toils of your soul from much grieving, and feel regret
+at the last. Consider, beloved, those being tested in exile and the
+mines, in bitter slavery and be obedient to your superior in the Lord.
+If you rather consider the slavery, which you endure for the Lord’s
+sake, in human terms, who, if he had ever been dishonoured on the king’s
+behalf, would not rather think of the insult as a cause for pride? But
+time after time you are on the point of saying: This action requires
+toil. Alas for a sinner and unprofitable servant! If we do not choose to
+endure toil for the Lord’s sake, why then have we left the world?
+Beloved, who is worthy and blest to suffer on behalf of him who suffered
+for him? You provide little, beloved, and you gain much; while we need
+endurance, so that, when we have done God’s will, we may obtain his
+promise. For the one who endures to the end is the one who will be
+saved.
+
+10th Exhortation
+----------------
+
+My brother, do not lose heart at the thoughts which attack you; for it
+is the beginning of the contest. Learn from a rain lake, because when it
+rains and the blessing of water is collected in the lake, in the
+beginning the water is troubled; but as time goes on it becomes more
+limpid. So, beloved, do not lose heart, for it is written, *Streams of
+iniquity troubled me*. And in another psalm it says, *For my soul has
+been filled with evils, and my life has drawn near to hell*. And so it
+says, *The Lord is my help, and I shall not fear what man will do to
+me*. Therefore whenever an evil thought enters your mind, cry out with
+tears to the Lord, ‘Lord, be merciful to me, a sinner, and pardon me, O
+lover of mankind. Lord, take to Evil One from us’. For God knows the
+heart, and he knows the thoughts which come from a bad intention; and he
+also knows the ones that attack us from the bitter cruelty of the
+demons. Understand this, that the more you struggle and endure in
+serving the Lord, so much your mind and thoughts become limpid. For our
+Lord Jesus Christ has said, Every branch in me which \[does not\]
+bear&lt;s&gt; fruit, I prune it, that it may bear more fruit. Only want
+to be saved; because the Lord loves and co-operates with those who are
+pressing forward to find salvation. Listen to a parable against base
+thoughts. The grape, when it is cut from the vine and cast into the
+press and trampled down and yields its wine, to begin with the wine
+bubbles up so much as though it were being boiled by a ferocious heat;
+so that open vats, unable to bear the violence, break under the strain;
+so it is with human thoughts, whenever they pass over from this vain
+world and its care to things of heaven. For the demons, unable to bear
+the zeal, trouble the human mind in varied ways, as they wish to
+engineer for it a turbid overthrow; so that &lt;if&gt; they find a ready
+vessel, that is an unfaithful and doubting soul, they will rend it. For
+the demons are ravening wolves, who go round the cells of the monks
+looking for an open door for them, so that when they have got inside
+they may destroy a soul which obeys them. But if they find the door shut
+in their faces, they go away extremely disappointed; I am speaking of a
+soul which is firmly founded on faith.
+
+Do not be a coward then, and do not fear their wickedness; they cannot
+harm you, who have Christ as your helper. For the Apostle says, *For God
+did not give a spirit of cowardice, but rather a spirit of power and
+love and self-discipline*. And again &lt;the&gt; Lord said to his
+disciples, *I saw Satan as lightning falling from heaven. See, I have
+given you authority to trample on snakes and scorpions, and upon every
+power of the foe, and nothing at all will hurt you*. And so, beloved,
+play the man and be strong in God, for his mercy endures for ever. But
+if they bring us the memory of our parents according to the flesh, let
+us say to them, ‘It is written *he lays up treasure, and does not know
+for whom he will gather it*. And again, *The fool and the senseless will
+perish together and leave their wealth to strangers*; so offences are
+for me, money for another. This is no good for me, it is a great evil!
+And so we have not been taught to amass *treasure on earth, where moth
+and rust destroy, and thieves dig through and steal. Where your treasure
+is, there, he says, your heart will be also*. Blessed is God who gives
+us strength against our invisible foes. To him be glory to the ages of
+ages. Amen. 
+
+------------------------------------------------------------------------
+
+All texts and translations on this page are copyright to\
+Archimandrite Ephrem Â©
+
+**This page was last updated on 03 November 2008**
