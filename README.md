@@ -32,3 +32,7 @@ The script that does the conversion is a work in progress. There are some flaws
 in the conversion process.  At some point, once the script has done a good
 enough job, I will just get rid of it and future editing can place directly on
 the markdown files. Pull requests for improvements to the script are welcome.
+
+Contact
+=======
+I can be contacted via my blog, [Parochianus](http://parochianus.wordpress.com/contact/).
