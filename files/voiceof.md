@@ -7,6 +7,8 @@
 VOICE OF THE FATHERS
 ====================
 
+<img src="taj01.gif" width="250" height="232" />
+
 **Our Venerable Fathers
 Theodore the Studite, Athanasios of Athos and John of Sinai**
 

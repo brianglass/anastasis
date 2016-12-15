@@ -140,17 +140,17 @@ Canon of the Holy Fathers. Tone 6. Its Acrostic is:
 I sing the first assembly of Pastors.**
 Ode 1. Marching on foot in the deep.**
 
-praise the all-holy Council of the holy Fathers as I cry out: O Christ, I implore you, guard closely in me its all-holy revelation.
+<img src="dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />praise the all-holy Council of the holy Fathers as I cry out: O Christ, I implore you, guard closely in me its all-holy revelation.
 
-hining like lightning the godbearing Fathers, having come together today, confessed you clearly, O Christ, as alike without beginning and consubstantial with the Father.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />hining like lightning the godbearing Fathers, having come together today, confessed you clearly, O Christ, as alike without beginning and consubstantial with the Father.
 
-llustrious are the groomsmen of your bride the Church, O Master, who wisely laid down the definition of the faith and adorned her as with fair adornment of gold.
+<img src="dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />llustrious are the groomsmen of your bride the Church, O Master, who wisely laid down the definition of the faith and adorned her as with fair adornment of gold.
 
 ****
 
 Theotokion.
 
-ear her own Son and God the holy Queen stands clothed in many colours with divine glory, interceding for the salvation of our souls.
+<img src="dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ear her own Son and God the holy Queen stands clothed in many colours with divine glory, interceding for the salvation of our souls.
 
 ****
 
@@ -204,17 +204,17 @@ Intercede unceasingly, pure Lady, with him who came forth from your womb, that t
 
 Of the Fathers. None is holy.
 
-rafting impiously flux and change and separation onto the divine begetting, the wicked and demented Arius is cut off by the separating sword of the Fathers.
+<img src="dropcap-g.gif" alt="dropcap-g.gif (1071 bytes)" width="36" height="44" />rafting impiously flux and change and separation onto the divine begetting, the wicked and demented Arius is cut off by the separating sword of the Fathers.
 
-he holy heralds of God, all marching to battle like godly Abraham of old, mightily destroyed your raving foes, O Good one, by your sovereign power.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he holy heralds of God, all marching to battle like godly Abraham of old, mightily destroyed your raving foes, O Good one, by your sovereign power.
 
-olily the first, applauded gathering of your Priests, O Saviour, proclaimed that you were begotten consubstantial with the Father who is without beginning and maker of all.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />olily the first, applauded gathering of your Priests, O Saviour, proclaimed that you were begotten consubstantial with the Father who is without beginning and maker of all.
 
 ****
 
 Theotokion.
 
-qual no word, no tongue of mortals to praise you worthily, O Virgin; for from you, All-pure, Christ the giver of life was well pleased to become incarnate without seed.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />qual no word, no tongue of mortals to praise you worthily, O Virgin; for from you, All-pure, Christ the giver of life was well pleased to become incarnate without seed.
 
 ****
 
@@ -291,17 +291,17 @@ The Virgin gave birth, and did not know a mother’s pangs; but she is Mother, y
 
 Of the Fathers. Christ is my power.
 
-rom the Church the ill-famed Arius, who corrupted the orthodox Faith with his senseless mind, has been exiled as a rotten limb by the votes of the Fathers.
+<img src="dropcap-f.gif" alt="dropcap-f.gif (1036 bytes)" width="36" height="44" />rom the Church the ill-famed Arius, who corrupted the orthodox Faith with his senseless mind, has been exiled as a rotten limb by the votes of the Fathers.
 
-n your behalf, O Master, the choir of Fathers struggled and grievously wounded your enemies; and they glorified you as sharing the same nature as the Father and the Spirit.
+<img src="dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />n your behalf, O Master, the choir of Fathers struggled and grievously wounded your enemies; and they glorified you as sharing the same nature as the Father and the Spirit.
 
-eally God and man, you have become the Mediator between God and men; therefore, O Christ, the Inspired Fathers, acknowledging you the Son to be one, proclaimed you to exist in two natures.
+<img src="dropcap-r.gif" alt="dropcap-r.gif (1080 bytes)" width="34" height="43" />eally God and man, you have become the Mediator between God and men; therefore, O Christ, the Inspired Fathers, acknowledging you the Son to be one, proclaimed you to exist in two natures.
 
 ****
 
 Theotokion.
 
-ampling a plant showed me to be a corpse; for the tree of life which appeared from you, All-pure one, raised me and established me as heir to the delight of Paradise.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ampling a plant showed me to be a corpse; for the tree of life which appeared from you, All-pure one, raised me and established me as heir to the delight of Paradise.
 
 ****
 
@@ -353,17 +353,17 @@ Mother of God, we praise you as Virgin after bearing child; for you bore for the
 
 Of the Fathers. Shine with your divine radiance.
 
-ruly beautiful are the feet of those who preach you the peace which surpasses every mind, of all Angels and of mortals, O Christ, and by abundance of peace unites the world.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />ruly beautiful are the feet of those who preach you the peace which surpasses every mind, of all Angels and of mortals, O Christ, and by abundance of peace unites the world.
 
-s Wisdom and power of the Father, as hypostatic Word, they proclaimed you, O Christ, the godlike Teachers who had come together, sealed with the law of the all-holy priesthood.
+<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />s Wisdom and power of the Father, as hypostatic Word, they proclaimed you, O Christ, the godlike Teachers who had come together, sealed with the law of the all-holy priesthood.
 
-treams of pure waters of Christ’s teaching you gave the Church to drink, and now you take delight by the waters of rest, rejoicing eternally.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />treams of pure waters of Christ’s teaching you gave the Church to drink, and now you take delight by the waters of rest, rejoicing eternally.
 
 ****
 
 Theotokion.
 
-ince we know you, O all pure, to be the shining lamp which has shed on all Christ the Sun of righteousness, we call upon your ever-present protection, only pure Mother of God.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ince we know you, O all pure, to be the shining lamp which has shed on all Christ the Sun of righteousness, we call upon your ever-present protection, only pure Mother of God.
 
 ****
 
@@ -415,17 +415,17 @@ Fittingly we glorify you as Bush unburned, mountain and living ladder and heaven
 
 Of the Fathers. Watching life’s sea.
 
-scape the mystery of providence he could not, the sower of tares, who was called by the surname Lunacy; for having rivalled Judas, like him the wholly evil one was split asunder.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />scape the mystery of providence he could not, the sower of tares, who was called by the surname Lunacy; for having rivalled Judas, like him the wholly evil one was split asunder.
 
-aster, the revered, godly assembly of the Fathers proclaimed you as the only-begotten brightness shining from the Father’s essence, and as the Son begotten before all things.
+<img src="dropcap-m.gif" alt="dropcap-m.gif (1201 bytes)" width="46" height="50" />aster, the revered, godly assembly of the Fathers proclaimed you as the only-begotten brightness shining from the Father’s essence, and as the Son begotten before all things.
 
-urst open was the belly, the source which poured out the foul and undrinkable water of impious heresies, by the ploughshare of the intercession of the inspired Priests.
+<img src="dropcap-b.gif" alt="dropcap-b.gif (1094 bytes)" width="46" height="50" />urst open was the belly, the source which poured out the foul and undrinkable water of impious heresies, by the ploughshare of the intercession of the inspired Priests.
 
 ****
 
 Theotokion.
 
-ampstand, ark, table and jar, so Moses, greatest of the prophets, wrote of you of old, in symbols signifying the incarnation from you of the Most High, O Virgin Mother.
+<img src="dropcap-l.gif" alt="dropcap-l.gif (1018 bytes)" width="46" height="50" />ampstand, ark, table and jar, so Moses, greatest of the prophets, wrote of you of old, in symbols signifying the incarnation from you of the Most High, O Virgin Mother.
 
 ****
 
@@ -521,17 +521,17 @@ You were born of a Virgin, whom you made Mother of God; blessed are you the God 
 
 Of the Fathers. An Angel made the furnace.
 
-ou defeated Arius, whose surname is Frenzy, who raved and spoke the grossest impieties of God; for he refused to cry out to the Son: Blessed are you, the God of our fathers.
+<img src="dropcap-y.gif" alt="dropcap-y.gif (1057 bytes)" width="46" height="50" />ou defeated Arius, whose surname is Frenzy, who raved and spoke the grossest impieties of God; for he refused to cry out to the Son: Blessed are you, the God of our fathers.
 
-inspired ones, imitating the son of thunder, with your fiery mouths you teach all to cry to the Word without beginning like the Father and equal in majesty: Blessed are you, the God of our fathers.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> inspired ones, imitating the son of thunder, with your fiery mouths you teach all to cry to the Word without beginning like the Father and equal in majesty: Blessed are you, the God of our fathers.
 
-lying as though on wings you came, blessed of God, to help the Word; for the Holy Spirit gathered you from the ends of the world to cry out: Blessed are you, the God of our fathers.
+<img src="dropcap-f.gif" alt="dropcap-f.gif (1036 bytes)" width="36" height="44" />lying as though on wings you came, blessed of God, to help the Word; for the Holy Spirit gathered you from the ends of the world to cry out: Blessed are you, the God of our fathers.
 
 ****
 
 Theotokion.
 
-refiguring your giving birth, the furnace did not burn the three youths; for the divine fire without burning you dwelt in you, and enlightened all to cry: Blessed are you who bore God in the flesh.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />refiguring your giving birth, the furnace did not burn the three youths; for the divine fire without burning you dwelt in you, and enlightened all to cry: Blessed are you who bore God in the flesh.
 
 ****
 
@@ -583,17 +583,17 @@ You were revealed, pure Mother of God, as higher than the Cherubim, for you carr
 
 Of the Fathers. From the flame.
 
-flame with the rays of your Godhead your goodly Shepherds confessed you to be creator of all things and Lord, whom we highly exalt to all the ages.
+<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />flame with the rays of your Godhead your goodly Shepherds confessed you to be creator of all things and Lord, whom we highly exalt to all the ages.
 
-ssembled with godly mind, the all-honoured choir of Shepherds now acknowledging the uncreated Trinity as God, teaches all to cry out: We highly exalt you to all the ages.
+<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />ssembled with godly mind, the all-honoured choir of Shepherds now acknowledging the uncreated Trinity as God, teaches all to cry out: We highly exalt you to all the ages.
 
-hepherds most admirable, the Hierarchs enlighten Christ’s Church, each in his different place making her shine and highly exalting her to all the ages.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />hepherds most admirable, the Hierarchs enlighten Christ’s Church, each in his different place making her shine and highly exalting her to all the ages.
 
 ****
 
 Theotokion.
 
-he Prophets in images all mystically foresaw you bearing the Word; for having taken flesh from you, he came forth dual in natures, whom we highly exalt to all the ages.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he Prophets in images all mystically foresaw you bearing the Word; for having taken flesh from you, he came forth dual in natures, whom we highly exalt to all the ages.
 
 ****
 
@@ -645,17 +645,17 @@ Hail, Mother of God, Mother of Christ God; as to-day you saw him whom you bore f
 
 Of the Fathers. It is impossible.
 
-he Word before the ages, like the Father without beginning and equal in majesty, having found you to be allies, assembled you, arming you with the mighty power of the Spirit; whom now, All-hallowed ones, with the heavenly hosts you ever glorify.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he Word before the ages, like the Father without beginning and equal in majesty, having found you to be allies, assembled you, arming you with the mighty power of the Spirit; whom now, All-hallowed ones, with the heavenly hosts you ever glorify.
 
-sacred ministers, as physicians of souls and bodies you halted the spread of the foul heresy of Arius, sacredly promulgating for all the Symbol of the faith; as we now hold fast to it we ever glorify your memory.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> sacred ministers, as physicians of souls and bodies you halted the spread of the foul heresy of Arius, sacredly promulgating for all the Symbol of the faith; as we now hold fast to it we ever glorify your memory.
 
-escue my soul, O Christ, as you are light immaculate, from the mist of the passions, at the prayers of your Ministers, O Master, who have now proclaimed you to be without beginning, uncreated, creator of all things and God without beginning together with the Father.
+<img src="dropcap-r.gif" alt="dropcap-r.gif (1080 bytes)" width="34" height="43" />escue my soul, O Christ, as you are light immaculate, from the mist of the passions, at the prayers of your Ministers, O Master, who have now proclaimed you to be without beginning, uncreated, creator of all things and God without beginning together with the Father.
 
 ****
 
 Theotokion.
 
-ince life, clad in flesh, has shone forth for all from you, O Sovereign Lady, Mother of God, and clearly abolished the gloom of death, resurrection has been granted to the dead through your ineffable and inexpressible child-bearing.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ince life, clad in flesh, has shone forth for all from you, O Sovereign Lady, Mother of God, and clearly abolished the gloom of death, resurrection has been granted to the dead through your ineffable and inexpressible child-bearing.
 
 ****
 

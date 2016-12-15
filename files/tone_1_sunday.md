@@ -8,7 +8,9 @@ TONE ONE
 [Tone 1](tone_1.md)
  
 
- 
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; Translating
+Liturgy&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
+&lt;p&gt;&lt;font size=">  [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)</span>
 
 All texts and translations on this page are copyright to
 Archimandrite Ephrem ©

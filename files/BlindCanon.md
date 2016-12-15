@@ -242,25 +242,25 @@ For he that is mighty has done great things for you, showing you to be a pure vi
 
 Troparia.
 
-oined to the gallows of the Cross, Christ Saviour, you triumphed over all the hostile forces of the foe, and abolished the former curse; therefore as is right we magnify you.
+<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />oined to the gallows of the Cross, Christ Saviour, you triumphed over all the hostile forces of the foe, and abolished the former curse; therefore as is right we magnify you.
 
-n seeing you below with your soul, O Word, Hell groaned aloud and in fear released all the dead, who recognised the might of your authority; with whom as is right we magnify you.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />n seeing you below with your soul, O Word, Hell groaned aloud and in fear released all the dead, who recognised the might of your authority; with whom as is right we magnify you.
 
-eeing him accomplishing signs and dread wonders the people of the Hebrews in jealousy slew him who plundered Hell by his Resurrection, and as powerful raised all with him.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />eeing him accomplishing signs and dread wonders the people of the Hebrews in jealousy slew him who plundered Hell by his Resurrection, and as powerful raised all with him.
 
-ven as you said, you rose from the dead, O Giver of Life, and appeared to the holy Disciples after your Rising, you who did signs and gave sight to the blind; with them to the ages we magnify you.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as you said, you rose from the dead, O Giver of Life, and appeared to the holy Disciples after your Rising, you who did signs and gave sight to the blind; with them to the ages we magnify you.
 
 ****
 
 Triadikon.
 
-raise I give to Light, the Father, glory to Light, the Son, a hymn to Light, the ‘right Spirit’: one undivided Light, recognised in three Persons, God, King of all creation.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />raise I give to Light, the Father, glory to Light, the Son, a hymn to Light, the ‘right Spirit’: one undivided Light, recognised in three Persons, God, King of all creation.
 
 ****
 
 Theotokion.
 
-oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
 
 All texts and translations on this page are copyright to
 Archimandrite Ephrem ©

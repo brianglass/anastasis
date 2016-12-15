@@ -320,7 +320,7 @@ Canon of the Mother of God. Tone 1.
 The Acrostic in the first Troparia: T h e o p h a n.
 Ode 1. The same Irmos.
 
-he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
 
 Having seen your Son and God risen from the dead, you rejoice with the Apostles, O holy and full of grace, and as cause of the joy of all, O all-pure Mother of God, you first received the greeting ‘Rejoice’.
 
@@ -394,7 +394,7 @@ Yesterday I was buried with You O Christ, to-day I rise with You as You arise: y
 
 Of the Mother of God. The same Irmos.
 
-oly one, to-day I return to life undefiled through the goodness of Him who was born from you and whose brightness shines to the ends of the earth.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly one, to-day I return to life undefiled through the goodness of Him who was born from you and whose brightness shines to the ends of the earth.
 
 Seeing the God, whom you conceived in the flesh, rising from the dead as He said, O holy one, dance; and magnify Him as God, O immaculate.
 
@@ -485,7 +485,7 @@ God’s forebear David dancing leaped before the Ark, mere shadow : but seeing t
 
 Of the Mother of God. Same Irmos.
 
-ven He who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death He has destroyed Adam’s death to-day, and shed light on all with the divine beams of his Resurrection.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven He who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death He has destroyed Adam’s death to-day, and shed light on all with the divine beams of his Resurrection.
 
 Seeing Christ, whom your bore, shining in beauty from the dead, O Pure one, fair and lovely and spotless among women, as you rejoice to-day with the Apostles at the salvation of all, glorify Him.
 
@@ -555,7 +555,7 @@ With torches in our hands let us go forth to meet Christ as he comes from the gr
 
 Of the Mother of God. Same Irmos.
 
-pure Mother of God, the assembly of the devout is enlightened by the divine, life-giving rays of the Resurrection of your Son, and is filled with joy.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />pure Mother of God, the assembly of the devout is enlightened by the divine, life-giving rays of the Resurrection of your Son, and is filled with joy.
 
 You did not open the gates of the Virgin, when You took flesh; You did not break the seals of the grave, O King of creation. Therefore when she saw You risen, she rejoiced.
 
@@ -625,7 +625,7 @@ O my Saviour, the living, unslain Victim, as God offering yourself willingly to 
 
 Of the Mother of God. The same Irmos.
 
-risoner of old of death and corruption, the human race has been brought back through Him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />risoner of old of death and corruption, the human race has been brought back through Him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
 
 He who went down, O Holy one, into your womb, dwelt there and took flesh beyond understanding, went down into the lowest parts of the earth and raised Adam with Himself when He rose from the tomb.
 
@@ -724,7 +724,7 @@ How truly holy and all-festive is this saving night, how full of light, herald o
 
 Of the Mother of God. The same Irmos.
 
-aving slain death, your Son, O all-pure one, has to-day given to all life that endures to ages of ages: the only blessed and highly exalted God of our fathers.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />aving slain death, your Son, O all-pure one, has to-day given to all life that endures to ages of ages: the only blessed and highly exalted God of our fathers.
 
 He who reigns over all creation becoming man dwelt in your womb, O full of God’s grace, and having endured the cross and death He has risen as God and raised us with him, for He is all powerful.
 
@@ -796,7 +796,7 @@ Almighty Father, Word and Spirit, nature united in three Persons, beyond all bei
 
 Of the Mother of God. The same Irmos.
 
-s the creator came into the world through you, O Virgin Mother of God, He tore open the womb of Hell and gave us mortals the Resurrection; therefore we bless Him to the ages.
+<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />s the creator came into the world through you, O Virgin Mother of God, He tore open the womb of Hell and gave us mortals the Resurrection; therefore we bless Him to the ages.
 
 Your Son, O Virgin, having overthrown the might of death, in his resurrection, as a mighty God, has exalted us with Himself and deified us; therefore we praise Him to the ages.
 
@@ -880,7 +880,7 @@ O great and most sacred Pascha, Christ; O Wisdom and Word and Power of God! Gran
 
 Of the Mother of God. The same Irmos.
 
-ow in harmony, O Virgin, we faithful call you blest: Hail gate of the Lord: Hail living city: Hail through whom to-day the light of the Resurrection from the dead of Him who was born from you has shone for us.
+<img src="dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ow in harmony, O Virgin, we faithful call you blest: Hail gate of the Lord: Hail living city: Hail through whom to-day the light of the Resurrection from the dead of Him who was born from you has shone for us.
 
 Rejoice, be glad, divine gate of the light; for Jesus who set in the tomb has dawned shining more brightly than the sun, and shedding his rays on all the faithful, O Sovereign Lady full of God’s grace.
 
@@ -910,23 +910,23 @@ Of the Samaritan Woman. The Irmos.
 
 Troparia.
 
-esus the life of all was seen hanged willingly on a Tree; and seeing it the earth was shaken, and many bodies of the Saints that slept visibly arose, and Hell’s prison was shaken.
+<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />esus the life of all was seen hanged willingly on a Tree; and seeing it the earth was shaken, and many bodies of the Saints that slept visibly arose, and Hell’s prison was shaken.
 
-ut of the tomb, fair as a bridegroom from his chamber, you came, having abolished the tyranny of death, and smashed the bolts of Hell by your divine power, and illumined the world by the spiritual light of your Rising.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />ut of the tomb, fair as a bridegroom from his chamber, you came, having abolished the tyranny of death, and smashed the bolts of Hell by your divine power, and illumined the world by the spiritual light of your Rising.
 
-piritual choirs now let us all establish and let us cry: The Lord has risen; let the earth rejoice and the heavens be glad, let the clouds rain down showers of justice for us who radiantly celebrate and sing Christ’s praise.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />piritual choirs now let us all establish and let us cry: The Lord has risen; let the earth rejoice and the heavens be glad, let the clouds rain down showers of justice for us who radiantly celebrate and sing Christ’s praise.
 
-ven as he poured out teachings richly, the Lord, source of blessings, life of all living, cried out to the woman, ‘Grant me water to drink, that I may give you water which dries up the sources of your sins’.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as he poured out teachings richly, the Lord, source of blessings, life of all living, cried out to the woman, ‘Grant me water to drink, that I may give you water which dries up the sources of your sins’.
 
 Glory.
 
-ure single light, yet without parts, is the triple-sunned unity; the Father who has no beginning, Son and Spirit, one Godhead, life and maker of all. Let us the faithful, with the Bodiless ones, praise the Godhead, as we chant thrice-holy songs.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />ure single light, yet without parts, is the triple-sunned unity; the Father who has no beginning, Son and Spirit, one Godhead, life and maker of all. Let us the faithful, with the Bodiless ones, praise the Godhead, as we chant thrice-holy songs.
 
 Both now.
 
 **Theotokion.**
 
-aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
 
 ****
 

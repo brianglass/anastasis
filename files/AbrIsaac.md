@@ -17,6 +17,8 @@ The text is translated from the critical edition by Mercati. I have, for the mom
 
 The whole of the Greek text is also found among the (inauthentic) sermons of St John Chrysostom.
 
+<img src="abraham03.jpg" alt="abraham03.jpg (16990 bytes)" width="158" height="171" />
+
 **Sermon of our Venerable Father Ephrem**
 
 > 1.  God banished

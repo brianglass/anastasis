@@ -5,6 +5,8 @@
 
 **SONGS OF THE FATHERS**
 
+<img src="damkos05.gif" width="200" height="304" />
+
 **This page will contain translations of some of the hymns of our Orthodox tradition, hymns which are one of the principal sources of our theology.**
 
 **Abbot Gregorios of Docheiariou on Mount Athos is fond of saying:**

@@ -751,6 +751,8 @@ Glory to you, holy Trinity, our God, to the ages of ages. Amen.
 
 When the Table has been wiped with the Antimensia, these are laid aside again by the Priests. Then at the four corners of the Table the four cloths with the icons, or the names, of the four Evangelists are glued with wax-mastic, like this:
 
+<img src="Image1.gif" width="365" height="245" />
+
 5
 -
 
@@ -798,6 +800,8 @@ Judge me, Lord, for I have walked in my innocence; and since I hope in the Lord 
 ****
 
 After censing, the Bishop, carrying a reed to the tip of which has been bound a sponge dipped in holy Chrism, draws the monogram of Christ
+
+<img src="Image2.gif" width="46" height="62" />
 
 ****
 

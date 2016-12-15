@@ -7,6 +7,8 @@ MONTH OF JANUARY
 
 1. The Circumcision according to the flesh of Our Lord Jesus Christ; and commemoration of our Father among the Saints Basil the Great, archbishop of Caesarea in Cappadocia.
 
+<img src="BasilCaes01.jpg" alt="BasilCaes01.jpg (5992 bytes)" width="132" height="175" />
+
 Since the law of Moses lays down that if a woman gives birth to a male child it shall be circumcised in the flesh of its foreskin on the eighth day (Lev. 12:2-3), for this reason our Saviour on the present day, which is the eighth from his Nativity, accepted the Circumcision prescribed by the law, and received, in accordance with the Angel’s command, the name which is above every name, JESUS, that is to say, Saviour (Matt. 1:21, Lk. 1:31 and 2:21). As we celebrate our Lord’s name day today, from it we begin the New Year from his incarnation.
 
 Basil the Great was born towards the end of the year 329 in Caesarea of Cappadocia of a family distinguished both for its culture and sanctity. His parents were called Basil and Emilia. He studied in Constantinople under the rhetorician Livanios and later in Athens, where he became the friend of Gregory Nazianzen. He returned to Caesarea, but soon left for the hesychasteria in the district of Pontus, where his mother and his sister Makrina were leading the ascetic life. It was then that he wrote his ascetic discourses. Around 370, on the death of the bishop of his home country, he was chosen to succeed to the throne and entrusted with the Church of Christ, which he shepherded for eight years, and became a martyr by intent, reckoning nothing to the threats of the Arian emperor Valens, and of Modestos, prefect of the East. He departed to the Lord on January 1st 379. His wisdom and great learning, which abound in his writings, through which he taught about God and made clear the nature of beings, and adorned the morals of mankind, as well as the magnificence and grandeur of his style have conferred on him the titles of ‘Revealer of Heaven’ and ‘Great’.
@@ -123,6 +125,8 @@ Kontakion. Tone 4. Today you have appeared.
 Today the Lord has come to the streams of Jordan, and cries aloud to John: Do not be afraid to baptise me; for I have come to save Adam the First-formed.
 
 **6. The holy Theophany of our Lord and God and Saviour, Jesus Christ.**
+
+<img src="BAPT02C.gif" alt="BAPT02C.gif (82498 bytes)" width="267" height="219" />
 
 Near the beginning of Jesus’ thirtieth year, John the Forerunner, who was about the same age (being some six months older than Jesus) and who had lived in the desert since boyhood, received a command from God and came into the country round the Jordan, preaching a baptism of repentance for the forgiveness of sins. Then Jesus, coming from Galilee to the Jordan, sought and received baptism, the Master from the slave, at which these supernatural wonders occurred. The heavens were opened; the Spirit came down on the baptised in the form of a dove; and a voice was heard from heaven bearing witness that this is the beloved Son of God, who was then being baptised there as a man (Matt. 3, Lk. 1:26.80 and 3:1-23). From all this was revealed the Divinity of Jesus and the great mystery of the Trinity; and for this reason the present feast is named Theophany, that is the Appearing of God among men. From this august day is dated Christian Baptism; from this day the saving preaching of the Kingdom of heaven began.
 
@@ -465,6 +469,8 @@ As we who honour you with love, Xeni, celebrate the memory of your strange way o
 
 25. Of our Father among the Saints Gregory, Archbishop of Constantinople, the Theologian.
 
+<img src="Greg-Theol.jpg" alt="Greg-Theol.jpg (93302 bytes)" width="177" height="226" />
+
 This great Father and Teacher of the Church was born in Areianzos, a village of Cappadocia Secunda, not far from Nazianzus. His father, who was called Gregory, later became bishop of Nazianzus. His mother was Nonna. He was educated to begin with at Caesarea in Palestine, after this in Alexandria and finally in Athens, where he became the fast friend of Basil the Great, with whom he practised the ascetic life and lived with him for some time in the hermitages of Pontus. He was ordained as presbyter of the church of Nazianzus by his own father, while by Basil the Great he was appointed bishop of Sasima, or Zasima, which was subject to the bishop of Caesarea. In about 378 he left to assist the Church of Constantinople, which had already been troubled for forty years by the Arians, and when through his very wise sermons and many toils he had freed it from the outrage of heresies, he was elected its bishop by the second Ecumenical Synod that had then been assembled there, at which he was conspicuous through his theological doctrines. He governed the church there until 382, then, after delivering his Syntaktirion, that is his farewell address, before the 150 bishops and the Emperor himself, he returned to Nazianzus.
 
 ****
@@ -516,6 +522,8 @@ Kontakion. Tone 1. The angelic choir.
 The holy Church was mystically made glad by the Translation of your holy relics. And having concealed them like very precious gold, at your prayers, John Chrysostom, they unceasingly grant the grace of healings to those who sing your praise.
 
 28. Of our venerable Father Ephrem the Syrian.
+
+<img src="Eph-Syr.gif" alt="Eph-Syr.gif (26843 bytes)" width="139" height="167" />
 
 He was from Nisibis in Mesopotamia, son of a farmer by trade. After the first years of his youth he practised the extreme of the monastic life and became a most holy hermit. Later he was ordained deacon of the Church of Edessa. His God-inspired zeal established him as a most eloquent orator. He wrote many remarkable works in Syriac, almost all of which were translated into Greek while he still living for the instruction of the faithful and the defence of the truth. And so, having passed a life pleasing to God, he fell asleep in peace in the year 379.
 

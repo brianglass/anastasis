@@ -119,7 +119,7 @@ The Acrostic in the first Troparia: **Theophan.** ****
 
 Ode 1. The same Irmos.
 
-he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out today from the tomb, and enlightened the world.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="49" />he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out today from the tomb, and enlightened the world.
 
 Having seen your Son and God risen from the dead, rejoice with the Apostles, O holy and full of grace, and as cause of the joy of all, all-pure mother of God, you first received the greeting ‘Rejoice’.
 
@@ -180,6 +180,10 @@ Yesterday I was buried with you O Christ, today I rise with you as you arise: ye
 ****
 
 Of the Mother of God. The same Irmos.
+
+****
+
+<img src="dropcap-h.gif" alt="dropcap-h.gif (995 bytes)" width="29" height="49" />
 
 oly one, today I return to life undefiled, through the goodness of the One born from you and whose brightness shines to all the ends of the earth.
 
@@ -257,6 +261,8 @@ God’s forebear David dancing leaped before the Ark, mere shadow; but seeing th
 
 Of the Mother of God. Same Irmos.
 
+<img src="dropcap-e.gif" alt="dropcap-e.gif (995 bytes)" width="29" height="49" />
+
 ven he who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death he has today destroyed the death that came through him, and shed light on all with the divine beams of his Resurrection.
 
 Seeing Christ, whom you bore, shining in beauty from the dead, O Pure One, fair and lovely, and spotless among women, as you rejoice to-day with the Apostles at the salvation of all, glorify him.
@@ -316,6 +322,8 @@ With torches in our hands let us go forth to meet Christ as he comes from the gr
 ********
 
 Of the Mother of God. Same Irmos.
+
+<img src="dropcap-o.gif" alt="dropcap-o.gif (995 bytes)" width="29" height="49" />
 
 immaculate Mother of God, the assembly of the devout is enlightened by the divine and life-giving rays of your Son’s resurrection, and is filled with joy.
 
@@ -377,7 +385,7 @@ O my Saviour, the living, unslain Victim, as God offering yourself willingly to 
 
 **Of the Mother of God. The same Irmos.**
 
-risoner of old of death and corruption, the human race has been brought back through him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
+**<img src="dropcap-p.gif" alt="dropcap-p.gif (995 bytes)" width="29" height="49" />**risoner of old of death and corruption, the human race has been brought back through him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
 
 He who went down into your womb, O pure Maiden, dwelt there and took flesh beyond understanding, went down into the lowest parts of the earth and raised Adam with himself when he rose from the tomb.
 
@@ -455,6 +463,8 @@ How truly holy and all-festive is this saving night, how full of light, herald o
 
 Of the Mother of God. The same Irmos.
 
+<img src="dropcap-h.gif" alt="dropcap-h.gif (995 bytes)" width="29" height="49" />
+
 aving slain death, your Son today, All-blameless one, has given to all mortals life that endures to ages of ages, he the only blessed and highly exalted God of our fathers.
 
 He who reigns over all creation, becoming man, dwelt in your womb, O full of God’s grace, and having endured Cross and death, he has risen as God and raised us with him, for he is all powerful.
@@ -514,6 +524,8 @@ Almighty Father, Word and Spirit, nature united in three Persons, beyond all bei
 ****
 
 Of the Mother of God. The same Irmos.
+
+<img src="dropcap-a.gif" alt="dropcap-a.gif (995 bytes)" width="29" height="49" />
 
 s the Creator came into the world through you, Virgin Mother of God, tearing open the belly of Hell, he granted us mortals the Resurrection; therefore we bless him to the ages.
 
@@ -596,6 +608,8 @@ O great and most sacred Pascha, Christ; O Wisdom and Word and Power of God! Gran
 ****
 
 Of the Mother of God. The same Irmos.
+
+<img src="dropcap-n.gif" alt="dropcap-n.gif (995 bytes)" width="29" height="49" />
 
 ow in harmony, O Virgin, we faithful call you blessed. Hail, gate of the Lord! Hail, living city! Hail, through whom today the light of the Resurrection from the dead of him who was born from you has shone for us!
 

@@ -103,11 +103,11 @@ Your Resurrection, O Christ Saviour, Angels sing in heavens; grant that we too w
 
 In Alphabetical Order.
 
-uelling the gates of brass and smashing the bars of Hell, as all-powerful God, you raised the fallen human race; therefore we too in hymns cry out: Lord, who rose from the dead, glory to you!
+<img src="dropcap-q.gif" alt="dropcap-q.gif (1120 bytes)" width="34" height="43" />uelling the gates of brass and smashing the bars of Hell, as all-powerful God, you raised the fallen human race; therefore we too in hymns cry out: Lord, who rose from the dead, glory to you!
 
-eady to set us upright from the ancient fall, Christ was nailed to a Cross and placed in a grave. The Myrrhbearing women sought him with tears and lamenting said: Alas, Saviour of all! How did you condescend to dwell in a grave? But while you dwelt there as you willed, how were you stolen? How were you been moved? What place hid your life-bearing Body? But as you promised, Master, appear and make the mourning of our tears cease. As they lamented an Angel cried aloud to them: Cease your lament; say to the Apostles that the Lord has risen, granting the world pardon and his great mercy.
+<img src="dropcap-r.gif" alt="dropcap-r.gif (1080 bytes)" width="34" height="43" />eady to set us upright from the ancient fall, Christ was nailed to a Cross and placed in a grave. The Myrrhbearing women sought him with tears and lamenting said: Alas, Saviour of all! How did you condescend to dwell in a grave? But while you dwelt there as you willed, how were you stolen? How were you been moved? What place hid your life-bearing Body? But as you promised, Master, appear and make the mourning of our tears cease. As they lamented an Angel cried aloud to them: Cease your lament; say to the Apostles that the Lord has risen, granting the world pardon and his great mercy.
 
-o as you wished, O Christ, you were crucified and plundered death by your burial; and on the third day you rose as God with glory, granting the world life without end and your great mercy.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />o as you wished, O Christ, you were crucified and plundered death by your burial; and on the third day you rose as God with glory, granting the world life without end and your great mercy.
 
 Glory.
 

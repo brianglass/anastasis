@@ -8,6 +8,8 @@ SECOND SUNDAY OF MATTHEW
 ALL SAINTS OF THE HOLY MOUNTAIN OF ATHOS
 ========================================
 
+<img src="DOCH.gif" width="374" height="450" />
+
 INTRODUCTION
 ------------
 

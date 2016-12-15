@@ -15,6 +15,8 @@
 SAINT EPHREM THE SYRIAN
 =======================
 
+<img src="Eph-Syr.gif" width="200" height="241" />
+
 **Icon of Saint Ephrem the Syrian**
 
 ASCETICAL AND OTHER WRITINGS

@@ -14,7 +14,11 @@ TRANSLATING LITURGY
 
 <span style="mso-bidi-font-size: 10.0pt">The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.</span>
 
- 
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; Translating
+Liturgy&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
+&lt;p&gt;&lt;font size="> </span>
+
+ [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
 
 All texts and translations on this page are copyright to
 Archimandrite Ephrem ©

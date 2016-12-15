@@ -14,6 +14,8 @@ to the Church’s thanksgiving.**
 
 It is in PDF format, for which Adobe Acrobat Reader is required. This may be downloaded freely by following the hyperlink below:
 
+[<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
+
 ****
 
 [LITURGY OF ST JOHN CHRYSOSTOM](LIT-ENGF%20WWW.pdf)

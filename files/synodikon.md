@@ -23,6 +23,8 @@ mso-bidi-font-weight:bold;mso-bidi-font-style:italic">The translation is from on
 TRANSLATION
 -----------
 
+<img src="Hdr01.gif" width="750" height="184" />
+
 <span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;
 color:red">A yearly thanksgiving is due to God on account of that day when we recovered the Church of God, with the demonstration of the dogmas of true religion and the overthrowing of the blasphemies of wickedness. </span>
 

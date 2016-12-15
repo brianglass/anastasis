@@ -9,7 +9,7 @@ THE DIVINE LITURGY
 
 Because the text of this file with all its footnotes and the diagram of the arrangement of the portions on the Diskos is somewhat complex, I have decided to publish it as in PDF format, for which Adobe Acrobat Reader is needed. This can be downloaded free from Adobe:
 
- 
+ [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
 
 Click on the hyperlink below to read the PDF file
 

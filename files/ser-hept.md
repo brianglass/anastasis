@@ -9,6 +9,8 @@ This sermon is the second of the two short pieces which follow the two *On the F
 
 The arrangement of the text is similar to that of the hymn *On the Fathers who have finished their course* translated earlier. In the new Greek edition the text is in volume 2, pages 32-33.
 
+**<img src="Thin_Red_and_Blue52.gif" width="428" height="5" />**
+
 **SERMON**
 
 Knowing, then, brethren, \[the Enemy’s\] weakness,

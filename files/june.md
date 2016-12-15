@@ -8,6 +8,8 @@ Since most of June will frequently fall during the Apostles’ Fast, a number of
 MONTH OF JUNE
 =============
 
+<img src="PP.jpg" alt="P&amp;P.jpg (136338 bytes)" width="335" height="259" />
+
 **It has 30 days. The day has 15 hours and the night 9**
 
 **1. Of the holy martyr Justin the Philosopher.**

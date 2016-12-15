@@ -4,6 +4,8 @@
 
 **CANON TO SAINT SYMEON STYLITES**
 
+<img src="SymStyl.gif" width="179" height="271" />
+
 INTRODUCTION
 
 The author of the Canon to Saint Symeon Stylites is given in the Menaion as ‘Monk John’, the usual designation of Saint John of Damascus in the service books.
@@ -155,6 +157,8 @@ You walked the path of heavenly virtue, you displayed the prize from on high, yo
 **Theotokion.**
 
 You were shown, O Virgin, to be the bush that burned yet was not consumed by fire, by conceiving without seed the God and Saviour of the world, whom we unceasingly magnify.
+
+<img src="simeon.jpg" width="168" height="259" />
 
 All that remains of Saint Symeon’s pillar
 at Qal’at Sim’an.

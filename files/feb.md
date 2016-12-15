@@ -33,6 +33,8 @@ By the strength of the Trinity you drove polytheism from the ends of the earth, 
 
 2. The Meeting of Our Lord Jesus Christ.
 
+<img src="Meeting.jpg" width="136" height="193" />
+
 When the forty days of the purification of the most pure Mother and ever-virgin Mary was complete, she brought her first born Son to Jerusalem on this day, which is the fortieth from his Nativity, that she might present him in the temple and fulfil the law of Moses that every first born male shall be dedicated to God, and that she might offer the sacrifice prescribed for this, a brace of pigeons or two young doves \[Lk 2.22-24; Ex 13.2; Lev 12.6-8\]. On the same day and hour the devout and just Symeon, a very old man, was present there, guided by the Holy Spirit. He had long been waiting for the salvation of God and had been informed by a divine revelation that he would not die until he had seen the Lord’s Christ. When he had seen him and taken him in his aged arms he gave glory to God and sang the third and final canticle of the New Testament, ‘Now, Master, you dismiss your servant’, and confessed that he closed his eyes in death with joy, since he had seen the light for revelation to the gentiles and the glory of Israel \[Lk 2.25-32\].
 
 ****

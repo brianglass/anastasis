@@ -16,6 +16,8 @@ December 21
 
 Acrobat Reader can be downloaded free from Adobe:
 
+[<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
+
  
 
 All texts and translations on this page are copyright to

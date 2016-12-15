@@ -584,25 +584,25 @@ Of the Paralysed Man. The Irmos.
 
 Troparia.
 
-esu, lifted up upon the tree, you lifted us up with you; and placed willingly in a tomb, you raised from the graves all the dead, who praise your incomprehensible might and your invincible power.
+<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />esu, lifted up upon the tree, you lifted us up with you; and placed willingly in a tomb, you raised from the graves all the dead, who praise your incomprehensible might and your invincible power.
 
-Word most fair, you dawned most fair from the grave as a bridegroom from his chamber; you abolished the gloom of Hell, and delivered the prisoners, who sang in consort: Glory to your glory! Glory, Jesu our God, to your Rising!
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> Word most fair, you dawned most fair from the grave as a bridegroom from his chamber; you abolished the gloom of Hell, and delivered the prisoners, who sang in consort: Glory to your glory! Glory, Jesu our God, to your Rising!
 
-wiftly the women came to the all-holy grave bringing sighs and tears with sweet spices, and they were taught in faith Christ’s Rising, which we celebrate, rejoicing in gladness of soul.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />wiftly the women came to the all-holy grave bringing sighs and tears with sweet spices, and they were taught in faith Christ’s Rising, which we celebrate, rejoicing in gladness of soul.
 
-nergy of body followed your order, O Christ, and the man formerly Paralysed was seen going by in haste, bearing the bed on which he had lain for many years, and praising your great power.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />nergy of body followed your order, O Christ, and the man formerly Paralysed was seen going by in haste, bearing the bed on which he had lain for many years, and praising your great power.
 
-lead for enlightenment for us, great Chief Captain, who always stand in the great light, and give peace to our life forever shaken by the assaults of the serpent and by life’s difficulties, O holy one.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />lead for enlightenment for us, great Chief Captain, who always stand in the great light, and give peace to our life forever shaken by the assaults of the serpent and by life’s difficulties, O holy one.
 
 Glory.
 
-oly, Holy, Holy, I cry with the powers above, as with all reverence I glorify you, light and lights, life and lives, Father, Word and Holy Spirit, three-personned Unity, inseparable might, unconfused Godhead.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly, Holy, Holy, I cry with the powers above, as with all reverence I glorify you, light and lights, life and lives, Father, Word and Holy Spirit, three-personned Unity, inseparable might, unconfused Godhead.
 
 Both now.
 
 **Theotokion.**
 
-e came from your light-bearing womb, Christ the great Sun, and enlightened the world, O immaculate, with his bright rays, and he removed the darkness of the transgression; therefore we hymn you as cause of all good, O bride of God.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />e came from your light-bearing womb, Christ the great Sun, and enlightened the world, O immaculate, with his bright rays, and he removed the darkness of the transgression; therefore we hymn you as cause of all good, O bride of God.
 
 ****
 

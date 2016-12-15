@@ -6,6 +6,9 @@
 Office of supplication to our God and Saviour Jesus Christ, who loves humankind, for our environment and for the welfare of the whole creation.
 -----------------------------------------------------------------------------------------------------------------------------------------------
 
+<img src="City031.gif" width="384" height="288" />
+--------------------------------------------------
+
 INTRODUCTION
 ------------
 
@@ -401,6 +404,8 @@ At all times keep unharmed the whole creation we beg you, O Redeemer, and grant 
 **Distich.**
 Gerasimos, O Master, cries with faith:
 Grant to creation a mild atmosphere.
+
+<img src="Mount026.gif" width="384" height="288" />
 
 Translation © Archimandrite Ephrem 1997
 

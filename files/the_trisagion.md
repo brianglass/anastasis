@@ -4,7 +4,7 @@ A NOTE ON THE TRANSLATION OF THE TRISAGION
 
 There have been numerous attempts to translate the Trisagion, not all of which are either theologically or linguistically accurate. The following note draws attention to some of the factors that a translator has to take into consideration. It is in PDF format, for which Acrobat Reader is required. This can be downloaded free from the Internet by clicking on the icon below
 
-.
+.<img src="getacro.gif" width="88" height="31" />
 
 [Translating the Trisagion](THE%20TRISAGION02.pdf)
 --------------------------------------------------

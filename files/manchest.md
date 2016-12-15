@@ -7,6 +7,9 @@ IN
 GREATER MANCHESTER**
 ====================
 
+**<img src="JC-MOS.gif" width="200" height="192" />**
+=====================================================
+
 The following is a list of the Orthodox Churches and Oriental Orthodox Churches and Communities in Greater Manchester, together with the address and telephone number of a contact person, in most instances the priest in charge, and the times of the principal Sunday services and the main languages used in them.
 
 **Oecumenical Patriarchate:**

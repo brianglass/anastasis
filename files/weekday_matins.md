@@ -9,7 +9,9 @@ The text is in PDF format, for which Adobe Acrobat Reader is required. This may 
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; Translating
 Liturgy&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
-&lt;p&gt;&lt;font size=">   </span>
+&lt;p&gt;&lt;font size="> </span>
+
+ [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
 
 [Weekday Matins](Matheb.pdf)
 ----------------------------

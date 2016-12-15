@@ -10,7 +10,9 @@ ANNOTATED TRANSLATIONS
 
 Few of our liturgical texts have been critically edited or provided  with explanatory notes and comments. *The Festal Menaion* and *Lenten Triodion* by Bishop Kallistos and Mother Mary have some notes, mostly references to Scripture. I have therefore decided to publish on these pages translations with more or less detailed notes. This is only a beginning, but I hope visitors will find them useful. As the notes contain a fair amount of Greek and occasionally Hebrew they will all be in PDF format, for which a program like Adobe Reader is necessary. This is available in a free download by clicking on the icon below:
 
- 
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; Translating
+Liturgy&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
+&lt;p&gt;&lt;font size=">  [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)</span>
 
 The background is the 5th century Codex Alexandrinus.
 

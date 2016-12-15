@@ -7,6 +7,8 @@ THE MONTH OF NOVEMBER
 
 1. Of the holy and wonder-working, unmercenary physicians, Cosmas and Damian; and of their venerable mother Theodotes.
 
+<img src="KosDamNov.gif" alt="KosDamNov.gif (63480 bytes)" width="120" height="210" />
+
 They were from Asia, and their father was a pagan. After his death, their Christ-loving mother now having found freedom, brought them up devoutly and taught them every form of virtue and knowledge, in particular medicine. They took this up as their profession and went around every disease and weakness, giving their cures without payment both to all humans and also to animals, hence they were given the epithet ‘Unmercenaries’. In this way they completed the course of their lives and died in peace.
 
 ****
@@ -142,6 +144,8 @@ As a mighty beacon the Church of Christ glorifies you with joy in psalms; theref
 
 8. The Assembly of the Chief Captain Michael and the rest of the Bodiless Powers.
 
+<img src="GabrMich.gif" alt="GabrMich.gif (65466 bytes)" width="201" height="265" />
+
 All the Angels, according to the Apostle Paul, are ministering spirits, sent out for those who are to inherit salvation \[Heb. 1:14\]. God has established them as guardians over every nation and people, and as guides for what is good \[Lev. 32:8\]. He orders them to guard those who hope in him, that nothing may harm them, that no evil may draw near their dwellings \[Ps. 6:9-14\]. In heaven they look continually on the face of God, as they sing to him the thrice-holy hymn and intercede before him on our behalf, as they likewise also rejoice over one sin who repents \[Is. 6:2-3; Mt. 18:10; Lk. 15:7; Acts 12:15\]. In a word they serve God for our benefit in so many ways that the pages of the holy Scriptures are full of accounts of them.
 
 Therefore the orthodox Church, gratefully honouring these divine ministers and our protectors and guardians, ordains to-day this present assembly, that is our gathering for their common feast and praise; but especially of the Archangels Michael and Gabriel, as they are mentioned by name in the Scriptures. Michael means ‘Who is as God?’, while Gabriel means ‘Power of God’. The number of the Angels is not defined by holy Scripture, though Daniel says thousands upon thousands minister to God and ten thousands upon ten thousands stand before him \[7:10\]. Nevertheless they are all divided into nine ranks called: Thrones, Cherubim, Seraphim, Dominions, Powers, Authorities, Principalities, Archangels and Angels.
@@ -275,6 +279,8 @@ The rebellious undergrowth of the passions of the body, blest Neilos, you vigoro
 ****
 
 13. Of our father among the saints John Chrysostom, archbishop of Constantinople.
+
+<img src="ChrNov01.gif" alt="ChrNov01.gif (21380 bytes)" width="91" height="256" />
 
 This great teacher of the inhabited world was born in Antioch the Great in 344 of devout parents, Secundus and Anthousa. He was a pupil the rhetor Livanios and the philosopher Andragathios. He was at first a monk in the hermitages around Antioch and later ordained priest of the church of Antioch in 383. He mounted the archiepiscopal throne on the 15th of December 397.
 
@@ -429,6 +435,8 @@ The whole to-day has been filled with joy, at the glorious festival of the Mothe
 ****
 
 21. The Entry of our most holy Lady the Mother of God into the Temple.
+
+<img src="EntryBMV-Nov.gif" alt="EntryBMV-Nov.gif (104095 bytes)" width="202" height="241" />
 
 According to the tradition of the Church, the Mother of God was brought to the Temple at the age of three years and there dedicated to God. She lived there for eleven or twelve whole years, until the age of fourteen or fifteen; and then as a perfect maiden, by the common counsel of the priests - her parents having died three years before - she was betrothed to Joseph.
 
@@ -606,6 +614,8 @@ Your Martyrs, O Lord, by their struggles obtained crowns of incorruption from yo
 ****
 
 30. Of the holy glorious and all-praised Apostle Andrew the First-called.
+
+<img src="AND03A.gif" alt="AND03A.gif (60033 bytes)" width="128" height="180" />
 
 He was from Bethsaida in Galilee, son of Jonas, brother of the prince of Apostles Peter, disciple at first of John the Baptist. Then, having heard his testimony concerning Jesus, when he pointed to him and said, ‘See, the lamb of God, who takes away the sin of the world’ (John 1,36), he followed Jesus at once and became his first disciple, from he he was given the title ‘First-called’ of the Apostles. After the Saviour’s assumption, he preached him in many places and suffered much for his name. He died in Patras in Achaia, being crucified head downwards.
 

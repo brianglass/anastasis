@@ -1,5 +1,7 @@
 <span class="masthead">ANASTASIS</span>
 
+<img src="Title04.jpg" width="539" height="96" />
+
 [<span class="style1">Liturgical Texts</span>](liturgic.md)<span class="style1">
 </span>[<span class="style1">Voice of the Fathers</span>](voiceof.md)<span class="style1">
 </span>[<span class="style1">Songs of the Fathers</span>](songsof.md)
@@ -8,6 +10,8 @@
 ****Welcome to Anastasis
 the Home Page
 of Archimandrite Ephrem****
+
+<img src="Anast-Chora05.jpg" width="332" height="498" />
 
 On these pages you will find, in the main, translations of our Orthodox liturgical and patristic texts. Most of the latter are of texts which have not previously been translated into English.
 

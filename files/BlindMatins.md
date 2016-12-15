@@ -120,7 +120,7 @@ THEOPHAN.
 
 **Ode 1. The same Irmos.**
 
-he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
+<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
 
 Having seen your Son and God risen from the dead, you rejoice with the Apostles, O holy and full of grace, and as cause of the joy of all, O all-pure Mother of God, you first received the greeting ‘Rejoice’.
 
@@ -183,7 +183,7 @@ Yesterday I was buried with you, O Christ, to-day I rise with you as you arise: 
 
 Of the Mother of God. The same Irmos.
 
-oly one, to-day I return to life undefiled through the goodness of him who was born from you and whose brightness blazes to all the ends of the earth.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly one, to-day I return to life undefiled through the goodness of him who was born from you and whose brightness blazes to all the ends of the earth.
 
 Seeing God, whom you conceived in the flesh, rising from the dead as he said, O holy one, dance; and magnify him as God, O Most Pure.
 
@@ -255,7 +255,7 @@ God’s forebear David dancing leaped before the Ark, mere shadow: but seeing th
 
 Of the Mother of God. Same Irmos.
 
-ven he who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death he has destroyed Adam’s death today, and shed light on all with the divine beams of his Resurrection.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven he who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death he has destroyed Adam’s death today, and shed light on all with the divine beams of his Resurrection.
 
 Seeing Christ, whom you bore, shining in beauty from the dead, O Pure one, fair and lovely and spotless among women, as you rejoice to-day with the Apostles at the salvation of all, glorify him.
 
@@ -313,7 +313,7 @@ With torches in our hands let us go forth to meet Christ as he comes from the gr
 
 Of the Mother of God. Same Irmos.
 
-pure Mother of God, the assembly of the devout is enlightened by the divine, lifegiving rays of the Resurrection of your Son, and is filled with joy.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />pure Mother of God, the assembly of the devout is enlightened by the divine, lifegiving rays of the Resurrection of your Son, and is filled with joy.
 
 You did not open the gates of the Virgin, when you took flesh; you did not break the seals of the grave, O King of creation. Therefore when she saw you risen, she rejoiced.
 
@@ -371,7 +371,7 @@ O my Saviour, the living, unslain Victim, as God offering yourself willingly to 
 
 Of the Mother of God. The same Irmos.
 
-risoner of old of death and corruption, the human race has been brought back through him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />risoner of old of death and corruption, the human race has been brought back through him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
 
 He who went down, O Holy one, into your womb, dwelt there and took flesh beyond understanding, went down into the lowest parts of the earth and raised Adam with himself when he rose from the tomb.
 
@@ -458,7 +458,7 @@ How truly holy and all-festive is this saving night, how full of light, herald o
 
 Of the Mother of God. The same Irmos.
 
-aving slain death, your Son, O all-pure one, has to-day given to all life that endures to ages of ages: the only blessed and highly exalted God of our fathers.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />aving slain death, your Son, O all-pure one, has to-day given to all life that endures to ages of ages: the only blessed and highly exalted God of our fathers.
 
 He who reigns over all creation becoming man dwelt in your womb, O full of God’s grace, and having endured the Cross and death he has risen as God and raised us with himself, for he is all powerful.
 
@@ -518,7 +518,7 @@ Almighty Father, Word and Spirit, nature united in three Persons, beyond all bei
 
 Of the Mother of God. The same Irmos.
 
-s the creator came into the world through you, O Virgin Mother of God, he tore open the womb of Hell and gave us mortals the Resurrection; therefore we bless him to the ages.
+<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />s the creator came into the world through you, O Virgin Mother of God, he tore open the womb of Hell and gave us mortals the Resurrection; therefore we bless him to the ages.
 
 Your Son, O Virgin, having overthrown the might of death, in his resurrection, as a mighty God, has exalted us with himself and deified us; therefore we praise him to the ages.
 
@@ -582,7 +582,7 @@ O great and most sacred Pascha, Christ; O Wisdom and Word and Power of God! Gran
 
 Of the Mother of God. The same Irmos.
 
-ow in harmony, O Virgin, we faithful call you blessed: Hail gate of the Lord: Hail living city: Hail through whom to-day the light of the Resurrection from the dead of him who was born from you has shone for us.
+<img src="dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ow in harmony, O Virgin, we faithful call you blessed: Hail gate of the Lord: Hail living city: Hail through whom to-day the light of the Resurrection from the dead of him who was born from you has shone for us.
 
 Rejoice, be glad, divine gate of the light; for Jesus, who set in the tomb, has dawned shining more brightly than the sun, and shedding his rays on all the faithful, O Sovereign Lady full of God’s grace.
 
@@ -596,25 +596,25 @@ Of the Blind Man. The Irmos.
 
 Troparia.
 
-oined to the gallows of the Cross, Christ Saviour, you triumphed over all the hostile forces of the foe, and abolished the former curse; therefore as is right we magnify you.
+<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />oined to the gallows of the Cross, Christ Saviour, you triumphed over all the hostile forces of the foe, and abolished the former curse; therefore as is right we magnify you.
 
-n seeing you below with your soul, O Word, Hell groaned aloud and in fear released all the dead, who recognised the might of your authority; with whom as is right we magnify you.
+<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />n seeing you below with your soul, O Word, Hell groaned aloud and in fear released all the dead, who recognised the might of your authority; with whom as is right we magnify you.
 
-eeing him accomplishing signs and dread wonders the people of the Hebrews in jealousy slew him who plundered Hell by his Resurrection, and as powerful raised all with him.
+<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />eeing him accomplishing signs and dread wonders the people of the Hebrews in jealousy slew him who plundered Hell by his Resurrection, and as powerful raised all with him.
 
-ven as you said, you rose from the dead, O Giver of Life, and appeared to the holy Disciples after your Rising, you who did signs and gave sight to the blind; with them to the ages we magnify you.
+<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as you said, you rose from the dead, O Giver of Life, and appeared to the holy Disciples after your Rising, you who did signs and gave sight to the blind; with them to the ages we magnify you.
 
 ****
 
 Triadikon.
 
-raise I give to Light, the Father, glory to Light, the Son, a hymn to Light, the ‘upright Spirit’: one undivided Light, recognised in three Persons, God, King of all creation.
+<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />raise I give to Light, the Father, glory to Light, the Son, a hymn to Light, the ‘upright Spirit’: one undivided Light, recognised in three Persons, God, King of all creation.
 
 ****
 
 Theotokion.
 
-oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
+<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
 
 ****
 

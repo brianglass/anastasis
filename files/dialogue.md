@@ -10,7 +10,9 @@ The following page gives the background material on which that translation is ba
 [Dialogue of the Anaphora](Dialogue.pdf)
 ----------------------------------------
 
-The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.  
+The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.
+
+ [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
 
 All texts and translations on this page are copyright to
 Archimandrite Ephrem ©

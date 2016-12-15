@@ -12,6 +12,8 @@ I have translated the Greek ‘Chaire!‘ by ‘Hail!’ as this is the most nat
 
 Liturgically the Hymn forms part of Matins on the Saturday of the Akathist, and in the monasteries of the the Holy Mountain it is read each night at Compline. In Greek use it is chanted solemnly in four sections at Compline on the first four Fridays of Lent, the whole being chanted at Compline on the fifth, the eve of Akathist Saturday.
 
+<img src="AnnuncBema02.jpg" alt="AnnuncBema02.jpg (87096 bytes)" width="208" height="359" />
+
 THE AKATHIST HYMN
 =================
 

@@ -27,6 +27,8 @@ PREFACE
 OF THE LITTLE CANON OF SUPPLICATION
 TO THE MOST HOLY MOTHER OF GOD**
 
+<img src="Gorg00.gif" alt="Gorg00.gif (41200 bytes)" width="241" height="282" />
+
 ****Icon of the Holy Mother of God Gorgoÿpikoos****
 
 Sung in every trouble and affliction of soul.

@@ -20,8 +20,12 @@ def replace_tag(old_element, new_element):
 
 def remove_empty(node):
     def recursively_empty(e):
-        if e.tag == 'br' or e.text and e.text.strip():
+        if e.tag in ('br', 'img'):
             return False
+
+        if e.text and e.text.strip():
+            return False
+
         return all((recursively_empty(c) for c in e.iterchildren()))
 
     for action, elem in etree.iterwalk(node):

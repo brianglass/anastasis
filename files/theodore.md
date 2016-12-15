@@ -15,6 +15,8 @@
 
  
 
+<img src="THS.gif" width="200" height="298" />
+
 ****Icon of Saint Theodore****
 
 CATECHESES TO HIS MONKS 
