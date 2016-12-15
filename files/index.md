@@ -21,7 +21,7 @@ Some visitors to these pages have pointed out that when printed out in black and
 
 My more recent translations of our liturgical texts contain notes, including biblical and patristic cross references, as well as discussions of rare or interesting words and expressions. For this reason I shall put them up in both HTML and PDF formats. In this way they can easily be downloaded for liturgical use without footnotes.
 
-On the web site of the parish of [St Anthony and St John the Baptist](/index.md) in Islington you will find a simple Commentary on the Divine Liturgy.
+On the web site of the parish of [St Anthony and St John the Baptist](index.md) in Islington you will find a simple Commentary on the Divine Liturgy.
 
 REMINDER
 ========

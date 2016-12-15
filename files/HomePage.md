@@ -51,7 +51,7 @@ As there is now a great deal on these pages, I have decided to draw attention to
 
 Unless stated otherwise, all texts and translations on these pages are (c) by Archimandrite Ephrem.
 
-You will find a great treasure house of Orthodox material and good sense at [Arimathea](/arimathea.md), David Melling’s home page. He has now launched a new web page devoted to Orthodox church music. The address is: [http://www.church-music.co.uk/EOChant.htm](/EOChant.md) It includes his manual of Psalmodia in PDF format.
+You will find a great treasure house of Orthodox material and good sense at [Arimathea](arimathea.md), David Melling’s home page. He has now launched a new web page devoted to Orthodox church music. The address is: [http://www.church-music.co.uk/EOChant.htm](EOChant.md) It includes his manual of Psalmodia in PDF format.
 
 If you have any personal comments or suggestions please send us an
 [ephrem@chorlton.com](mailto:ephrem@studite.demon.co.uk)

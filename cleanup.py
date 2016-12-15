@@ -6,7 +6,6 @@ import pipes
 from urllib.parse import urlunparse, urlparse
 
 from lxml import etree, html
-from lxml.html import clean
 
 parser = html.HTMLParser(encoding='latin-1')
 pipeline = pipes.Template()
@@ -66,7 +65,7 @@ def transform(filename):
 
             if extension.startswith('htm'):
                 if path:
-                    new_path = '{}{}.{}'.format(path, basename, 'md')
+                    new_path = '{}{}.{}'.format(path.lstrip('/'), basename, 'md')
                 else:
                     new_path = '{}.{}'.format(basename, 'md')
 

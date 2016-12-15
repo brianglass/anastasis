@@ -303,7 +303,7 @@ Glory. Both now.
 
 **The same again.**
 
-We have a reading from the Homilies on the Gospel according to John about the feast, numbers [65](/fathers/NPNF1-14/JohnJohn-Hom65.md) and [66](/fathers/NPNF1-14/JohnJohn-Hom66.md) \[by St. John Chrysostom\]
+We have a reading from the Homilies on the Gospel according to John about the feast, numbers [65](fathers/NPNF1-14/JohnJohn-Hom65.md) and [66](fathers/NPNF1-14/JohnJohn-Hom66.md) \[by St. John Chrysostom\]
 
 Then the 1st Antiphon of the Anavathmi in Tone 4, and after
 

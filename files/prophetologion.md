@@ -33,7 +33,7 @@ The majority of the readings are those for Vespers, but I have also included tho
 
 A certain number of footnotes have been included. These are mostly concerned with problems of readings and translation, but some are of more general interest and could be expanded in a final draft. Where appropriate inclusive language is used, but it is perhaps worth remarking that the words *anthropos* and *aner*, though they normally denote ‘human being’ and ‘male person’ respectively, are not univocal. *Anthropos* may refer to a male person and *aner* to a human being.
 
-The readings for Vespers in [Lent](/readLent.md) and [Holy Week](/holyweek.md) and the period of the *Pentecostarion* can be found elsewhere on these pages
+The readings for Vespers in [Lent](readLent.md) and [Holy Week](holyweek.md) and the period of the *Pentecostarion* can be found elsewhere on these pages
 
 Comments on this first draft will be welcomed by the translator.
 
