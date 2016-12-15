@@ -304,16 +304,16 @@ mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Synaxa
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;"><span style="color:red">
-</span>Loudly proclaiming his angelic call,<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a>
+</span>Loudly proclaiming his angelic call,<a href="#_ftn1" id="_ftnref1">[1]</a>
 His place with Angels Malachy proclaims.
-Malachy’s heart on the third of the month flew away from his members.<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a></span>
+Malachy’s heart on the third of the month flew away from his members.<a href="#_ftn2" id="_ftnref2">[2]</a></span>
 
 On the same day, Commemoration of the Holy Martyr Gordios.
 
 <span style="color:red">Verses
 </span>Who can surpass the soldier Gordios,
 A stalwart hero ‘gainst the fearsome blade?
-Gordios fell in the dust on the third on all sides surrounded.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a>
+Gordios fell in the dust on the third on all sides surrounded.<a href="#_ftn3" id="_ftnref3">[3]</a>
 
 On the same day, Commemoration of our Venerable Father Peter the Standard-bearer, who lies in the church of St Zachary of Atroa.
 
@@ -449,12 +449,12 @@ The brightness of the Father’s glory has appeared in Jordan’s streams, clean
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[</span></a><a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="font-family: Book Antiqua">1]</span></a><span style="font-family: Book Antiqua"> In Hebrew the name ‘Malachy’ means ‘My Messenger’, in Greek ‘My Angel’.</span>
+<a href="#_ftnref1" id="_ftn1">[</a><a href="#_ftnref1" id="_ftn1">1]</a><span style="font-family: Book Antiqua"> In Hebrew the name ‘Malachy’ means ‘My Messenger’, in Greek ‘My Angel’.</span>
 
-<span style="font-family: Book Antiqua"><a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[2]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> </span><span style="mso-bidi-font-size:
+<span style="font-family: Book Antiqua"><a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> </span><span style="mso-bidi-font-size:
 13.5pt;font-family:&quot;Book Antiqua&quot;">The final hexameter is deliberately Homeric. The words for ‘heart’ and ‘limbs’, or ‘members’, are both epic ones. In Iliad 16:856 a person’s soul is said to ‘fly from their limbs’, using the same words as here.</span><span style="font-family:&quot;Book Antiqua&quot;"></span></span>
 
-<span style="font-family: Book Antiqua"><a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[3]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Unusually the second Saint commemorated has a hexameter noting the date. It is also in Homeric language, with tmesis and reversal of the preposition and verb in <span style="color: #3366FF; font-family: Book Antiqua">amphitemno</span>, and an epic phrase, ‘fall in the dust’, for ‘die’.</span></span>
+<span style="font-family: Book Antiqua"><a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-family:&quot;Book Antiqua&quot;"> Unusually the second Saint commemorated has a hexameter noting the date. It is also in Homeric language, with tmesis and reversal of the preposition and verb in <span style="color: #3366FF; font-family: Book Antiqua">amphitemno</span>, and an epic phrase, ‘fall in the dust’, for ‘die’.</span></span>
 
  
 

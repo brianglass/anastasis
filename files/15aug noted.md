@@ -11,13 +11,13 @@ We warmly recommend a most valuable collection of patristic material concerning 
 ON THE 15TH OF THE MONTH
 ========================
 
-<span style="font-size: 12.0pt; font-family: Palatino Linotype">C</span><span style="font-family: Palatino Linotype">ommemoration of the Falling Asleep of our Most Holy Lady, the Mother of God and Ever-Virgin Mary.</span><span style="font-size: 12.0pt; font-family: Palatino Linotype"><a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference"><span style="font-size: 12.0pt; font-family: Palatino Linotype">[1]</span></span></a></span>
+<span style="font-size: 12.0pt; font-family: Palatino Linotype">C</span><span style="font-family: Palatino Linotype">ommemoration of the Falling Asleep of our Most Holy Lady, the Mother of God and Ever-Virgin Mary.</span><span style="font-size: 12.0pt; font-family: Palatino Linotype"><a href="#_ftn1" id="_ftnref1"><span style="font-size: 12.0pt; font-family: Palatino Linotype">[1]</span></a></span>
 
  
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference"> <span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></span></a><span style="font-family: Palatino Linotype"> The texts of the feast are based, for the most part, on the apocryphal accounts of the Dormition, of which the most important is the Greek account, attributed to St John the Divine. All the texts state clearly that the Mother of God died a natural death, but that her body was subsequently raised to the glory of heaven. In the Greek account after three days, but in the Coptic after some six months. The story of the Apostles’ being brought to Bethlehem on clouds from the ends of the earth is in the Greek account. The account in the Synaxarion also contains elements that are found in the Latin account. The cryptic allusion to the event in Dionysius the Areopagite’s *De Divinis Nominibus* 3 \[PG3 681-3\] has also influenced some texts.</span>
+<a href="#_ftnref1" id="_ftn1"><span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></a><span style="font-family: Palatino Linotype"> The texts of the feast are based, for the most part, on the apocryphal accounts of the Dormition, of which the most important is the Greek account, attributed to St John the Divine. All the texts state clearly that the Mother of God died a natural death, but that her body was subsequently raised to the glory of heaven. In the Greek account after three days, but in the Coptic after some six months. The story of the Apostles’ being brought to Bethlehem on clouds from the ends of the earth is in the Greek account. The account in the Synaxarion also contains elements that are found in the Latin account. The cryptic allusion to the event in Dionysius the Areopagite’s *De Divinis Nominibus* 3 \[PG3 681-3\] has also influenced some texts.</span>
 
  
 
@@ -28,25 +28,25 @@ AT SMALL VESPERS
 
 **<span lang="EN-US" style="font-family: Palatino Linotype"> Tone 2. Ðïίïéò åὐöçìéῶí óôέììáóé.</span>**
 
-<span style="font-size: 12.0pt; font-family: Palatino Linotype"> With what lips may we, poor and worthless, call the Mother of God blessed**<a href="#_ftn1" id="_ftnref6"><span class="MsoFootnoteReference">[1]</span></a>**? She is greater in honour than creation and holier than the Cherubim and all the Angels**<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference">[2]</span></a>;** the unshakeable**<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference">[3]</span></a>** throne of the King; the house in which the Most High made his dwelling**<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference">[4]</span></a>;** the salvation of the world; the Sanctuary**<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference">[5]</span></a>** of God; on her memorial she richly grants to all the faithful his great mercy. **(Twice)**</span> ** ****
+<span style="font-size: 12.0pt; font-family: Palatino Linotype"> With what lips may we, poor and worthless, call the Mother of God blessed**<a href="#_ftn1" id="_ftnref6">[1]</a>**? She is greater in honour than creation and holier than the Cherubim and all the Angels**<a href="#_ftn2" id="_ftnref2">[2]</a>;** the unshakeable**<a href="#_ftn3" id="_ftnref3">[3]</a>** throne of the King; the house in which the Most High made his dwelling**<a href="#_ftn4" id="_ftnref4">[4]</a>;** the salvation of the world; the Sanctuary**<a href="#_ftn5" id="_ftnref5">[5]</a>** of God; on her memorial she richly grants to all the faithful his great mercy. **(Twice)**</span> ** ****
 
  
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn6"><span class="MsoFootnoteReference"> <span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></span></a><span style="font-family: Palatino Linotype"> </span><span style="font-family: Palatino Linotype"> **Cf. Luke 1:48.**</span>****
+<a href="#_ftnref1" id="_ftn6"><span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></a><span style="font-family: Palatino Linotype"> </span><span style="font-family: Palatino Linotype"> **Cf. Luke 1:48.**</span>****
 
 ****
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference"> <span style="font-family: Palatino Linotype">[2]</span></span></a><span style="font-family: Palatino Linotype"> These phrases are a deliberate echo of the well-known troparion, ‘Greater in honour than the Cherubim’, which forms the Irmos the ninth ode of St Kosmas’ Canon for Good Friday.</span>
+<a href="#_ftnref2" id="_ftn2"><span style="font-family: Palatino Linotype">[2]</span></a><span style="font-family: Palatino Linotype"> These phrases are a deliberate echo of the well-known troparion, ‘Greater in honour than the Cherubim’, which forms the Irmos the ninth ode of St Kosmas’ Canon for Good Friday.</span>
 
 ****
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference"> <span style="font-family: Palatino Linotype">[3]</span></span></a><span style="font-family: Palatino Linotype"> Greek </span><span lang="EL" style="font-family: Palatino Linotype"> ἀóáëåύôïí. </span><span style="font-family: Palatino Linotype">A rare word in both Classical Greek and Scripture, but quite common in the Fathers. It is used for the Hebrew word </span> <span lang="EN-US" style="font-family: Bwhebb">tpoßj’Aj,</span><span lang="EN-US" style="font-family: Palatino Linotype"> for the phylactery worn on the forehead in Exodus and Deuteronomy, of the prow of a ship that has run aground at Acts 27:41, and of the ‘kingdom’ which believers have received at Hebrews 12:28.</span>
+<a href="#_ftnref3" id="_ftn3"><span style="font-family: Palatino Linotype">[3]</span></a><span style="font-family: Palatino Linotype"> Greek </span><span lang="EL" style="font-family: Palatino Linotype"> ἀóáëåύôïí. </span><span style="font-family: Palatino Linotype">A rare word in both Classical Greek and Scripture, but quite common in the Fathers. It is used for the Hebrew word </span> <span lang="EN-US" style="font-family: Bwhebb">tpoßj’Aj,</span><span lang="EN-US" style="font-family: Palatino Linotype"> for the phylactery worn on the forehead in Exodus and Deuteronomy, of the prow of a ship that has run aground at Acts 27:41, and of the ‘kingdom’ which believers have received at Hebrews 12:28.</span>
 
 ********
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference"> <span style="font-family: Palatino Linotype">[4]</span></span></a><span style="font-family: Palatino Linotype"> Cf. Pss. 45:5 and 86:5.</span>
+<a href="#_ftnref4" id="_ftn4"><span style="font-family: Palatino Linotype">[4]</span></a><span style="font-family: Palatino Linotype"> Cf. Pss. 45:5 and 86:5.</span>
 
 ****
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference"> <span style="font-family: Palatino Linotype">[5]</span></span></a><span style="font-family: Palatino Linotype"> The Greek is </span><span lang="EL" style="font-family: Palatino Linotype"> ἁãίáóìá, </span><span style="font-family: Palatino Linotype">which is not classical, but found in the LXX. Lampe does not notice its metaphorical use of the Mother of God.</span>
+<a href="#_ftnref5" id="_ftn5"><span style="font-family: Palatino Linotype">[5]</span></a><span style="font-family: Palatino Linotype"> The Greek is </span><span lang="EL" style="font-family: Palatino Linotype"> ἁãίáóìá, </span><span style="font-family: Palatino Linotype">which is not classical, but found in the LXX. Lampe does not notice its metaphorical use of the Mother of God.</span>
 
 What songs of awe did all the Apostles of the Word offer you then, O Virgin, as they stood around your deathbed and cried out with amazement: ‘The King’s palace is being taken up. The Ark of sanctification is being exalted. Be lifted up, you gates, that the Gate of God may enter with great joy, as without ceasing she asks his great mercy for the world’?
 

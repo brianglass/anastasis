@@ -56,7 +56,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso
 color:red">1</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Then Adam sat and wept opposite<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a><span style="mso-tab-count:1">
+font-family:&quot;Book Antiqua&quot;">Then Adam sat and wept opposite<a href="#_ftn1" id="_ftnref1">[1]</a><span style="mso-tab-count:1">
           </span>The delight of Paradise beating his eyes with his hands<span style="mso-tab-count:1">
           </span>And he said:</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
@@ -146,7 +146,7 @@ color:red">9</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">No longer<span style="mso-spacerun: yes">   </span>do the flowers<span style="mso-spacerun: yes">   </span>offer me<span style="mso-spacerun: yes">   </span>pleasure,<span style="mso-tab-count:1">
-          </span>But thorns and thistles <a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> the earth raises for me,<span style="mso-tab-count:1">
+          </span>But thorns and thistles <a href="#_ftn2" id="_ftnref2">[2]</a> the earth raises for me,<span style="mso-tab-count:1">
           </span>Not produce:</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
 1">
@@ -159,7 +159,7 @@ color:red">10</span>
 font-family:&quot;Book Antiqua&quot;">The table<span style="mso-spacerun: yes">   </span>without toil<span style="mso-spacerun: yes">   </span>I overthrew<span style="mso-spacerun: yes">   </span>by my own will;<span style="mso-tab-count:1">
           </span>And now<span style="mso-spacerun: yes">   </span>in the sweat<span style="mso-spacerun: yes">   </span>of my brow<span style="mso-spacerun:
 yes">   </span>I eat<span style="mso-tab-count:1">
-          </span>My bread:<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a></span><span style="font-size:14.0pt;
+          </span>My bread:<a href="#_ftn3" id="_ftnref3">[3]</a></span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
 1">
           </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
@@ -246,14 +246,13 @@ color:red">18</span>
 
 Now therefore, Saviour,<span style="mso-spacerun: yes">   </span>save me also<span style="mso-spacerun: yes">   </span>who seek for you<span style="mso-spacerun: yes">   </span>with longing;<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:1">
-          </span>I do not wish to take you in,<span style="mso-spacerun: yes">   </span>but I wish to be taken in by you<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[4]</span></a><span style="mso-tab-count:1">
+          </span>I do not wish to take you in,<span style="mso-spacerun: yes">   </span>but I wish to be taken in by you<a href="#_ftn4" id="_ftnref4">[4]</a><span style="mso-tab-count:1">
           </span>And to cry to you:</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
 1">
           </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[19\]<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a></span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[19\]<a href="#_ftn5" id="_ftnref5">[5]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">\[O incomparable,<span style="mso-spacerun: yes">   </span>all-holy,<span style="mso-spacerun: yes">   </span>all-immaculate<span style="mso-spacerun: yes">   </span>look down<span style="mso-tab-count:1">
@@ -293,18 +292,18 @@ font-family:&quot;Book Antiqua&quot;"></span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:25 (LXX). </span><span style="font-size:12.0pt;mso-bidi-font-size:
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:25 (LXX). </span><span style="font-size:12.0pt;mso-bidi-font-size:
 13.5pt;font-family:&quot;Book Antiqua&quot;">The first line of Stanza 1 echoes the LXX text of Genesis 3:24, which reads ’And \[God\] settled Adam opposite the Paradise of pleasure and set in place the Cherubim’. This rendering has influenced both the liturgical and the iconographic traditions. The Hebrew has only one verb, ’And \[God\] settled east of the garden of Eden the Cherubim’. The Catholic *New American Bible* has adopted the LXX reading as the correct one.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:18.</span>
+<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:18.</span>
 
 <span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"> </span><a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:20.</span>
+font-family:&quot;Book Antiqua&quot;"> </span><a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:20.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">The trope in the second line of Stanza 18 is almost impossible to translate. The verb I have translated ’take in’ in both clauses is the same, and means both ’cheat’ and ’steal’.</span><span style="font-size:12.0pt;mso-bidi-font-size:
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">The trope in the second line of Stanza 18 is almost impossible to translate. The verb I have translated ’take in’ in both clauses is the same, and means both ’cheat’ and ’steal’.</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These stanzas, 19-22, are considered spurious by the editor, though they are present in all but one <span style="font-variant:small-caps;">ms</span>. 18 forms a final prayer, which is feature of the classic kontakion, and the final stanzas, which form the word ADAM in the acrostic seem to be an unnecessary addition. They are not really about Adam at all and greatly inferior in quality, being simply a collection of commonplaces.</span>
+<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These stanzas, 19-22, are considered spurious by the editor, though they are present in all but one <span style="font-variant:small-caps;">ms</span>. 18 forms a final prayer, which is feature of the classic kontakion, and the final stanzas, which form the word ADAM in the acrostic seem to be an unnecessary addition. They are not really about Adam at all and greatly inferior in quality, being simply a collection of commonplaces.</span>
 
  
 

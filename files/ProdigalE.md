@@ -18,7 +18,7 @@ color:red;mso-bidi-font-style:italic">After the Opening Psalm and the usual read
 font-style:normal;mso-bidi-font-style:italic">Tone 1.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">I was entrusted with a sinless and living country, but, having sown the ground<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a> with sin, with a sickle I have reaped the ears of indifference and piled up the heaps of the sheaves of my actions, which I have not spread out on the threshing floor of repentance.<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> <span style="text-transform:uppercase">b</span>ut I beg you, our God, husbandman before the ages, with the wind of your loving compassion winnow away<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a> the chaff of my works, and provision<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> my soul with forgiveness; shut me in your heavenly storehouse and save me. <span style="mso-tab-count:1">     </span><span style="color:red;mso-bidi-font-style:
+mso-bidi-font-size:10.0pt">I was entrusted with a sinless and living country, but, having sown the ground<a href="#_ftn1" id="_ftnref1">[1]</a> with sin, with a sickle I have reaped the ears of indifference and piled up the heaps of the sheaves of my actions, which I have not spread out on the threshing floor of repentance.<a href="#_ftn2" id="_ftnref2">[2]</a> <span style="text-transform:uppercase">b</span>ut I beg you, our God, husbandman before the ages, with the wind of your loving compassion winnow away<a href="#_ftn3" id="_ftnref3">[3]</a> the chaff of my works, and provision<a href="#_ftn4" id="_ftnref4">[4]</a> my soul with forgiveness; shut me in your heavenly storehouse and save me. <span style="mso-tab-count:1">     </span><span style="color:red;mso-bidi-font-style:
 italic">(Twice)</span>**</span>
 
 <span style="font-size:14.0pt;
@@ -28,7 +28,7 @@ mso-bidi-font-size:10.0pt">Brethren, let us learn the power of the mystery. For 
 mso-bidi-font-style:italic">Tone 2.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Of what great blessings, wretch that I am, have I deprived myself! From what a kingship<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> in my misery have I fallen! I have wasted the wealth that I received, I have transgressed the commandment. Alas, unhappy soul ! You are henceforth condemned to the eternal fire. Therefore before the end cry out to Christ our God, ‘Receive me as the Profligate Son, O God, and have mercy on me’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Of what great blessings, wretch that I am, have I deprived myself! From what a kingship<a href="#_ftn5" id="_ftnref5">[5]</a> in my misery have I fallen! I have wasted the wealth that I received, I have transgressed the commandment. Alas, unhappy soul ! You are henceforth condemned to the eternal fire. Therefore before the end cry out to Christ our God, ‘Receive me as the Profligate Son, O God, and have mercy on me’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"></span>
 
@@ -38,7 +38,7 @@ mso-bidi-font-size:10.0pt"></span>
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;mso-bidi-font-style:italic">Entrance, </span><span style="font-size:
 14.0pt;mso-bidi-font-size:10.0pt">O Joyful Light<span style="color:red;
-mso-bidi-font-style:italic">. Prokeimenon of the day. At the Liti<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> we sing the sticheron of the patron saint of the monastery.</span>**</span>
+mso-bidi-font-style:italic">. Prokeimenon of the day. At the Liti<a href="#_ftn6" id="_ftnref6">[6]</a> we sing the sticheron of the patron saint of the monastery.</span>**</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 mso-bidi-font-style:italic">Glory. </span><span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red; mso-bidi-font-style: normal">Tone 4.</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
@@ -60,7 +60,7 @@ font-style:normal;mso-bidi-font-style:italic">Alphabetical Aposticha from the Oc
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal;
 mso-bidi-font-style:italic">Glory.<span style="color:red"> Tone 6.</span></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">I have squandered the wealth of my Father’s gift, and have grazed<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>, poor wretch, with irrational beasts. Yearning for their food, I starved and was not filled. But now I return to the compassionate Father and cry out with tears, ‘Accept me as a hired servant, as I fall down before your loving‑kindness, and save me’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">I have squandered the wealth of my Father’s gift, and have grazed<a href="#_ftn7" id="_ftnref7">[7]</a>, poor wretch, with irrational beasts. Yearning for their food, I starved and was not filled. But now I return to the compassionate Father and cry out with tears, ‘Accept me as a hired servant, as I fall down before your loving‑kindness, and save me’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
 mso-bidi-font-style:italic">Theotokion.</span><span style="font-size:14.0pt;
@@ -70,7 +70,7 @@ mso-bidi-font-size:10.0pt"></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red">Apolytikion, </span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt">Virgin Mother of God<span style="color:red">, three times. And the rest of the office of the Vigil.<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a></span></span>
+10.0pt">Virgin Mother of God<span style="color:red">, three times. And the rest of the office of the Vigil.<a href="#_ftn8" id="_ftnref8">[8]</a></span></span>
 
  
 
@@ -396,21 +396,21 @@ Great Doxology. the two Litanies, and the Dismissal. The usual Liti, at which we
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious.</span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious.</span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, ‘to’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive ‘To be entrusted with something’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be ‘with’, which at least makes sense, and for the moment I follow him. It is unclear what the ‘sinless and living land is’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word ‘but’ in the first line is not in the Greek and there is a colon after ‘sin’. The latter would not make sense. It is simpler to take ‘having sown the ground with sin’ with what follows. In Slavonic ‘reaped’ and ‘piled’ are also participles, which all depend on ‘I was entrusted’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the ‘I’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means ‘entrusted with’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word ‘country’. </span>
+<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, ‘to’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive ‘To be entrusted with something’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be ‘with’, which at least makes sense, and for the moment I follow him. It is unclear what the ‘sinless and living land is’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word ‘but’ in the first line is not in the Greek and there is a colon after ‘sin’. The latter would not make sense. It is simpler to take ‘having sown the ground with sin’ with what follows. In Slavonic ‘reaped’ and ‘piled’ are also participles, which all depend on ‘I was entrusted’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the ‘I’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means ‘entrusted with’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word ‘country’. </span>
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo* <span style="mso-spacerun: yes"> </span>is not attested in the lexical, but again the meaning is obvious.</span>
+<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo* <span style="mso-spacerun: yes"> </span>is not attested in the lexical, but again the meaning is obvious.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above.</span>
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above.</span>
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’.</span>
+<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’.</span>
 
-<a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday.</span>
+<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday.</span>
 
-<a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[7]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’.</span>
+<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’.</span>
 
-<a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[8]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday.</span>
+<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday.</span>
 
  
 

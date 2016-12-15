@@ -26,7 +26,7 @@ color:red;mso-bidi-font-weight:bold;font-style:normal;mso-bidi-font-style:italic
 10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">**.**</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Come, let us go up with Jesus, as he ascends the holy mountain, and there let us hear the voice of the living God, the Father without beginning, which through a cloud of light bears witness by the divine Spirit to the truth of his eternal Sonship, and enlightened in mind, in light we shall see light<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a>.</span>
+font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Come, let us go up with Jesus, as he ascends the holy mountain, and there let us hear the voice of the living God, the Father without beginning, which through a cloud of light bears witness by the divine Spirit to the truth of his eternal Sonship, and enlightened in mind, in light we shall see light<a href="#_ftn1" id="_ftnref1">[1]</a>.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Come, let us dance beforehand, purify ourselves and faithfully prepare ourselves for the divine ascent of the exalted life of God, that we may become spectators of his majesty, and attain the glory which the leaders of the Apostles were allowed to see mystically on Mount Thabor.</span>
@@ -54,7 +54,7 @@ Tone 2. House of Ephratha.</span><span style="font-size:14.0pt;mso-bidi-font-siz
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:
 italic">Verse: </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Yours are the heavens and yours is the earth; you have founded the inhabited world and its fullness.<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a></span>
+font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Yours are the heavens and yours is the earth; you have founded the inhabited world and its fullness.<a href="#_ftn2" id="_ftnref2">[2]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Before the Cross, Christ shows an inspired sign of his Godhead to his initiates, shining out to-day on the mountain like the sun.</span>
@@ -62,7 +62,7 @@ font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Before the Cross
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:
 italic">Verse:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold"> Thabor and Hermon will rejoice in your name.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a></span>
+font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold"> Thabor and Hermon will rejoice in your name.<a href="#_ftn3" id="_ftnref3">[3]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Wishing to better the nature he took from Adam, Christ now ascends Thabor, baring his Godhead to his initiates.</span>
@@ -75,7 +75,7 @@ font-style:normal;mso-bidi-font-style:italic">Tone 2.</span><span style="font-si
 mso-bidi-font-weight:bold"> </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Christ our God, transfigured on mount Thabor in glory, and showing your Disciples the glory of your Godhead, illumine us also with the light of your knowledge, and guide us in the path of your commandments,<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> as you alone are good and love humankind. </span>
+font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Christ our God, transfigured on mount Thabor in glory, and showing your Disciples the glory of your Godhead, illumine us also with the light of your knowledge, and guide us in the path of your commandments,<a href="#_ftn4" id="_ftnref4">[4]</a> as you alone are good and love humankind. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold;font-style:normal;mso-bidi-font-style:italic">Apolytikion. Tone 4. Speedily anticipate. </span>
@@ -112,7 +112,7 @@ font-family:&quot;Book Antiqua&quot;">Light of heaven, blaze out from below more
 font-family:&quot;Book Antiqua&quot;">To sight a mortal, but God in hiddenness, Christ ascends Thabor to lay bare the radiance of his Godhead by the splendours of his glory which shines more brightly than the sun.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Christ knowingly now goes forward to appear to Moses and to reveal his ineffable glory on mount Thabor, by conversing with him directly face to face.<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> Let us today with gladness celebrate the forefeast.</span>
+font-family:&quot;Book Antiqua&quot;">Christ knowingly now goes forward to appear to Moses and to reveal his ineffable glory on mount Thabor, by conversing with him directly face to face.<a href="#_ftn5" id="_ftnref5">[5]</a> Let us today with gladness celebrate the forefeast.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">And the Canon of the Saint.</span>
@@ -145,7 +145,7 @@ font-family:&quot;Book Antiqua&quot;">Let all of us the faithful sing the praise
 color:red">Forefeast. Ode 3. <span style="mso-bidi-font-weight:bold">O Mother of God.</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">You, the Master of all creation, appeared having taken the form of a servant,<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> in which you revealed the unapproachable brightness of your Godhead to the Disciples, as far as they could look upon it.</span>
+font-family:&quot;Book Antiqua&quot;">You, the Master of all creation, appeared having taken the form of a servant,<a href="#_ftn6" id="_ftnref6">[6]</a> in which you revealed the unapproachable brightness of your Godhead to the Disciples, as far as they could look upon it.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Christ the sun of glory hastens to blaze forth on the mountain and to darken by his light the beacon which shines from on high. Made radiant by his beams, let us today celebrate the forefeast.</span>
@@ -160,7 +160,7 @@ color:red">Kathisma of the Saint.</span>
 Tone 4. Today you have appeared.</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">The Sun of glory has appeared, has blazed forth the rays of the Godhead to those in darkness,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a> as he goes up to Thabor. Let us honour his light-bearing coming.</span>
+font-family:&quot;Book Antiqua&quot;">The Sun of glory has appeared, has blazed forth the rays of the Godhead to those in darkness,<a href="#_ftn7" id="_ftnref7">[7]</a> as he goes up to Thabor. Let us honour his light-bearing coming.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="color:red">Of the</span> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Forefeast. Ode 4. <span style="mso-bidi-font-weight:bold">The One seated in glory.</span></span>
@@ -172,7 +172,7 @@ font-family:&quot;Book Antiqua&quot;">The heavenly choir joins in gladness those
 font-family:&quot;Book Antiqua&quot;">By your coming as God and man you spoke with men, and by a multitude of wonders you mystically illumined the world, by the blazing glory of your Godhead you shone forth supremely on Thabor with unapproachable light.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Jesus, the offspring of Nave, of old stopped the sun,<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a> prefiguring the day of the divine Passion; while you, Saviour and Lord, before your honoured Cross, hid the brightness of the sun with the radiance of your Face.</span>
+font-family:&quot;Book Antiqua&quot;">Jesus, the offspring of Nave, of old stopped the sun,<a href="#_ftn8" id="_ftnref8">[8]</a> prefiguring the day of the divine Passion; while you, Saviour and Lord, before your honoured Cross, hid the brightness of the sun with the radiance of your Face.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Of the Saint.</span>
@@ -188,7 +188,7 @@ font-family:&quot;Book Antiqua&quot;">Rejoicing in the Lord, let us faithfully f
 font-family:&quot;Book Antiqua&quot;">Let heaven shine more radiantly today; for see, Christ will ascend the mount, from where he will blaze with infinite light, as giver of light darkening the rays of the sun with the glory of the Godhead.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Christ shows his Disciples a mystery on Thabor as with his face he shines beyond radiance, and through the raiment of his garments he becomes shining white as snow,<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[9]</span></a> the One who is clothed in light as in a garment,<a href="#_ftn10" id="_ftnref10"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[10]</span></a> as the Psalmist says.</span>
+font-family:&quot;Book Antiqua&quot;">Christ shows his Disciples a mystery on Thabor as with his face he shines beyond radiance, and through the raiment of his garments he becomes shining white as snow,<a href="#_ftn9" id="_ftnref9">[9]</a> the One who is clothed in light as in a garment,<a href="#_ftn10" id="_ftnref10">[10]</a> as the Psalmist says.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Of the Saint.</span>
@@ -201,7 +201,7 @@ color:red">Forefeast. Ode 6. <span style="mso-bidi-font-weight:bold">Come, godly
 font-family:&quot;Book Antiqua&quot;">Making ready for his friends the bridal chamber of glory of the joy to come Christ ascends the mountain, bringing them up from a lowly life on earth to a way of life high above the world.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Astonishing the minds of the Disciples, Christ made the radiance of heaven blaze out on earth, placing beside him in the manner of servants the leaders of the Law and the Prophets, by whom, both dead and living,<a href="#_ftn11" id="_ftnref11"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[11]</span></a> God is witnessed to.</span>
+font-family:&quot;Book Antiqua&quot;">Astonishing the minds of the Disciples, Christ made the radiance of heaven blaze out on earth, placing beside him in the manner of servants the leaders of the Law and the Prophets, by whom, both dead and living,<a href="#_ftn11" id="_ftnref11">[11]</a> God is witnessed to.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Christ the lamp now begins to appear in a parched place with the rays of the divine lightning. Let us journey towards his brilliance, rejoicing in the radiance of his face.</span>
@@ -280,7 +280,7 @@ color:red">Forefeast. Ode 7. <span style="mso-bidi-font-weight:bold">The godlike
 font-family:&quot;Book Antiqua&quot;">Let us now follow Christ as he leads the chosen Disciples to a height of soul far above the world, as we contemplate strange sights. Filled with amazement let us cry out with them: Blessed are you, O God!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Having cleansed sullied mortal nature by water and fire,<a href="#_ftn12" id="_ftnref12"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[12]</span></a> in your own flesh, you show, O Saviour, its splendour by your face, as you shine more brightly than the sun, as a figure of the glory to come.</span>
+font-family:&quot;Book Antiqua&quot;">Having cleansed sullied mortal nature by water and fire,<a href="#_ftn12" id="_ftnref12">[12]</a> in your own flesh, you show, O Saviour, its splendour by your face, as you shine more brightly than the sun, as a figure of the glory to come.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Let us go up with Christ to the holy mountain, as he takes with him the sons of Zebedee and Peter, the leader, whom he chose as witnesses of his own glory as they cried: Blessed are you, O God!</span>
@@ -298,7 +298,7 @@ font-family:&quot;Book Antiqua&quot;">Who would not be amazed, O Word, Sovereign
 font-family:&quot;Book Antiqua&quot;">Grant the height of a heavenly way of life and the divine brilliance of the eternal glory to your servants, who now celebrate the radiant festival of your Transfiguration; on which, blazing with light, you make radiant those who sing your praise, Christ the giver of light.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">You are light and giver of unapproachable<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[13]</span></a> and eternal light, Lord without beginning, who wrap yourself in light as in a garment; you shed light on the world when you came with flesh; and you blaze with light on the mountain revealing the imprint of the Father’s glory.</span>
+font-family:&quot;Book Antiqua&quot;">You are light and giver of unapproachable<a href="#_ftn13" id="_ftnref13">[13]</a> and eternal light, Lord without beginning, who wrap yourself in light as in a garment; you shed light on the world when you came with flesh; and you blaze with light on the mountain revealing the imprint of the Father’s glory.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Of the Saint.</span>
@@ -332,10 +332,10 @@ color:red">Forefeast. Ode 9. <span style="mso-bidi-font-weight:bold">Let all bor
 font-family:&quot;Book Antiqua&quot;">Heaven rejoices as it now perceives dawning from earth the unsetting Sun, which is about to dim the radiance of the sun by divine glory. Earth dances radiantly, resplendent with heavenly brightness it becomes light.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">David in psalms foretold your Transfiguration: Who will be likened to you, Lord, he said, among the sons of God? For you are glorified in the counsels of the Saints, you appeared great among those around you,<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[14]</span></a> fearful in the glory of your divine form.</span>
+font-family:&quot;Book Antiqua&quot;">David in psalms foretold your Transfiguration: Who will be likened to you, Lord, he said, among the sons of God? For you are glorified in the counsels of the Saints, you appeared great among those around you,<a href="#_ftn14" id="_ftnref14">[14]</a> fearful in the glory of your divine form.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">O Word of God, wisdom and power and imprint<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[15]</span></a> of the Father. O God, so known to believers and acknowledged as man, count us worthy to celebrate the radiant festival of your Transfiguration, and to shine out with the light of good works.</span>
+font-family:&quot;Book Antiqua&quot;">O Word of God, wisdom and power and imprint<a href="#_ftn15" id="_ftnref15">[15]</a> of the Father. O God, so known to believers and acknowledged as man, count us worthy to celebrate the radiant festival of your Transfiguration, and to shine out with the light of good works.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Of the Saint.</span>
@@ -381,14 +381,14 @@ font-family:&quot;Book Antiqua&quot;">As we go beforehand to meet the all-holy, 
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red">Verse:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Mercy and truth have met; justice and peace have kissed.<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[16]</span></a></span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Mercy and truth have met; justice and peace have kissed.<a href="#_ftn16" id="_ftnref16">[16]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Come, let us ascend the holy mountain and let us look upon the all-shining Transfiguration of the Lord, as we faithfully worship him and say: You alone are our God, who became incarnate and made the human divine.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red">Verse:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Lord, they will walk in the light of your face.<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[17]</span></a></span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Lord, they will walk in the light of your face.<a href="#_ftn17" id="_ftnref17">[17]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">This is the day of the forefeast, after which Christ is transfigured in the presence of Moses and Elias and his Disciples on mount Thabor; while the divine voice speaks: This is truly my chosen Son.</span>
@@ -405,39 +405,39 @@ color:red">And Dismissal.</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[1]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Psalm 35:10. Some editions of the Menaion have a subjunctive, ‘let us/may we see’. The Psalter has the indicative. The subjunctive in the third sticheron suggests that the original text may have had a subjunctive here also. </span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Psalm 35:10. Some editions of the Menaion have a subjunctive, ‘let us/may we see’. The Psalter has the indicative. The subjunctive in the third sticheron suggests that the original text may have had a subjunctive here also. </span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[2]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:12.</span>
+<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:12.</span>
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[3]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:13.</span>
+<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:13.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[4]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 118:35.</span>
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 118:35.</span>
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[5]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Exodus 33:11.</span>
+<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Exodus 33:11.</span>
 
-<a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[6]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Phil. 2:7.</span>
+<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-family:&quot;Book Antiqua&quot;"> Phil. 2:7.</span>
 
-<a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[7]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Luke 1:79.</span>
+<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-family:&quot;Book Antiqua&quot;"> Luke 1:79.</span>
 
-<a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[8]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Jos. 10:12-13.</span>
+<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-family:&quot;Book Antiqua&quot;"> Jos. 10:12-13.</span>
 
-<a href="#_ftnref9" id="_ftn9"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[9]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> In the Gospel this comparison is used of the Angels at the resurrection, Matthew 28:3, not of the Transfiguration.</span>
+<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-family:&quot;Book Antiqua&quot;"> In the Gospel this comparison is used of the Angels at the resurrection, Matthew 28:3, not of the Transfiguration.</span>
 
-<a href="#_ftnref10" id="_ftn10"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[10]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 103:2.</span>
+<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 103:2.</span>
 
-<a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[11]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Moses died before entering the Promised Land; Elias was taken up alive into heaven on a fiery chariot.</span>
+<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-family:&quot;Book Antiqua&quot;"> Moses died before entering the Promised Land; Elias was taken up alive into heaven on a fiery chariot.</span>
 
-<a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[12]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> An allusion to the tradition that fire appeared in the Jordan at the moment of Christ’s baptism.</span>
+<a href="#_ftnref12" id="_ftn12">[12]</a><span style="font-family:&quot;Book Antiqua&quot;"> An allusion to the tradition that fire appeared in the Jordan at the moment of Christ’s baptism.</span>
 
-<a href="#_ftnref13" id="_ftn13"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[13]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. 1 Timothy 6:16.</span>
+<a href="#_ftnref13" id="_ftn13">[13]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. 1 Timothy 6:16.</span>
 
-<a href="#_ftnref14" id="_ftn14"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[14]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:7-8</span>
+<a href="#_ftnref14" id="_ftn14">[14]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:7-8</span>
 
-<a href="#_ftnref15" id="_ftn15"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[15]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Hebrews 1:3.</span>
+<a href="#_ftnref15" id="_ftn15">[15]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Hebrews 1:3.</span>
 
-<a href="#_ftnref16" id="_ftn16"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[16]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 84:11.</span>
+<a href="#_ftnref16" id="_ftn16">[16]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 84:11.</span>
 
-<a href="#_ftnref17" id="_ftn17"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[17]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:16.</span>
+<a href="#_ftnref17" id="_ftn17">[17]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:16.</span>
 
  
 

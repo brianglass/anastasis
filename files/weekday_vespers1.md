@@ -12,13 +12,13 @@ italic">Lord, I have cried,</span> <span style="color:red">Prosomia of the Lord.
 
 Give me the thought of repentance, give too the desire for compunction to my lowly soul; rouse me from the sleep of dread hardness, drive away the darkness of sloth, and banish the fog of despair, that I, poor wretch, may raise my head and cling to you, O Word, and walk in your wishes.
 
-O Christ, alone easy to be entreated, com­passionate Word, alone supremely good and alone forbearing, I fall before you, I fervently implore you; in sup­plication I cry to you, ‘I have sinned, save, save me, the Prodigal,<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[1]</span></a> in your compassion, that with thanksgiving I may cry: Lord, give me pardon, and I shall walk in your goodness’.
+O Christ, alone easy to be entreated, com­passionate Word, alone supremely good and alone forbearing, I fall before you, I fervently implore you; in sup­plication I cry to you, ‘I have sinned, save, save me, the Prodigal,<a href="#_ftn1" id="_ftnref1">[1]</a> in your compassion, that with thanksgiving I may cry: Lord, give me pardon, and I shall walk in your goodness’.
 
 All that I have sinned against you, my God,<span style="mso-spacerun: yes">  </span>in words and deeds and in desires, all I confess, now I tell you all; for I have passed through the day and the whole time, but reached the night, full of wickedness; therefore I fall before you as I cry, ‘My Master, Master and Saviour, I have sinned, pardon and save me’.
 
 <span style="color:red">Others, of the Bodiless Powers. Same melody.</span>
 
-Come, let us praise in spiritual songs the princes of the Angels, for, as leaders of all the Bodiless choirs, they are both called Chief Captains and Archangels; for Gabriel is ruler of grace,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[2]</span></a> and the prince of Archangels, Michael, is recognized as com­mander of law and those before Moses.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[3]</span></a>
+Come, let us praise in spiritual songs the princes of the Angels, for, as leaders of all the Bodiless choirs, they are both called Chief Captains and Archangels; for Gabriel is ruler of grace,<a href="#_ftn2" id="_ftnref2">[2]</a> and the prince of Archangels, Michael, is recognized as com­mander of law and those before Moses.<a href="#_ftn3" id="_ftnref3">[3]</a>
 
 Hail, beacon of the Bodiless Powers, hail, Chief Captain of the immaterial choir, initiate and chief messenger of the ineffable mysteries of God, all-blessed Michael, eye-witness of things on high. We entreat you to rescue from all difficulties and dangers those who have recourse to you. For we all present you to the Lord as our kindly defender.
 
@@ -26,9 +26,9 @@ Hail, Captain of the Angels, initiate of ineffable mysteries and minister of God
 
 <span style="color:red">Aposticha of Compunction.</span>
 
-I have sinned against you, O Saviour, like the Prodigal son, receive me repentant, my Father, and have mercy on me, O God<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[4]</span></a>.
+I have sinned against you, O Saviour, like the Prodigal son, receive me repentant, my Father, and have mercy on me, O God<a href="#_ftn4" id="_ftnref4">[4]</a>.
 
-I cry to you, Christ Saviour, with the words of the Publican, ‘Be merciful to me, as to him, and have mercy on me, O God’<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[5]</span></a>.
+I cry to you, Christ Saviour, with the words of the Publican, ‘Be merciful to me, as to him, and have mercy on me, O God’<a href="#_ftn5" id="_ftnref5">[5]</a>.
 
 <span style="color:red">Verse 1.</span> To you I lift up my eyes, to you who are enthroned in the heavens. As the eyes of servants look to the hand of their master: or as the eyes of a maid toward the hand of her mistress, so our eyes look to the Lord our God: until he show us his mercy.
 
@@ -40,7 +40,7 @@ Having no love for earthly enjoyment, the Champions were found worthy of heavenl
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Theotokion*.*</span>
 
-Gate mystically sealed, through which none may pass,<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[6]</span></a> blessed Virgin Mother of God, receive our supplications and bring them to your Son and God, that through you he may save our souls.
+Gate mystically sealed, through which none may pass,<a href="#_ftn6" id="_ftnref6">[6]</a> blessed Virgin Mother of God, receive our supplications and bring them to your Son and God, that through you he may save our souls.
 
 <span style="font-size:18.0pt;mso-bidi-font-size:10.0pt">ON MONDAY EVENING</span>
 
@@ -59,7 +59,7 @@ I have dreadfully defiled my body, I have corrupted my soul and heart with foul 
 
 Hasten, rescue me from temptations, glorious Prophet of the Lord, I implore you; for in vain have the harsh demons who make war on me been moved against me, as they seek to snatch away the soul of your servant like a pitiable sparrow. Do not finally abandon me, but rather let them know that you are my refuge.
 
-All-holy shoot of a barren mother, fair blossom of the wilderness, fair swallow, sweet-voiced nightingale, golden dove, make my ever barren, wretched soul fruitful of good deeds, that it may bring forth a ear that bears a hundredfold,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[7]</span></a> blessed Saint, and offer you praise inspired by God.
+All-holy shoot of a barren mother, fair blossom of the wilderness, fair swallow, sweet-voiced nightingale, golden dove, make my ever barren, wretched soul fruitful of good deeds, that it may bring forth a ear that bears a hundredfold,<a href="#_ftn7" id="_ftnref7">[7]</a> blessed Saint, and offer you praise inspired by God.
 
 Deliver me, I implore you, O Forerunner, from eternal fire, darkness without light, constraint and every affliction, every misery, every tribulation, and show me, who am self-condemned by my offences, to have my part with the saved by your prayers, blessed Saint, where the choirs of the saints are found and where there is inexpressible joy.
 
@@ -69,9 +69,9 @@ Afflictions and dread assaults, and passions of many kinds buffet my miserable s
 
 <span style="color:red">Aposticha of Compunction.</span>
 
-I have sinned against you, Saviour, like the Prodigal Son. Accept me, Father, as I repent and have mercy on me, O God.<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[8]</span></a>
+I have sinned against you, Saviour, like the Prodigal Son. Accept me, Father, as I repent and have mercy on me, O God.<a href="#_ftn8" id="_ftnref8">[8]</a>
 
-I cry to you, Christ Saviour, in the words of the Publican: Be gracious to me as to him, and have mercy on me, O God.<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[9]</span></a>
+I cry to you, Christ Saviour, in the words of the Publican: Be gracious to me as to him, and have mercy on me, O God.<a href="#_ftn9" id="_ftnref9">[9]</a>
 
 <span style="color:red">Of the Martyrs.</span>
 
@@ -89,9 +89,9 @@ italic">Lord, I have cried,</span> <span style="color:red">we insert Prosomia of
 
 <span style="color:red">Tone 2. When from the Tree.</span>
 
-Saviour, when you were nailed to the Cross, the sun, seeing it, was darkened from fear of you and the veil of the Temple was rent, the earth was shaken and the rocks likewise were split apart in terror, not having strength to see their Creator on the Tree, suffering unjustly by his own counsel and mocked by lawless men.<a href="#_ftn10" id="_ftnref10"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[10]</span></a>
+Saviour, when you were nailed to the Cross, the sun, seeing it, was darkened from fear of you and the veil of the Temple was rent, the earth was shaken and the rocks likewise were split apart in terror, not having strength to see their Creator on the Tree, suffering unjustly by his own counsel and mocked by lawless men.<a href="#_ftn10" id="_ftnref10">[10]</a>
 
-The all-evil serpent was utterly cast down to earth, utterly routed and lay a lifeless corpse, when you were lifted up on the Tree, O Lover of mankind. Adam is freed from the curse, and he, before condemned, is saved.<a href="#_ftn11" id="_ftnref11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[11]</span></a> Therefore, we beg, save us too, take pity on all and make us worthy of your Kingdom.
+The all-evil serpent was utterly cast down to earth, utterly routed and lay a lifeless corpse, when you were lifted up on the Tree, O Lover of mankind. Adam is freed from the curse, and he, before condemned, is saved.<a href="#_ftn11" id="_ftnref11">[11]</a> Therefore, we beg, save us too, take pity on all and make us worthy of your Kingdom.
 
 You accept judgement, only King, who are going to judge the universe at your coming; while you wore a crown of thorns, Saviour, Lover of humankind, by your power plucking out the thorn of deception by the roots, implanting the knowledge of your compassion in all those who sing the praise of your crucifixion.
 
@@ -105,13 +105,13 @@ As to a harbour I hasten under your holy protection, pure Virgin Mother, and I b
 
 Glory. Both now.<span style="color:red"> Cross-Theotokion. Same melody.</span>
 
-Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn12" id="_ftnref12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[12]</span></a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, ‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionate’.
+Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn12" id="_ftnref12">[12]</a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, ‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionate’.
 
 <span style="color:red">Aposticha of the Cross.</span>
 
-Save me, Christ Saviour, by the power of the Cross, who saved Peter in the sea,<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[13]</span></a> and have mercy on me, O God.
+Save me, Christ Saviour, by the power of the Cross, who saved Peter in the sea,<a href="#_ftn13" id="_ftnref13">[13]</a> and have mercy on me, O God.
 
-You have revealed the Tree of your Cross as a tree of life,<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[14]</span></a> Christ our God, to us who believe in you; and through it you destroyed the one who held the might of death and made us, who had been slain by sin, alive. And so we cry to you: Benefactor of all, Lord, glory to you.
+You have revealed the Tree of your Cross as a tree of life,<a href="#_ftn14" id="_ftnref14">[14]</a> Christ our God, to us who believe in you; and through it you destroyed the one who held the might of death and made us, who had been slain by sin, alive. And so we cry to you: Benefactor of all, Lord, glory to you.
 
 <span style="color:red">Of the Martyrs.</span>
 
@@ -149,9 +149,9 @@ You are the whole strength of our life and our refuge, Immaculate Mother. You ar
 
 <span style="color:red">Aposticha of the Apostles.</span>
 
-You have magnified the names of the Princes of the Apostles in the inhabited world, O Saviour. They learned the ineffable mysteries of heaven, they gave healings to those on earth, and their shadows<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[15]</span></a> alone cured the passions. The one who was a fisherman worked wonders; the one who was a Jew taught the doctrines of grace. Through them, O Compassionate, grant us your great mercy.
+You have magnified the names of the Princes of the Apostles in the inhabited world, O Saviour. They learned the ineffable mysteries of heaven, they gave healings to those on earth, and their shadows<a href="#_ftn15" id="_ftnref15">[15]</a> alone cured the passions. The one who was a fisherman worked wonders; the one who was a Jew taught the doctrines of grace. Through them, O Compassionate, grant us your great mercy.
 
-We who are warred upon from every side and take refuge in you, who alone are truly God, offer you the words of your Disciples as we say, ‘Save us, Teacher, we are perishing’.<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[16]</span></a> Show now also to our enemies, we beg, that you protect your people and, at the intercession of the Apostles, save them from dangers, overlooking their sins through your great goodness. Lord, glory to you.
+We who are warred upon from every side and take refuge in you, who alone are truly God, offer you the words of your Disciples as we say, ‘Save us, Teacher, we are perishing’.<a href="#_ftn16" id="_ftnref16">[16]</a> Show now also to our enemies, we beg, that you protect your people and, at the intercession of the Apostles, save them from dangers, overlooking their sins through your great goodness. Lord, glory to you.
 
 <span style="color:red">Of the Martyrs.</span>
 
@@ -169,9 +169,9 @@ italic">Lord, I have cried,</span><span style="color:red"> Prosomia of the Cross
 
 <span style="color:red">Tone 2. When from the Tree.</span>
 
-Saviour, when you were nailed to the Cross, the sun, seeing it, was darkened from fear of you and the veil of the Temple was rent, the earth was shaken and the rocks likewise were split apart in terror, not having strength to see their Creator on the Tree, suffering unjustly by his own counsel and mocked by lawless men.<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[17]</span></a>
+Saviour, when you were nailed to the Cross, the sun, seeing it, was darkened from fear of you and the veil of the Temple was rent, the earth was shaken and the rocks likewise were split apart in terror, not having strength to see their Creator on the Tree, suffering unjustly by his own counsel and mocked by lawless men.<a href="#_ftn17" id="_ftnref17">[17]</a>
 
-The all-evil serpent was utterly cast down to earth, utterly routed and lay a lifeless corpse, when you were lifted up on the Tree, O Lover of mankind. Adam is freed from the curse, and he, before condemned, is saved.<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[18]</span></a> Therefore, we beg, save us too, take pity on all and make us worthy of your Kingdom.<span style="font-family: Times New Roman; letter-spacing: 0pt"> </span>
+The all-evil serpent was utterly cast down to earth, utterly routed and lay a lifeless corpse, when you were lifted up on the Tree, O Lover of mankind. Adam is freed from the curse, and he, before condemned, is saved.<a href="#_ftn18" id="_ftnref18">[18]</a> Therefore, we beg, save us too, take pity on all and make us worthy of your Kingdom.<span style="font-family: Times New Roman; letter-spacing: 0pt"> </span>
 
 When, by a Tree, the lawless people, slew you, the life of all, O Saviour, then all creation trembled with fear, the palaces of Hell and the might of death were utterly destroyed by your divine power. Then too Adam the forefather cried out to you with joy, ‘Glory to your condescension, O Lover of humankind’.
 
@@ -179,15 +179,15 @@ When, by a Tree, the lawless people, slew you, the life of all, O Saviour, then 
 
 Assent to the prayers of your suppliants, Pure Virgin, and grant us springs of tears, that we may wash away the stains of our offences, O All-blameless, and quench the flame of everlasting and most bitter fire. For you fulfil the requests of those who with their whole heart call on you, the Mother of the Master.
 
-Storm-tossed by a tempest of contrary thoughts and by life’s waves, borne hither and thither by disordered spirits of the dread ruler of this world,<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[19]</span></a> I cry to you, O Virgin, ‘Hasten to rescue me from the dangers that hold me fast’, so that with a thankful heart I may proclaim your mighty deeds to all the faithful, O Full of God’s grace.
+Storm-tossed by a tempest of contrary thoughts and by life’s waves, borne hither and thither by disordered spirits of the dread ruler of this world,<a href="#_ftn19" id="_ftnref19">[19]</a> I cry to you, O Virgin, ‘Hasten to rescue me from the dangers that hold me fast’, so that with a thankful heart I may proclaim your mighty deeds to all the faithful, O Full of God’s grace.
 
 Pure Sovereign Lady, see my weakness and the misery of my wretched soul and the affliction of my heart, and scatter the counsels of invisible foes, who assail me and make fearful war on me. For you, who gave birth to God, can grant redemption to those in mortal dangers.
 
 <span style="color:red">Aposticha of the Cross.</span>
 
-Save me, Christ Saviour, by the power of the Cross, who saved Peter in the sea,<a href="#_ftn20" id="_ftnref20"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[20]</span></a> and have mercy on me, O God.
+Save me, Christ Saviour, by the power of the Cross, who saved Peter in the sea,<a href="#_ftn20" id="_ftnref20">[20]</a> and have mercy on me, O God.
 
-You have revealed the Tree of your Cross as a tree of life,<a href="#_ftn21" id="_ftnref21"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[21]</span></a> Christ our God, to us who believe in you; and through it you destroyed the one who held the might of death and made us, who had been slain by sin, alive. And so we cry to you: Benefactor of all, Lord, glory to you.
+You have revealed the Tree of your Cross as a tree of life,<a href="#_ftn21" id="_ftnref21">[21]</a> Christ our God, to us who believe in you; and through it you destroyed the one who held the might of death and made us, who had been slain by sin, alive. And so we cry to you: Benefactor of all, Lord, glory to you.
 
 <span style="color:red">Of the Martyrs.</span>
 
@@ -195,7 +195,7 @@ The Champions did not long for earthly pleasure and so were found worthy of heav
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Cross-Theotokion. When from the Tree.</span>
 
-Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[22]</span></a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, ‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionate’.
+Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn22" id="_ftnref22">[22]</a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, ‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionate’.
 
 <span style="text-transform:none"></span>
 
@@ -207,23 +207,23 @@ italic">Lord, I have cried</span><span style="color:red">, Prosomia of the Lord.
 
 <span style="color:red">Tone 2. When from the Tree.</span>
 
-When you come in glory, O Christ, with the holy Angels to judge the universe, when all stand naked before you to give a defence of what they have done, then rank me with your sheep, O Word, granting me release from all the offences, by which in my life I have offended.<a href="#_ftn23" id="_ftnref23"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[23]</span></a>
+When you come in glory, O Christ, with the holy Angels to judge the universe, when all stand naked before you to give a defence of what they have done, then rank me with your sheep, O Word, granting me release from all the offences, by which in my life I have offended.<a href="#_ftn23" id="_ftnref23">[23]</a>
 
-Tear up the cords of my passions, dry up the putrefaction of my soul, only Lover of mankind, give me tears of compunction, enlighten my darkened heart, rescue me, I pray, from trouble, the storm of hostile disasters and from temptations of many kinds, from the dread foe and ruler of the world.<a href="#_ftn24" id="_ftnref24"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[24]</span></a>
+Tear up the cords of my passions, dry up the putrefaction of my soul, only Lover of mankind, give me tears of compunction, enlighten my darkened heart, rescue me, I pray, from trouble, the storm of hostile disasters and from temptations of many kinds, from the dread foe and ruler of the world.<a href="#_ftn24" id="_ftnref24">[24]</a>
 
 Consider in your mind, my soul, that most dreaded hour of the judgement, when fear will seize all creation and the Most High takes his seat on the fearful throne to exact an account of all that we have done; hurry, be reconciled to the Judge and cry out: I have sinned against you, Lord, save me!
 
 <span style="color:red">Others, of the Mother of God. Same melody.</span>
 
-Wholly enslaved since my youth to shameful passions and great depravity, I have completely blackened that which is in God’s image<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[25]</span></a> and I quail, All-praised Lady, at the judgement to come, when I shall stand before your Son and God. Now therefore, before the end, Pure Virgin, give me cleansing of my passions and redemption of offences.
+Wholly enslaved since my youth to shameful passions and great depravity, I have completely blackened that which is in God’s image<a href="#_ftn25" id="_ftnref25">[25]</a> and I quail, All-praised Lady, at the judgement to come, when I shall stand before your Son and God. Now therefore, before the end, Pure Virgin, give me cleansing of my passions and redemption of offences.
 
-I tremble at the judgement seat, the eternal penalty of the fire, the sentence, against which there is truly no appeal, the gnashing of teeth<a href="#_ftn26" id="_ftnref26"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[26]</span></a> and the savagery of the worm that does not sleep,<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[27]</span></a> All-blameless Virgin. Therefore in anguish of heart I implore you to deliver me from the fearful condemnation.
+I tremble at the judgement seat, the eternal penalty of the fire, the sentence, against which there is truly no appeal, the gnashing of teeth<a href="#_ftn26" id="_ftnref26">[26]</a> and the savagery of the worm that does not sleep,<a href="#_ftn27" id="_ftnref27">[27]</a> All-blameless Virgin. Therefore in anguish of heart I implore you to deliver me from the fearful condemnation.
 
-When my soul is about to be forcibly parted from my body’s limbs, then stand by my side and scatter the counsels of my bodiless foes and smash the teeth of those who implacably seek to swallow me down, so that I may pass unhindered through the rulers of darkness who wait in the air,<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[28]</span></a> O Bride of God.
+When my soul is about to be forcibly parted from my body’s limbs, then stand by my side and scatter the counsels of my bodiless foes and smash the teeth of those who implacably seek to swallow me down, so that I may pass unhindered through the rulers of darkness who wait in the air,<a href="#_ftn28" id="_ftnref28">[28]</a> O Bride of God.
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Theotokion.</span>
 
-The shadow of the law<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[29]</span></a> has passed away now that grace has come, for as the Bush in flames was not burned,<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[30]</span></a> so as a virgin you bore a child and remained a virgin; instead of a pillar of fire<a href="#_ftn31" id="_ftnref31"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[31]</span></a> the Sun of justice<a href="#_ftn32" id="_ftnref32"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[32]</span></a> has dawned, instead of Moses Christ, the salvation of our souls.
+The shadow of the law<a href="#_ftn29" id="_ftnref29">[29]</a> has passed away now that grace has come, for as the Bush in flames was not burned,<a href="#_ftn30" id="_ftnref30">[30]</a> so as a virgin you bore a child and remained a virgin; instead of a pillar of fire<a href="#_ftn31" id="_ftnref31">[31]</a> the Sun of justice<a href="#_ftn32" id="_ftnref32">[32]</a> has dawned, instead of Moses Christ, the salvation of our souls.
 
 <span style="color:red">Aposticha of the Martyrs.</span>
 
@@ -241,7 +241,7 @@ Great is the glory that you have gained through faith, O Saints; for not only di
 
 <span style="color:red">Of the Dead.</span>
 
-As a flower withers and as a dream passes, so too every human dies; but once again, when the trumpet sounds<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[33]</span></a> all the dead, as by an earthquake will arise to meet you, Christ God; then, Master, establish those whom you have taken over from us in the tents of your Saints,<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[34]</span></a> the spirits of your servants, O Christ.
+As a flower withers and as a dream passes, so too every human dies; but once again, when the trumpet sounds<a href="#_ftn33" id="_ftnref33">[33]</a> all the dead, as by an earthquake will arise to meet you, Christ God; then, Master, establish those whom you have taken over from us in the tents of your Saints,<a href="#_ftn34" id="_ftnref34">[34]</a> the spirits of your servants, O Christ.
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Theotokion.</span>
 
@@ -249,107 +249,73 @@ All my hope I place in you, O Mother of the light; guard me beneath your protect
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[1]</span></a> Luke 15,18.
+<a href="#_ftnref1" id="_ftn1">[1]</a> Luke 15,18.
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[2]</span></a> Cf. John 1,17 and Luke 1,28 ‘Hail, full of grace’.
+<a href="#_ftnref2" id="_ftn2">[2]</a> Cf. John 1,17 and Luke 1,28 ‘Hail, full of grace’.
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[3]</span></a> Cf. John 1,17.
+<a href="#_ftnref3" id="_ftn3">[3]</a> Cf. John 1,17.
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[4]</span></a> Luke 15,18.
+<a href="#_ftnref4" id="_ftn4">[4]</a> Luke 15,18.
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[5]</span></a> Luke 18,13.
+<a href="#_ftnref5" id="_ftn5">[5]</a> Luke 18,13.
 
-<a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[6]</span></a> Ezekiel 44,1-2.
+<a href="#_ftnref6" id="_ftn6">[6]</a> Ezekiel 44,1-2.
 
-<a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[7]</span></a> Matthew 13,8.
+<a href="#_ftnref7" id="_ftn7">[7]</a> Matthew 13,8.
 
-<a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[8]</span></a> Luke 15,18.
+<a href="#_ftnref8" id="_ftn8">[8]</a> Luke 15,18.
 
-<a href="#_ftnref9" id="_ftn9"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[9]</span></a><span class="MsoFootnoteReference"> </span>Luke 18,13.
+<a href="#_ftnref9" id="_ftn9">[9]</a> Luke 18,13.
 
-<a href="#_ftnref10" id="_ftn10"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[10]</span></a> Matthew 27,38-51.
+<a href="#_ftnref10" id="_ftn10">[10]</a> Matthew 27,38-51.
 
-<a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[11]</span></a> Genesis 3,17-19.
+<a href="#_ftnref11" id="_ftn11">[11]</a> Genesis 3,17-19.
 
-<a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[12]</span></a> Cf. Numbers 13,23.
+<a href="#_ftnref12" id="_ftn12">[12]</a> Cf. Numbers 13,23.
 
-<a href="#_ftnref13" id="_ftn13"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[13]</span></a> Matthew 14,28-31.
+<a href="#_ftnref13" id="_ftn13">[13]</a> Matthew 14,28-31.
 
-<a href="#_ftnref14" id="_ftn14"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[14]</span></a> Genesis 2,9.
+<a href="#_ftnref14" id="_ftn14">[14]</a> Genesis 2,9.
 
-<a href="#_ftnref15" id="_ftn15"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[15]</span></a> Acts 5,15.
+<a href="#_ftnref15" id="_ftn15">[15]</a> Acts 5,15.
 
-<a href="#_ftnref16" id="_ftn16"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[16]</span></a> Matthew 8,25.
+<a href="#_ftnref16" id="_ftn16">[16]</a> Matthew 8,25.
 
-<a href="#_ftnref17" id="_ftn17"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[17]</span></a> Matthew 27,38-51.
+<a href="#_ftnref17" id="_ftn17">[17]</a> Matthew 27,38-51.
 
-<a href="#_ftnref18" id="_ftn18"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[18]</span></a> Genesis 3,17-19.
+<a href="#_ftnref18" id="_ftn18">[18]</a> Genesis 3,17-19.
 
-<a href="#_ftnref19" id="_ftn19"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[19]</span></a> Ephesians 6,12.
+<a href="#_ftnref19" id="_ftn19">[19]</a> Ephesians 6,12.
 
-<a href="#_ftnref20" id="_ftn20"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[20]</span></a> Matthew 14,28-31.
+<a href="#_ftnref20" id="_ftn20">[20]</a> Matthew 14,28-31.
 
-<a href="#_ftnref21" id="_ftn21"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[21]</span></a> Genesis 2,9.
+<a href="#_ftnref21" id="_ftn21">[21]</a> Genesis 2,9.
 
-<a href="#_ftnref22" id="_ftn22"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[22]</span></a> Cf. Numbers 13,23.
+<a href="#_ftnref22" id="_ftn22">[22]</a> Cf. Numbers 13,23.
 
-<a href="#_ftnref23" id="_ftn23"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[23]</span></a> Matthew 25,31-33.
+<a href="#_ftnref23" id="_ftn23">[23]</a> Matthew 25,31-33.
 
-<a href="#_ftnref24" id="_ftn24"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[24]</span></a> Ephesians 6,12.
+<a href="#_ftnref24" id="_ftn24">[24]</a> Ephesians 6,12.
 
-<a href="#_ftnref25" id="_ftn25"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[25]</span></a> Genesis 1,27.
+<a href="#_ftnref25" id="_ftn25">[25]</a> Genesis 1,27.
 
-<a href="#_ftnref26" id="_ftn26"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[26]</span></a> Matthew 13,42.
+<a href="#_ftnref26" id="_ftn26">[26]</a> Matthew 13,42.
 
-<a href="#_ftnref27" id="_ftn27"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[27]</span></a> Mark 9,48.
+<a href="#_ftnref27" id="_ftn27">[27]</a> Mark 9,48.
 
-<a href="#_ftnref28" id="_ftn28"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[28]</span></a> Ephesians 6,12.
+<a href="#_ftnref28" id="_ftn28">[28]</a> Ephesians 6,12.
 
-<a href="#_ftnref29" id="_ftn29"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[29]</span></a> Hebrews 10,1.
+<a href="#_ftnref29" id="_ftn29">[29]</a> Hebrews 10,1.
 
-<a href="#_ftnref30" id="_ftn30"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[30]</span></a> Exodus 3,2.
+<a href="#_ftnref30" id="_ftn30">[30]</a> Exodus 3,2.
 
-<a href="#_ftnref31" id="_ftn31"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[31]</span></a> Exodus 13,21.
+<a href="#_ftnref31" id="_ftn31">[31]</a> Exodus 13,21.
 
-<a href="#_ftnref32" id="_ftn32"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[32]</span></a> Malachy 3,20 (4,2).
+<a href="#_ftnref32" id="_ftn32">[32]</a> Malachy 3,20 (4,2).
 
-<a href="#_ftnref33" id="_ftn33"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[33]</span></a> 1 Corinthians 15,52.
+<a href="#_ftnref33" id="_ftn33">[33]</a> 1 Corinthians 15,52.
 
-<a href="#_ftnref34" id="_ftn34"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[34]</span></a> Cf. Psalm 117,15.
+<a href="#_ftnref34" id="_ftn34">[34]</a> Cf. Psalm 117,15.
 
  
 

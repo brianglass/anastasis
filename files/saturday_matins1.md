@@ -63,7 +63,7 @@ Glory. Both now. <span style="color:red">Theotokion.</span>
 Hail Mary, Mother of God, for you gave birth to the King, the Saviour and radiance of all the ages.
 
 <span style="color:red;mso-bidi-font-style:italic">If </span>Alleluia ** <span style="color:red;mso-bidi-font-style:
-italic">is sung we say the above Verses of the Martyrs at Lauds; but at the Aposticha the following Prosomia, composed by Theophanes. Their Acrostic is:<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a></span>
+italic">is sung we say the above Verses of the Martyrs at Lauds; but at the Aposticha the following Prosomia, composed by Theophanes. Their Acrostic is:<a href="#_ftn1" id="_ftnref1">[1]</a></span>
 
 Write your servants, O Christ, in the book of the living.
 
@@ -89,7 +89,7 @@ Implore Christ, your child, O Virgin Mother, to grant pardon of offences to your
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This acrostic goes through all eight tones.</span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This acrostic goes through all eight tones.</span>
 
  
 

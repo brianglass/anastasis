@@ -19,17 +19,16 @@ mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">The usual readin
 10.0pt;color:red;font-style:normal">Tone 6. Having invested all.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The revered gathering of the wise Fathers proclaimed you, O Lover of mankind, the uncircumscribed and indescribable Word who became flesh for our sake, to be perfect God and perfect man, double in natures and energies and wills;<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a> one and the same by hypostasis; therefore knowing you to be one God with the Father and the Spirit, we worship you as we call the Fathers blessed.</span>
+mso-bidi-font-size:10.0pt">The revered gathering of the wise Fathers proclaimed you, O Lover of mankind, the uncircumscribed and indescribable Word who became flesh for our sake, to be perfect God and perfect man, double in natures and energies and wills;<a href="#_ftn1" id="_ftnref1">[1]</a> one and the same by hypostasis; therefore knowing you to be one God with the Father and the Spirit, we worship you as we call the Fathers blessed.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Glorious Fathers, you overthrew Pyrrhus<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> and Sergios,<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[3]</span></a> with Honorius,<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> Eftyches,<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> Dioskoros<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> and dread Nestorios,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a> saving Christ’s flock from both sheer cliffs by radiantly proclaiming Christ one by hypostasis, but double in natures, revealed by energies alone; as we also worship him as man and perfect God, with the Father and the Spirit, we now glorify you.</span>
+mso-bidi-font-size:10.0pt">Glorious Fathers, you overthrew Pyrrhus<a href="#_ftn2" id="_ftnref2">[2]</a> and Sergios,<a href="#_ftn3" id="_ftnref3">[3]</a> with Honorius,<a href="#_ftn4" id="_ftnref4">[4]</a> Eftyches,<a href="#_ftn5" id="_ftnref5">[5]</a> Dioskoros<a href="#_ftn6" id="_ftnref6">[6]</a> and dread Nestorios,<a href="#_ftn7" id="_ftnref7">[7]</a> saving Christ’s flock from both sheer cliffs by radiantly proclaiming Christ one by hypostasis, but double in natures, revealed by energies alone; as we also worship him as man and perfect God, with the Father and the Spirit, we now glorify you.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">The God-bearing Fathers with one accord proclaimed to be uncreated the divine energy and the divine will of the One who became a beggar, as they allotted my humanity to the flesh, while the blessed Saints wisely fled from the createdness of the energy and will, the confusion of nature and the separation of the person. We faithful, as we honour them with yearly festivals, with one accord glorify Christ who glorified them.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The God-bearing Fathers with one mind today proclaimed the uncreated Trinity to be one God and Lord, fittingly demonstrating to all the simplicity of the one nature,<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a> with common will and simplicity of energy, making him known through all things as without beginning and without end; therefore we sing their praise all as imitators of the Apostles and all teachers of their Gospel.</span>
+mso-bidi-font-size:10.0pt">The God-bearing Fathers with one mind today proclaimed the uncreated Trinity to be one God and Lord, fittingly demonstrating to all the simplicity of the one nature,<a href="#_ftn8" id="_ftnref8">[8]</a> with common will and simplicity of energy, making him known through all things as without beginning and without end; therefore we sing their praise all as imitators of the Apostles and all teachers of their Gospel.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Glory.<span style="mso-bidi-font-style:italic"> **Tone 6.**</span></span>
 
@@ -45,7 +44,7 @@ mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">Entrance,</span>
 \[<span style="color:red">14:14-20</span>\]</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants, three hundred and eighteen,<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[9]</span></a> and pursued the enemy as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologomor and the kings with him, to the valley of Sabi; this was the plain of Kings. And Melchizedek, king of Salem, brought out bread and wine; he was Priest of God Most High. And he blessed Abram and said: Blessed is Abram by God Most High, who created the heaven and the earth. And blessed God is Most High, who has delivered your enemies into your hand.</span>
+mso-bidi-font-size:10.0pt">Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants, three hundred and eighteen,<a href="#_ftn9" id="_ftnref9">[9]</a> and pursued the enemy as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologomor and the kings with him, to the valley of Sabi; this was the plain of Kings. And Melchizedek, king of Salem, brought out bread and wine; he was Priest of God Most High. And he blessed Abram and said: Blessed is Abram by God Most High, who created the heaven and the earth. And blessed God is Most High, who has delivered your enemies into your hand.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Deuteronomy.
 \[<span style="color:red">1:8-11 & 15-17b</span>\]</span>
@@ -124,10 +123,10 @@ mso-bidi-font-size:10.0pt">As through God’s action you con­tained in your wom
 Tone 8. The wonderworking staff.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The devout gathering of the Fathers, which was welded together against Eftyches, following and abiding by the teachings of the godlike Father, Cyril,<a href="#_ftn10" id="_ftnref10"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[10]</span></a> truly defined the Saviour with two undivided natures.</span>
+mso-bidi-font-size:10.0pt">The devout gathering of the Fathers, which was welded together against Eftyches, following and abiding by the teachings of the godlike Father, Cyril,<a href="#_ftn10" id="_ftnref10">[10]</a> truly defined the Saviour with two undivided natures.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The three hundred and sixty<a href="#_ftn11" id="_ftnref11"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[11]</span></a> most devout men overthrew the error of Eftyches and the heresy of Severos when they said: We proclaim Christ in two essences, following the words of the blessed Cyril.</span>
+mso-bidi-font-size:10.0pt">The three hundred and sixty<a href="#_ftn11" id="_ftnref11">[11]</a> most devout men overthrew the error of Eftyches and the heresy of Severos when they said: We proclaim Christ in two essences, following the words of the blessed Cyril.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">Anyone who does not proclaim Christ, the Word of the Father, in the two natures and energies, let them be anathema; for the fourth Council of the Holy Fathers thus wisely laid down. Therefore let us all call them blessed.</span>
@@ -494,28 +493,28 @@ mso-bidi-font-size:10.0pt">The choir of holy Fathers, having hurried together fr
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In fact the doctrine of the two wills and ‘energies’ in Christ was only defined at the 6th Council at Constantinople in 681.</span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In fact the doctrine of the two wills and ‘energies’ in Christ was only defined at the 6th Council at Constantinople in 681.</span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Monothelite Patriarch of Constantinople from 638-641 and for the first six months of 654.</span>
+<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Monothelite Patriarch of Constantinople from 638-641 and for the first six months of 654.</span>
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Constantinople from 610-638. Propounded the doctrine of Two Natures but only one mode of activity, </span><span style="font-size: 12.0pt; mso-bidi-font-size: 10.0pt">*energeia*</span><span style="font-size:12.0pt;mso-bidi-font-size:
+<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Constantinople from 610-638. Propounded the doctrine of Two Natures but only one mode of activity, </span><span style="font-size: 12.0pt; mso-bidi-font-size: 10.0pt">*energeia*</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt">, in Christ. He was the author of the *Ekthesis* which put it forward. His doctrine was condemned in 681.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Pope of Rome from 625-638. In a letter supporting Patriarch Sergios he used the expression ‘one will’ in speaking of Christ. This doctrine of ‘Monothelitism’ was condemned and Honorius anathematised at the Council of 681.</span>
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Pope of Rome from 625-638. In a letter supporting Patriarch Sergios he used the expression ‘one will’ in speaking of Christ. This doctrine of ‘Monothelitism’ was condemned and Honorius anathematised at the Council of 681.</span>
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Archimandrite of a monastery in Constantinople, he taught that there was only one nature in Christ ‘after the union’ .This doctrine of Monophysitism was condemned at the 4th Council of Chalcedon. He also taught Christ’s human nature was not consubstantial with ours.</span>
+<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Archimandrite of a monastery in Constantinople, he taught that there was only one nature in Christ ‘after the union’ .This doctrine of Monophysitism was condemned at the 4th Council of Chalcedon. He also taught Christ’s human nature was not consubstantial with ours.</span>
 
-<a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> St Cyril’s successor as Patriarch of Alexandria from 444-451, he supported the doctrine of Monophysitism. He was deposed at the Council of Chalcedon.</span>
+<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> St Cyril’s successor as Patriarch of Alexandria from 444-451, he supported the doctrine of Monophysitism. He was deposed at the Council of Chalcedon.</span>
 
-<a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[7]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Antioch 512-518, when he was deposed for denouncing the Council of Chalcedon as Nestorian. A moderate Monophysite, he condemned Eftyches. He died in exile in 538.</span>
+<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Antioch 512-518, when he was deposed for denouncing the Council of Chalcedon as Nestorian. A moderate Monophysite, he condemned Eftyches. He died in exile in 538.</span>
 
-<a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[8]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron speaks of the Trinity, not of the incarnate Christ.</span>
+<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron speaks of the Trinity, not of the incarnate Christ.</span>
 
-<a href="#_ftnref9" id="_ftn9"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[9]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The traditional number of the Fathers of the 1st Council of Nicea.</span>
+<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The traditional number of the Fathers of the 1st Council of Nicea.</span>
 
-<a href="#_ftnref10" id="_ftn10"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[10]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Alexandria 412-444. Chief opponent of Nestorios at the Council of Ephesus.</span>
+<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Alexandria 412-444. Chief opponent of Nestorios at the Council of Ephesus.</span>
 
-<a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[11]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The traditional number of the Fathers at Chalcedon.</span>
+<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The traditional number of the Fathers at Chalcedon.</span>
 
  
 

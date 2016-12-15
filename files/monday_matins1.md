@@ -79,7 +79,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;font-style:normal;
-mso-bidi-font-style:italic">Canon of compunction, of which the acrostic</span><a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 14.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; font-style: normal">[1]</span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+mso-bidi-font-style:italic">Canon of compunction, of which the acrostic</span><a href="#_ftn1" id="_ftnref1">[1]</a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic"> is</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">
 Give me showers of tears, O Word of God. Joseph.</span>
 
@@ -169,7 +169,7 @@ font-family:&quot;Book Antiqua&quot;">Mary, censer of gold, drive away the foul 
 color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">“The bow of the powerful was smashed by your might, O Christ, and the weak girded themselves with you, their power.”<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a></span>
+font-family:&quot;Book Antiqua&quot;">“The bow of the powerful was smashed by your might, O Christ, and the weak girded themselves with you, their power.”<a href="#_ftn2" id="_ftnref2">[2]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -319,7 +319,7 @@ font-family:&quot;Book Antiqua&quot;">From all generations the Maker chose you, 
 color:red;font-style:normal;mso-bidi-font-style:italic">Another Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">\[“Having listened to the sound of the words of my supplication, Master, from the anguish of my soul, rescue me from disasters; for you alone are the cause of our salvation.”\]<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a></span>
+font-family:&quot;Book Antiqua&quot;">\[“Having listened to the sound of the words of my supplication, Master, from the anguish of my soul, rescue me from disasters; for you alone are the cause of our salvation.”\]<a href="#_ftn3" id="_ftnref3">[3]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -465,7 +465,7 @@ font-family:&quot;Book Antiqua&quot;">Spare me, Lord, spare me, when you come to
 color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">\[“You are all desire, you are all sweetness, O Word of God, Son of the Virgin, God of gods, Lord, Holiest of the Holy. And so, with her who gave you birth, we all magnify you.”\]<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a></span>
+font-family:&quot;Book Antiqua&quot;">\[“You are all desire, you are all sweetness, O Word of God, Son of the Virgin, God of gods, Lord, Holiest of the Holy. And so, with her who gave you birth, we all magnify you.”\]<a href="#_ftn4" id="_ftnref4">[4]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Clothed in snow white robes the shining Angels appeared, symbolically making clear to the godly Disciples your second Coming, O Christ. With them, as we contemplate your godhead, we all magnify you.</span>
@@ -505,13 +505,13 @@ italic">Theotokion.</span></span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Excluding the Theotokia of Odes 1-7.</span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Excluding the Theotokia of Odes 1-7.</span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Although this is the Irmos, it is sung as part of the Ode, since without it the acrostic would be defective.</span>
+<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Although this is the Irmos, it is sung as part of the Ode, since without it the acrostic would be defective.</span>
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">This Irmos does not form part of the acrostic, though the Ode is one troparion short.</span>
+<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">This Irmos does not form part of the acrostic, though the Ode is one troparion short.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">This Irmos does not form part of the acrostic, but the Ode is one troparion short.</span>
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">This Irmos does not form part of the acrostic, but the Ode is one troparion short.</span>
 
  
 

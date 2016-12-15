@@ -20,6 +20,7 @@ def transform(filename):
     htmlfile = open(filename, encoding='latin-1')
     tree = html.parse(htmlfile, parser=parser)
 
+    # Frontpage seems to use <font> tags to indicate headings
     for node in tree.xpath('//font'):
         size = int(node.get('size')) if 'size' in node.attrib else None
         color = node.get('color').lower() if 'color' in node.attrib else ''
@@ -35,6 +36,7 @@ def transform(filename):
         elif size == 4:
             node.drop_tag()
 
+    # We rewrite all the urls to point to MD files instead of HTM
     for node in tree.xpath('//a[@href]'):
         href = node.get('href')
 
@@ -42,9 +44,13 @@ def transform(filename):
             basename, extension = href.split('.')
         except ValueError:
             continue
+        else:
+            if extension.startswith('htm'):
+                node.set('href', '{}.{}'.format(basename, 'md'))
 
-        if extension.startswith('htm'):
-            node.set('href', '{}.{}'.format(basename, 'md'))
+    # Pandoc passes this through, cluttering up the final markdown
+    for node in tree.xpath('//span[@class="MsoFootnoteReference"]'):
+        node.drop_tag()
 
     return etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
 
@@ -54,8 +60,6 @@ def convert_html_file(filepath):
     path, filename = os.path.split(filepath)
     basename, extension = filename.split('.')
     output_path = 'files/{}.md'.format(basename)
-
-    open(output_path, 'w', encoding='utf-8').write(transformed_html)
 
     f = pipeline.open(output_path, 'w')
     f.write(transformed_html)

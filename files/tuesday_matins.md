@@ -48,7 +48,7 @@ As you are source of compassion.**
 0pt">Who has known, who has heard of Mother giving birth to her own Creator? Without knowing man giving suck to the one who gives food to all flesh? O the wonder! Your womb, Mother of God full of grace, was revealed as the Cherubim throne. Intercede on behalf of our souls.</span>
 
 **Canon of compunction, whose acrostic is:**<span style="color:windowtext">
-Grant space to my lamentations, O Saviour. Joseph.<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a></span>
+Grant space to my lamentations, O Saviour. Joseph.<a href="#_ftn1" id="_ftnref1">[1]</a></span>
 
 **Ode 1. Tone 2. Irmos.**
 
@@ -83,7 +83,7 @@ Baptist, accept this supplication. Joseph.</span>
 
 **Theotokion.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Blessed Forerunner, you were the kinsman of the pure Virgin who gave God a body. With her we honour you and we, who now walk within your holy place,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> implore, ‘Make us houses of the Spirit’.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Blessed Forerunner, you were the kinsman of the pure Virgin who gave God a body. With her we honour you and we, who now walk within your holy place,<a href="#_ftn2" id="_ftnref2">[2]</a> implore, ‘Make us houses of the Spirit’.</span>
 
 **Ode 3. The Irmos.**
 
@@ -111,7 +111,7 @@ Baptist, accept this supplication. Joseph.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Brought to birth by God’s foreknowledge, wise Prophet, you released the one who gave you birth from barrenness. Therefore, Forerunner of the Lord, now make my barren heart fruitful, bearing shoots of virtues.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Baptist and Forerunner, implore that the godly house, constructed for you with love,<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a> may attain the inheritance on high. By your mediations make those who serve with faith in your sacred enclosure temples of the divine Spirit.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Baptist and Forerunner, implore that the godly house, constructed for you with love,<a href="#_ftn3" id="_ftnref3">[3]</a> may attain the inheritance on high. By your mediations make those who serve with faith in your sacred enclosure temples of the divine Spirit.</span>
 
 **Theotokion.**
 
@@ -331,17 +331,17 @@ The Son of the Father without beginning.**</span>
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Glory. Both now. <span style="color:red">Theotokion</span></span>
 
 <span style="letter-spacing:
-0pt">Hail Mary, Mother of God, Temple that cannot be destroyed, but rather is Holy, as the Prophet cried, </span><span style="mso-font-kerning:10.0pt">‘Holy is your Temple, wonderful in righteousness‘<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a>.</span><span style="letter-spacing:0pt"></span>
+0pt">Hail Mary, Mother of God, Temple that cannot be destroyed, but rather is Holy, as the Prophet cried, </span><span style="mso-font-kerning:10.0pt">‘Holy is your Temple, wonderful in righteousness‘<a href="#_ftn4" id="_ftnref4">[4]</a>.</span><span style="letter-spacing:0pt"></span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This acrostic allows for a second ode, which is no longer used.</span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This acrostic allows for a second ode, which is no longer used.</span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios, which was dedicated to St John the Baptist, and of which St Joseph was a monk.</span>
+<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios, which was dedicated to St John the Baptist, and of which St Joseph was a monk.</span>
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios.<span style="mso-spacerun: yes"> </span></span>
+<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios.<span style="mso-spacerun: yes"> </span></span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 64:5</span>
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 64:5</span>
 
  
 

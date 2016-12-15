@@ -6,8 +6,7 @@
 <span style="mso-bidi-font-size: 10.0pt">ON THE PROFLIGATE SON</span>
 =====================================================================
 
-<span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[1]</span></a></span>
+<span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><a href="#_ftn1" id="_ftnref1">[1]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:
@@ -608,7 +607,7 @@ Master and Lord of the ages.</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This translation of St Romanos’s kontakion for the Second Sunday of Lent is taken from my book, *On The Life of Christ. Kontakia*, ** published for the International Sacred Literature Trust by AltaMira Press \[ISBN 0-06-064943-7\], which includes notes and introduction. </span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This translation of St Romanos’s kontakion for the Second Sunday of Lent is taken from my book, *On The Life of Christ. Kontakia*, ** published for the International Sacred Literature Trust by AltaMira Press \[ISBN 0-06-064943-7\], which includes notes and introduction. </span>
 
  
 

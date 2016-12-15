@@ -289,7 +289,7 @@ mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses
 </span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:
 &quot;Book Antiqua&quot;"> The Seventy Apostles fair renowned
 To praise them thus together is most fit.
-And on the fourth of the month far famed are the men that I honour.<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a></span>
+And on the fourth of the month far famed are the men that I honour.<a href="#_ftn1" id="_ftnref1">[1]</a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">On the same day, our Venerable Father Theoctistos, Superior of the monastery in Koukoumos in Sicily, died in peace.</span><span style="font-size:13.5pt;
 font-family:&quot;Book Antiqua&quot;"></span>
@@ -445,7 +445,7 @@ To-day Christ bestows saving redemption on mankind, cleansing the stain of souls
 
 The rest of the office of Matins, as usual, and Dismissal.
 
-<span style="font-family: Book Antiqua"><a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua" lang="EN-US">1]</span></a><span lang="EN-US" style="font-family:&quot;Book Antiqua&quot;"> In Greek this hexameter call scarcely be said to scan.</span></span>
+<span style="font-family: Book Antiqua"><a href="#_ftnref1" id="_ftn1">1]</a><span lang="EN-US" style="font-family:&quot;Book Antiqua&quot;"> In Greek this hexameter call scarcely be said to scan.</span></span>
 
 ------------------------------------------------------------------------
 
