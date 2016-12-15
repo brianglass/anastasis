@@ -25,6 +25,6 @@ Can any then not love you, fair tone six?
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

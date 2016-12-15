@@ -126,7 +126,7 @@ Tone 8. O marvellous wonder.**
 
 O Word of God, supremely good, as one condemned hanged on a Cross for us, snatch us from the fire to come, from dread condemnation and from every other penalty, at the entreaties of the Mother of God. For day after day by thoughts we all anger you, O Christ, supremely good and lover of humankind.
 
-Seeing you nailed to the Cross by your own will, O Jesu, the sun shuddered, the earth was shaken, the rocks were rent, the graves opened in fear and all the Powers of heaven stood amazed. As the Virgin saw you on the Cross, Master, she cried out, Â‘Alas! What is this sight?Â’
+Seeing you nailed to the Cross by your own will, O Jesu, the sun shuddered, the earth was shaken, the rocks were rent, the graves opened in fear and all the Powers of heaven stood amazed. As the Virgin saw you on the Cross, Master, she cried out, ‘Alas! What is this sight?’
 
 O the infinite goodness of the one incarnate from you, all-praised Mother of God. For he willingly endured Cross and death, that he might save the world that he had fashioned. Implore him from punishment to deliver me also, wretched and most woeful, and to make me dwell where the light that knows no evening shines.
 
@@ -144,7 +144,7 @@ Glory. Both now. **
 
 **Cross-Theotokion. Same melody.**
 
-Â‘O marvellous wonder! O new mystery! O dread transaction!Â’ said the Virgin, as she watched you, whom she had borne without pangs, hanged on a Cross between two thieves. She was weeping and crying out, Â‘Alas, dearest Child, how has a cruel and ungrateful people nailed you to a Cross?Â’
+‘O marvellous wonder! O new mystery! O dread transaction!’ said the Virgin, as she watched you, whom she had borne without pangs, hanged on a Cross between two thieves. She was weeping and crying out, ‘Alas, dearest Child, how has a cruel and ungrateful people nailed you to a Cross?’
 
 ****
 
@@ -341,6 +341,6 @@ Pure Virgin, Gate of the Word, Mother of our God, intercede that we may be saved
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

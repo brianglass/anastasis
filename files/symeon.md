@@ -10,7 +10,7 @@ INTRODUCTION
 
 The author of the Canon to Saint Symeon Stylites is given in the Menaion as ‘Monk John’, the usual designation of Saint John of Damascus in the service books.
 
-The canon is of unusual interest since the writer clearly had the life of saint written by Theodoret, bishop of Cyrrhus, in front of him as well as at least one other source. I hope to trace these other sources and to update this page shortly. For most of the canon he follows Theodoret closely, even to occasional verbal citations. In the translation that follows I have given the relevant passages from Theodoret after the troparion in a different typeface. My free translation is made from the critical edition in the French Sources ChrÃ©tiennes \[volume 257, pages 158-215\] of the Historia Philothea by Alice Leroy-Mohlingen in 1979.
+The canon is of unusual interest since the writer clearly had the life of saint written by Theodoret, bishop of Cyrrhus, in front of him as well as at least one other source. I hope to trace these other sources and to update this page shortly. For most of the canon he follows Theodoret closely, even to occasional verbal citations. In the translation that follows I have given the relevant passages from Theodoret after the troparion in a different typeface. My free translation is made from the critical edition in the French Sources Chrétiennes \[volume 257, pages 158-215\] of the Historia Philothea by Alice Leroy-Mohlingen in 1979.
 
 Theodoret’s account of Saint Symeon is of the greatest importance, since he was personally acquainted with him and had visited him at his pillar a number of times. He describes vividly an occasion when, after the saint had told the crowds to ask for Theodoret’s blessing, he was mobbed by the enthusiastic pilgrims and only escaped being smothered by the saint’s shouting to them to stand back.
 
@@ -168,6 +168,6 @@ at Qal’at Sim’an.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

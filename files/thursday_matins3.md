@@ -26,7 +26,7 @@ Glory. Both now.
 **Theotokion.
 Awed by the beauty.**
 
-As I called to mind the measureless wealth of your sympathy and the invincible might of your power, beset by trouble and in dread despair, I ran to your protection; crying with tears from the depths of my heart, I cry to you Virgin Mother of God, Â‘Save me, save the unworthy!Â’
+As I called to mind the measureless wealth of your sympathy and the invincible might of your power, beset by trouble and in dread despair, I ran to your protection; crying with tears from the depths of my heart, I cry to you Virgin Mother of God, ‘Save me, save the unworthy!’
 
 ****
 
@@ -54,7 +54,7 @@ Drowning in a sea of passions I flee to the ocean of your pities, Mother of God,
 
 After the 3rd Reading other.
 
-In praise we hymn you, Nicholas, as herald of the truth and radiant beacon of the world, and as we ask in faith we cry out, Â‘As you snatched the innocent from death, so rescue us, O Holy one, from dangers, affliction and every dread trouble.
+In praise we hymn you, Nicholas, as herald of the truth and radiant beacon of the world, and as we ask in faith we cry out, ‘As you snatched the innocent from death, so rescue us, O Holy one, from dangers, affliction and every dread trouble.
 
 ****
 
@@ -84,7 +84,7 @@ He who of old assembled the waters into one gathering by his divine decree, and 
 
 Troparia.
 
-Come let us bless the ChurchÂ’s towers, devoutly built on the foundation of the faith and who establish all believers, the sacred Apostles, that by their supplications we may be saved.
+Come let us bless the Church’s towers, devoutly built on the foundation of the faith and who establish all believers, the sacred Apostles, that by their supplications we may be saved.
 
 Unshakeable pillars of true religion, I have been toppled by the error of the foe, I lie on the ground, I am in danger, I am at a loss. Set me upright that I may find forgiveness of the things by which I have offended.
 
@@ -104,7 +104,7 @@ I offer my third prayer to Nicholas. Joseph.
 
 Let us honour and with love call blessed, Nicholas, the shining lamp and unsleeping torch upon earth, who ever embarks towards godly havens those storm-tossed by the waves of life.
 
-Empowered by GodÂ’s strength, O All-blessed, you obtained zeal in accordance with the knowledge of true religion; therefore you rescued those about to die unjustly; and so we implore you, deliver us from every wickedness of the unjust foe.
+Empowered by God’s strength, O All-blessed, you obtained zeal in accordance with the knowledge of true religion; therefore you rescued those about to die unjustly; and so we implore you, deliver us from every wickedness of the unjust foe.
 
 Bring, Father, to the Lord a plea that never ceases, that he may deliver us from sins, from the flame of everlasting punishment, from temptations and troubles, as he alone is supremely good.
 
@@ -154,7 +154,7 @@ Mind cannot conceive the Offspring beyond mind of your wondrous child-bearing. V
 
 Ode 4. Irmos.
 
-You displayed mighty love for us, O Lord; for you gave up your Only-begotten Son to death for our sake; therefore with thanksgiving we cry to you, Â‘Glory to your power, O Lord!Â’
+You displayed mighty love for us, O Lord; for you gave up your Only-begotten Son to death for our sake; therefore with thanksgiving we cry to you, ‘Glory to your power, O Lord!’
 
 ****
 
@@ -224,7 +224,7 @@ I have squandered my life in sloth and so I beseech you, Father Nicholas, rouse 
 
 Theotokion.
 
-As only joy of the Angels, O Full of GodÂ’s grace, fill with joy my sullen mind, sunk deep in indifference.
+As only joy of the Angels, O Full of God’s grace, fill with joy my sullen mind, sunk deep in indifference.
 
 ****
 
@@ -236,9 +236,9 @@ The final abyss of sins has surrounded me and my spirit fails; but, Master, stre
 
 Troparia.
 
-The company of the Apostles having drawn from the source an abyss of spiritual wisdom, dried up all the streams of this worldÂ’s wisdom and watered all the assemblies of the devout.
+The company of the Apostles having drawn from the source an abyss of spiritual wisdom, dried up all the streams of this world’s wisdom and watered all the assemblies of the devout.
 
-Groan and weep, my lowly soul, and cry out to the Lord, saying, Â‘I have sinned against you, compassionate Master, be merciful to me at the supplications of your ApostlesÂ’.
+Groan and weep, my lowly soul, and cry out to the Lord, saying, ‘I have sinned against you, compassionate Master, be merciful to me at the supplications of your Apostles’.
 
 Flowing torrents of passions have brought about the fall of the house of my heart. O Apostles, the rivers of the Spirit, I have been crushed; refashion me into life.
 
@@ -246,7 +246,7 @@ Flowing torrents of passions have brought about the fall of the house of my hear
 
 Theotokion.
 
-The band of the Apostles, with her who bore you, entreats you, O Christ, Â‘Send down pardon and peace to your servants, as you are God who love mankind and long to be reconciled.
+The band of the Apostles, with her who bore you, entreats you, O Christ, ‘Send down pardon and peace to your servants, as you are God who love mankind and long to be reconciled.
 
 ****
 
@@ -256,7 +256,7 @@ Having slain your members by self-mastery you gained the life which does not age
 
 With the sail of your sacred prayers deliver us from sea of many dangers and the deep of sin, embarking us for the roadstead of life, wise Hierarch.
 
-Adorning the throne of Myra, you were revealed as an ornament of High Priests; but by your prayers save us from the worldÂ’s temptations, blameless Hierarch.
+Adorning the throne of Myra, you were revealed as an ornament of High Priests; but by your prayers save us from the world’s temptations, blameless Hierarch.
 
 ****
 
@@ -268,7 +268,7 @@ The Word by dwelling in your womb, pure Mother, through his compassionate mercy 
 
 Ode 7. The Irmos.
 
-The three Youths of old did not worship the golden image, object of Persian reverence, as they sang in the midst of the furnace, Â‘God of our Fathers, blessed are you!Â’
+The three Youths of old did not worship the golden image, object of Persian reverence, as they sang in the midst of the furnace, ‘God of our Fathers, blessed are you!’
 
 ****
 
@@ -290,7 +290,7 @@ Beauty of Jacob, make my soul radiant with forms of beauty, I beg, as with the A
 
 Of the Saint.
 
-When Arius the madman was once ravaging the LordÂ’s people, you throttled him
+When Arius the madman was once ravaging the Lord’s people, you throttled him
 
 with the cords of your words as a true chief shepherd, Father Nicholas.
 
@@ -308,7 +308,7 @@ Pure Virgin, lead me to the light, who am darkened in soul by indifference, kind
 
 Ode 8. The Irmos.
 
-In the unbearable fire, but unharmed by the flames, the Youths, famed for their reverence for God, were as one as they sang the divine hymn, Â‘All you works of the Lord bless the Lord, and highly exalt him throughout all the ages.Â’
+In the unbearable fire, but unharmed by the flames, the Youths, famed for their reverence for God, were as one as they sang the divine hymn, ‘All you works of the Lord bless the Lord, and highly exalt him throughout all the ages.’
 
 ****
 
@@ -346,7 +346,7 @@ Strength and song is he who was born of you, All-blameless Virgin; beseech him i
 
 Ode 9. The Irmos.
 
-In the shadow and letter of the Law, Let us the faithful discern a figure. Â‘Every male child that opens the womb shall be holy to God.Â’ Therefore the Son and Word of the Father who has no beginning, the firstborn child of a Mother who had not known man, we magnify.
+In the shadow and letter of the Law, Let us the faithful discern a figure. ‘Every male child that opens the womb shall be holy to God.’ Therefore the Son and Word of the Father who has no beginning, the firstborn child of a Mother who had not known man, we magnify.
 
 ****
 
@@ -370,7 +370,7 @@ Of the Saint.
 
 The whole round world has found in you a divine stronghold and fortress and fair refuge, who by your mediations ever rescue it from every pressure of temptations, Father Nicholas; and so in praise it faithfully calls you blessed.
 
-Hemmed in by many disasters, I flee, All-blessed, to the wide plain of your prayer. Â‘Transform the toil of my soul, I cry, calm the waves of despair and bring peace to my troubled mindÂ’.
+Hemmed in by many disasters, I flee, All-blessed, to the wide plain of your prayer. ‘Transform the toil of my soul, I cry, calm the waves of despair and bring peace to my troubled mind’.
 
 The coming of the Creator is at hand to judge the whole earth, and I, accursed, am not prepared; I shudder when I consider the multitude of my offences; take pity on me, long-suffering Lord, and save me at the godly prayers of your holy Nicholas.
 
@@ -386,7 +386,7 @@ Your sound has gone out into all the earth, holy Apostles; you abolished the err
 
 **Verse 1. We were filled in the morning with your mercy, O Lord, and we rejoiced and were glad. In all our days, let us be glad, for all the days you have afflicted us, for the years we have suffered adversity. Look upon your servants and your works, and guide their sons.**
 
-Blamelessly keeping ChristÂ’s commands, holy Apostles, freely you received, freely you give, curing the passions of our souls and bodies; and so as you have boldness, implore him to have mercy on our souls.
+Blamelessly keeping Christ’s commands, holy Apostles, freely you received, freely you give, curing the passions of our souls and bodies; and so as you have boldness, implore him to have mercy on our souls.
 
 ****
 
@@ -411,6 +411,6 @@ O Lady, honoured first of saints, praise of the heavenly Orders, hymn of the Apo
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

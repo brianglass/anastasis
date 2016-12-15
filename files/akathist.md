@@ -21,7 +21,7 @@ canon of the akathist
 A Composition of Joseph the Hymnographer
 
 <span style="color:red">The Acrostic, without the Irmi, is:</span>
-Vessel of joy, to you alone Â‘Hail!Â’ belongs.
+Vessel of joy, to you alone ‘Hail!’ belongs.
 
 <span style="color:red">Ode 1. Tone 4. Irmos.</span>
 
@@ -29,7 +29,7 @@ I will open my mouth<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteRefer
 
 <span style="color:red">Troparia.</span>
 
-Pure Virgin, living book of Christ, sealed by the Spirit<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a>, beholding you the great Archangel cried to you, Â‘Hail, vessel of joy! Through which the curse of our first mother<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> will be abolishedÂ’.
+Pure Virgin, living book of Christ, sealed by the Spirit<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a>, beholding you the great Archangel cried to you, ‘Hail, vessel of joy! Through which the curse of our first mother<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> will be abolished’.
 
 Hail, Virgin bride of God, restoration of Adam and death of hell! Hail, All-unblemished, palace of the only King! Hail, fiery throne<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> of the Almighty!
 
@@ -55,20 +55,20 @@ Hail, only gate through which the Word alone has passed!<a href="#_ftn13" id="_f
 
 <span style="color:red">Ode 4. Irmos.</span>
 
-The One seated in glory on the throne of the Godhead,<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[15]</span></a> Jesus, the One above all godhead, has come on a light cloud<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[16]</span></a> and with his unsullied hand has saved those who cry: Â‘Glory, O Christ, to your power!Â’
+The One seated in glory on the throne of the Godhead,<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[15]</span></a> Jesus, the One above all godhead, has come on a light cloud<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[16]</span></a> and with his unsullied hand has saved those who cry: ‘Glory, O Christ, to your power!’
 
 <span style="color:red">Troparia.</span>
 
-With voices of song in faith we cry aloud to you, O Virgin worthy of all praise, Â‘Hail, rich mountain, curdled by the Spirit!<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[17]</span></a> Hail, Lampstand<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[18]</span></a> and Vessel bearing the Manna<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[19]</span></a> that sweetens the senses of the godly!Â’
+With voices of song in faith we cry aloud to you, O Virgin worthy of all praise, ‘Hail, rich mountain, curdled by the Spirit!<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[17]</span></a> Hail, Lampstand<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character:
+footnote">[18]</span></a> and Vessel bearing the Manna<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[19]</span></a> that sweetens the senses of the godly!’
 
 Mercy‑seat<a href="#_ftn20" id="_ftnref20"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[20]</span></a> of the world, hail, Lady undefiled! Hail, Ladder raising all from earth by grace!<a href="#_ftn21" id="_ftnref21"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[21]</span></a> Hail, Bridge that has truly brought over from death to life all those who sing your praises .
 
-Hail, Immaculate, higher than the heavens, who without birth-Â­pangs carried in your womb the Foundation of the earth! Hail, sea‑shell that from your blood dyed a robe of divine purple for the king of Powers.
+Hail, Immaculate, higher than the heavens, who without birth-­pangs carried in your womb the Foundation of the earth! Hail, sea‑shell that from your blood dyed a robe of divine purple for the king of Powers.
 
 Hail, Sovereign Lady, who in truth gave birth to the Lawgiver who freely washes clean the transgressions of all! Depth unsearchable, who did not know wedlock, height above all speech, through whom we have been made divine.
 
-You wove for the world a crown not woven by human hand, and we sing your praises, as we cry aloud, Â‘Hail to you, Virgin, the guardian of all, fortress and stronghold and sacred refuge!Â’
+You wove for the world a crown not woven by human hand, and we sing your praises, as we cry aloud, ‘Hail to you, Virgin, the guardian of all, fortress and stronghold and sacred refuge!’
 
 <span style="color:red">Ode 5. Irmos.</span>
 
@@ -77,13 +77,13 @@ The universe was amazed at your divine glory, for you, O Virgin, who did not kno
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; font-style: normal">Troparia</span><span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">.</span>
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-<span id="Mar14"></span>Hail, All‑blameÂ­less, who bore the Way<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a> of life, who saved the world from the flood<a href="#_ftn23" id="_ftnref23"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[23]</span></a> of sin! Hail, Bride of God, tidings fearful to tell and hear! Hail, dwelling Â­place of the Master of Creation!
+<span id="Mar14"></span>Hail, All‑blame­less, who bore the Way<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a> of life, who saved the world from the flood<a href="#_ftn23" id="_ftnref23"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[23]</span></a> of sin! Hail, Bride of God, tidings fearful to tell and hear! Hail, dwelling ­place of the Master of Creation!
 
 Hail, Undefiled, the strength and fortress of humankind, place of sanctification of the Glory!<a href="#_ftn24" id="_ftnref24"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[24]</span></a> Hail, slayer of hell, bridal chamber full of light! Hail, joy of the angel! Hail, succour of those who call on you with faith!
 
 Fiery chariot<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[25]</span></a> of the Word, hail, Sovereign Lady, living Paradise, having in your midst the Lord, the Tree of Life!<a href="#_ftn26" id="_ftnref26"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[26]</span></a> His sweetness gives life to all who partake with faith, who had bowed beneath corruption.
 
-Strengthened by your might, we raise our cry to you with faith, Â‘Hail, city of the King of all!<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[27]</span></a> Glorious things and worthy to be heard are plainly spoken of you.<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[28]</span></a> Hail, mountain not cut by human hand,<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> depth that none can fathom!
+Strengthened by your might, we raise our cry to you with faith, ‘Hail, city of the King of all!<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[27]</span></a> Glorious things and worthy to be heard are plainly spoken of you.<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[28]</span></a> Hail, mountain not cut by human hand,<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> depth that none can fathom!
 
 Hail, Undefiled, spacious tabernacle of the Word, shell which put forth the divine Pearl! Hail, Mother of God full of wonders, reconciliation with God of all those in every age that call you blessed!
 
@@ -95,58 +95,58 @@ Come, godly-minded people, as we celebrate this divine and honoured feast of the
 
 Spotless bridal chamber of the Word, cause of the deification of all, hail, All-immaculate, the resonance of the Prophets! Hail, the adornment of the Apostles!
 
-From you dropped down the dew that quenched the flame of idolatry. We therefore cry to you, Â‘Hail, Virgin, Fleece wet with dew that Gideon saw in prophecy!Â’<span class="MsoFootnoteReference"> <a href="#_ftn30" id="_ftnref30"><span style="mso-special-character:
+From you dropped down the dew that quenched the flame of idolatry. We therefore cry to you, ‘Hail, Virgin, Fleece wet with dew that Gideon saw in prophecy!’<span class="MsoFootnoteReference"> <a href="#_ftn30" id="_ftnref30"><span style="mso-special-character:
 footnote">[30]</span></a></span>
 
-See, to you we cry Â‘Hail!Â’ Be our haven as we toss upon the deep, our anchorage in the ocean of afflictions and all the snares of the enemy.
+See, to you we cry ‘Hail!’ Be our haven as we toss upon the deep, our anchorage in the ocean of afflictions and all the snares of the enemy.
 
-Cause of joy, endue our thoughts with grace that we may cry to you, Â‘Hail, Bush unburned,<a href="#_ftn31" id="_ftnref31"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[31]</span></a> Cloud all of light that without ceasing **** overshadows the faithful!<a href="#_ftn32" id="_ftnref32"><span class="MsoFootnoteReference" style="mso-special-character:
+Cause of joy, endue our thoughts with grace that we may cry to you, ‘Hail, Bush unburned,<a href="#_ftn31" id="_ftnref31"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[31]</span></a> Cloud all of light that without ceasing **** overshadows the faithful!<a href="#_ftn32" id="_ftnref32"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[32]</span></a>
 
 <span style="color:red">Ode 7. Irmos.</span>
 
-The godlike Youths did not worship creation instead of the Creator, but bravely trampling on the threat of fire, rejoicing they sang, Â‘O highly exalted Lord and God of our fathers, blessed are you!Â’<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[33]</span></a>
+The godlike Youths did not worship creation instead of the Creator, but bravely trampling on the threat of fire, rejoicing they sang, ‘O highly exalted Lord and God of our fathers, blessed are you!’<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[33]</span></a>
 
 <span style="color:red">Troparia.</span>
 
-We sing your praises, crying, Â‘Hail! chariot of the spiritual Sun; true Vine that has produced the ripe Cluster of grapes,<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> from which there flows a wine making glad the souls of the faithful, as they give you glory.
+We sing your praises, crying, ‘Hail! chariot of the spiritual Sun; true Vine that has produced the ripe Cluster of grapes,<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> from which there flows a wine making glad the souls of the faithful, as they give you glory.
 
 Hail, Bride of God, who bore the Healer of all; mystical Staff that blossomed with the unfading Flower!<a href="#_ftn35" id="_ftnref35"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[35]</span></a> Hail, Sovereign Lady, through you we are filled with joy and inherit life!
 
 No tongue, however eloquent, Sovereign Lady, has strength to sing your praise. You have been exalted above the Seraphim, for you bore Christ the King. Entreat him now to deliver from **** all harm those who worship you in faith.
 
-The ends of the earth praise you and call you blessed, and they cry to you, Â‘Hail, pure Virgin, scroll on which the Word has been written by the FatherÂ’s finger!<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[36]</span></a> Entreat him,<span style="mso-spacerun: yes">  </span>Mother of God, to inscribe your servants in the Book of Life.
+The ends of the earth praise you and call you blessed, and they cry to you, ‘Hail, pure Virgin, scroll on which the Word has been written by the Father’s finger!<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[36]</span></a> Entreat him,<span style="mso-spacerun: yes">  </span>Mother of God, to inscribe your servants in the Book of Life.
 
 We your servants entreat you, and bend the knee of our heart. Incline your ear and save us, Mother of God, for we are drowning in afflictions; and preserve your City from all capture by enemies.
 
 <span style="color:red">Ode 8. Irmos.</span>
 
-The Offspring of the Mother of God saved the innocent Youths in the furnace. Then he was prefigured, but now in reality he gathers the whole world which sings, Â‘Praise the Lord, his works, and highly exalt him to all the ages.Â’<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[37]</span></a>
+The Offspring of the Mother of God saved the innocent Youths in the furnace. Then he was prefigured, but now in reality he gathers the whole world which sings, ‘Praise the Lord, his works, and highly exalt him to all the ages.’<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[37]</span></a>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; font-style: normal; mso-bidi-font-style: italic">Troparia.</span>
 -------------------------------------------------------------------------------------------------------------------------------------------------
 
-You received the Word within your womb, and you carried him who carries all things. You fed with milk him who by his will alone feeds all the inhabited earth. To him, pure Virgin, we sing, Â‘All you works of the Lord, praise the Lord and highly exalt him to all the agesÂ’.
+You received the Word within your womb, and you carried him who carries all things. You fed with milk him who by his will alone feeds all the inhabited earth. To him, pure Virgin, we sing, ‘All you works of the Lord, praise the Lord and highly exalt him to all the ages’.
 
-Moses perceived in the burning bush the great mystery of your giving birth, holy and immaculate Virgin;<a href="#_ftn38" id="_ftnref38"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[38]</span></a> and the Youths preÂ­figured this most clearly as they stood in the midst of the fire and were not burned. Therefore we sing your praise to all the ages.
+Moses perceived in the burning bush the great mystery of your giving birth, holy and immaculate Virgin;<a href="#_ftn38" id="_ftnref38"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[38]</span></a> and the Youths pre­figured this most clearly as they stood in the midst of the fire and were not burned. Therefore we sing your praise to all the ages.
 
 We who once were stripped naked through deception,<a href="#_ftn39" id="_ftnref39"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[39]</span></a> have been clothed by your childbearing in the robe of incorruption; and we who once sat in the darkness of transgressions have seen the Light,<a href="#_ftn40" id="_ftnref40"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[40]</span></a> O Maiden, dwelling‑place of Light. Therefore we sing your praise to all the ages.
 
 Through you the dead are given life,<a href="#_ftn41" id="_ftnref41"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[41]</span></a> for you bore the One who is life in person. Those once called dumb speak eloquently, lepers are cleansed, diseases driven out; the multitudes of the spirits of the air are conquered, O Virgin, salvation of mortals.<a href="#_ftn42" id="_ftnref42"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[42]</span></a>
 
-You gave birth to salvation for the world, pure Virgin, and through you we have been raised from earth to heaven. Hail, All‑blessed, protection and defence, rampart and stronghold of those who sing,<span style="mso-spacerun: yes">  </span>Â‘All you works of the Lord, praise the Lord and highly exalt him to all the agesÂ’.
+You gave birth to salvation for the world, pure Virgin, and through you we have been raised from earth to heaven. Hail, All‑blessed, protection and defence, rampart and stronghold of those who sing,<span style="mso-spacerun: yes">  </span>‘All you works of the Lord, praise the Lord and highly exalt him to all the ages’.
 
 <span style="color:red">Ode 9. Irmos.</span>
 
-Let all born of earth, bearing torches, in spirit leap for joy; let the nature of the immaterial Minds keep festival as it honours the sacred festival of the Mother of God, and let it cry, Â‘Hail, all-blessed Mother of God, pure and Ever-Virgin!Â’
+Let all born of earth, bearing torches, in spirit leap for joy; let the nature of the immaterial Minds keep festival as it honours the sacred festival of the Mother of God, and let it cry, ‘Hail, all-blessed Mother of God, pure and Ever-Virgin!’
 
 <span style="color:red">Troparia.</span>
 
-That we believers, who through you, O Maiden, have become partakers of everlasting joy, may cry to you, Â‘Hail!Â’, deliver us from temptation,<a href="#_ftn43" id="_ftnref43"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[43]</span></a> from capture by the enemy, and from every other ill that comes on sinful mortals because of the multitude of their transgressions.
+That we believers, who through you, O Maiden, have become partakers of everlasting joy, may cry to you, ‘Hail!’, deliver us from temptation,<a href="#_ftn43" id="_ftnref43"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[43]</span></a> from capture by the enemy, and from every other ill that comes on sinful mortals because of the multitude of their transgressions.
 
-You have been revealed as our enlightenment and confirmation, and so we cry to you, Â‘Hail, never‑setting star that brings into the world the mighty Sun! Hail, pure Virgin who opened Eden that was shut!<a href="#_ftn44" id="_ftnref44"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[44]</span></a> Hail, Pillar of fire,<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[45]</span></a> leading humanity to the life on high!Â’
+You have been revealed as our enlightenment and confirmation, and so we cry to you, ‘Hail, never‑setting star that brings into the world the mighty Sun! Hail, pure Virgin who opened Eden that was shut!<a href="#_ftn44" id="_ftnref44"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[44]</span></a> Hail, Pillar of fire,<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[45]</span></a> leading humanity to the life on high!’
 
-Let us stand with reverence in the house of our God, and let us cry aloud, Â‘Hail, Sovereign Lady of the world! Hail, Mary, Lady over all! Hail, you who alone are blameless and fair among women! Hail, vessel that received the inexhaustible Myrrh, emptied out upon you!
+Let us stand with reverence in the house of our God, and let us cry aloud, ‘Hail, Sovereign Lady of the world! Hail, Mary, Lady over all! Hail, you who alone are blameless and fair among women! Hail, vessel that received the inexhaustible Myrrh, emptied out upon you!
 
 Hail, Ever‑Virgin, dove that bore the Merciful! Hail, glory of all the Saints, crown of the Champions! Hail, divine adornment of all the Just and salvation of us the faithful.
 
@@ -294,6 +294,6 @@ footnote">[45]</span></a> Exodus 13:21-22
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -14,7 +14,7 @@ At
 
 Of the Feast. Tone 5. Χαίροις ἀσκητικῶν.
 
-Hail, life-bearing Cross, unconquerable trophy of true religion, door of Paradise, support of the faithful, rampart of the Church. Through you corruption is wiped out and destroyed, the power of death is swallowed up, and we are exalted from earth to heaven: invincible weapon, opponent of demons, glory of martyrs, true ornament of monks, harbour of salvation, bestowing on the world GodÂ’s great mercy.
+Hail, life-bearing Cross, unconquerable trophy of true religion, door of Paradise, support of the faithful, rampart of the Church. Through you corruption is wiped out and destroyed, the power of death is swallowed up, and we are exalted from earth to heaven: invincible weapon, opponent of demons, glory of martyrs, true ornament of monks, harbour of salvation, bestowing on the world God’s great mercy.
 
 Hail, Cross of the Lord! Through you humanity has been released from the curse; sign of true joy, who shatter enemies by your exaltation, O all-venerable: our help, strength of Kings, power of the just, majesty of priests. Those who are marked with you are freed from dangers; rod of power, under which we are shepherded; weapon of peace, round which Angels stand in fear; divine glory of Christ, who grants the world his great mercy.
 
@@ -40,7 +40,7 @@ Both now. **
 
 **The same Tone.**
 
-The voices of the Prophets foretold the holy Tree, through which Adam was freed from the ancient curse; while creation today raises its voice as the Cross is exalted, as it asks for GodÂ’s rich mercy. But Master, alone measureless in mercy, be our atonement and save our souls.
+The voices of the Prophets foretold the holy Tree, through which Adam was freed from the ancient curse; while creation today raises its voice as the Cross is exalted, as it asks for God’s rich mercy. But Master, alone measureless in mercy, be our atonement and save our souls.
 
 ****
 
@@ -88,7 +88,7 @@ Both now.
 
 **The same Tone.**
 
-The word of your Prophet Moses is fulfilled, O God, which said: You will see your life hang before your eyes. To-day the Cross is exalted, and the world has been freed from error. To-day the Church of ChristÂ’s resurrection is dedicated, and the ends of the earth rejoice, as they offer you a hymn with cymbals like David and say: You have wrought salvation in the midst of the earth, O God: Cross and Resurrection, through which you have saved us, O good one who love mankind. All-powerful Lord, glory to you!
+The word of your Prophet Moses is fulfilled, O God, which said: You will see your life hang before your eyes. To-day the Cross is exalted, and the world has been freed from error. To-day the Church of Christ’s resurrection is dedicated, and the ends of the earth rejoice, as they offer you a hymn with cymbals like David and say: You have wrought salvation in the midst of the earth, O God: Cross and Resurrection, through which you have saved us, O good one who love mankind. All-powerful Lord, glory to you!
 
 ****
 
@@ -143,7 +143,7 @@ As noblest victor slay my carnal thought and flood my mind with your illuminatin
 
 Rejecting the poison which comes from the passions, you bravely endured tortures, and put on as a martyr the honoured tunic, woven from your blood.
 
-Nailed for us to the tree, you showed a new and wondrous way of contest; for you became, Master, the first fruits of the MartyrsÂ’ confession and courage.
+Nailed for us to the tree, you showed a new and wondrous way of contest; for you became, Master, the first fruits of the Martyrs’ confession and courage.
 
 ****
 
@@ -159,7 +159,7 @@ With courage of soul you bore the threats of the tyrants, glorious Martyr of Chr
 
 You bore the laceration of your flesh and the severing of your limbs, all-praised Martyr of Christ; while you kept your soul close-knit.
 
-The company of ChristÂ’s Martyrs rejoices over you, as it sees your memory being celebrated to-day.
+The company of Christ’s Martyrs rejoices over you, as it sees your memory being celebrated to-day.
 
 ****
 
@@ -171,7 +171,7 @@ O Mary, the pure and holy dwelling of virginity, heal the deep wounds of my hear
 
 The Irmos.
 
-Your Church rejoices over you, O Christ, as she cries, Â‘You are my strength, Lord, my refuge and my foundationÂ’.
+Your Church rejoices over you, O Christ, as she cries, ‘You are my strength, Lord, my refuge and my foundation’.
 
 ****
 
@@ -247,7 +247,7 @@ Having cut down the might of error by your exertion, and received the garland of
 
 The Ikos.
 
-By putting knowledge in my soul, make my mind pure, O Saviour, and me a worker of your commandments, that I may have strength to wrestle victoriously with the many different assaults of my passions and to receive the victorÂ’s prize of incorruption at the prayers of your noble champion Nikitas, O Lover of mankind; for he has called us together in his memory, as he intercedes unceasingly for us all.
+By putting knowledge in my soul, make my mind pure, O Saviour, and me a worker of your commandments, that I may have strength to wrestle victoriously with the many different assaults of my passions and to receive the victor’s prize of incorruption at the prayers of your noble champion Nikitas, O Lover of mankind; for he has called us together in his memory, as he intercedes unceasingly for us all.
 
 ****
 
@@ -271,10 +271,10 @@ On the same day, commemoration of our venerable Father Philotheos, Presbyter and
 
 Verses.
 
-Philotheos, who lived as GodÂ’s \[*theou*\] good friend, \[*philos*\]
-Has found unending life with GodÂ’s good friends.
+Philotheos, who lived as God’s \[*theou*\] good friend, \[*philos*\]
+Has found unending life with God’s good friends.
 
-He was from a village called Myrmix, of the district of Opsikios, and had a name which corresponded to his fatherÂ’s. For he was called Theophilis. Having married and become the father of children, he was found worthy of the priesthood. From then on he fasted and was devoted to prayer and became the author of mighty wonders. He provided bread for the destitute poor, he changed a stream of water into wine, he moved a huge stone and a year after his death, as he was being moved to a another place, he stretched out his hands, as though alive, and having grasped the shoulders of the two priests who wished to move him, he arose and having walked three paces, he was put down in the place where he lies. He also causes a wondrous and unending spring of sweet myrrh to gush out, so providing a marvellous proof of his way of life.
+He was from a village called Myrmix, of the district of Opsikios, and had a name which corresponded to his father’s. For he was called Theophilis. Having married and become the father of children, he was found worthy of the priesthood. From then on he fasted and was devoted to prayer and became the author of mighty wonders. He provided bread for the destitute poor, he changed a stream of water into wine, he moved a huge stone and a year after his death, as he was being moved to a another place, he stretched out his hands, as though alive, and having grasped the shoulders of the two priests who wished to move him, he arose and having walked three paces, he was put down in the place where he lies. He also causes a wondrous and unending spring of sweet myrrh to gush out, so providing a marvellous proof of his way of life.
 
 On the same day commemoration of St Porphyrios the Actor.
 
@@ -320,7 +320,7 @@ On the same day, Finding of the relics of the holy Protomartyr Stephen.
 
 Verses.
 
-Saint StephenÂ’s finding all creation shares,
+Saint Stephen’s finding all creation shares,
 He the first champion of the greatest God.
 
 Our father among the saints Vessarion, archbishop of Larissa, died in peace.
@@ -363,7 +363,7 @@ By bearing Christ, the only immaculate, you clearly washed away the filth of our
 
 The Irmos.
 
-Daniel, stretching out his hands, stopped up the jaws of lions in the den; while the Youths, lovers of true religion, armed with virtue, quenched the power of fire as they cried, All you works of the Lord, bless the Lord!Â’
+Daniel, stretching out his hands, stopped up the jaws of lions in the den; while the Youths, lovers of true religion, armed with virtue, quenched the power of fire as they cried, All you works of the Lord, bless the Lord!’
 
 ****
 
@@ -373,7 +373,7 @@ I offer myself wholly to you, Nikitas blessed by God, that I may be rich with yo
 
 Truly, brave Champion, you were declared to be a martyr for the truth, and now you stand rejoicing beside the honoured and empersonned truth, having by boldness obtained the rewards of your contests.
 
-You have come to anchor in a calm anchorage, where you have found rest from your toils, and bearing a crown your dance in Paradise with ChristÂ’s Martyrs; and so, all-blessed, fittingly we all glorify you.
+You have come to anchor in a calm anchorage, where you have found rest from your toils, and bearing a crown your dance in Paradise with Christ’s Martyrs; and so, all-blessed, fittingly we all glorify you.
 
 Vouchsafe, I pray, unstinted grace to me, who have eagerly woven for you crowns of praise in words, delivering me, all-blessed, from my sin and from my dreadful deeds by your prayers.
 
@@ -439,6 +439,6 @@ To-day the tree of life on which Christ was nailed is lifted up from the hidden 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

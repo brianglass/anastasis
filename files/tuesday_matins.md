@@ -9,7 +9,7 @@ AT MATINS
 
 **Tone 2.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">My soul, when you think on the examination of that dread day, tremble at the reward of eternal punishment, and with tears cry out in repentance, Â‘O God, I have sinned, have mercy on me!Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">My soul, when you think on the examination of that dread day, tremble at the reward of eternal punishment, and with tears cry out in repentance, ‘O God, I have sinned, have mercy on me!’</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red">Verse:</span>*<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"> </span>*<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Lord, do not rebuke me in your anger; nor chastise me in your wrath.<span style="letter-spacing:-.1pt"></span></span>
 
@@ -21,11 +21,11 @@ AT MATINS
 
 **After the 2nd reading, Kathismata of Compunction.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; letter-spacing: -.1pt">Have mercy on me, said David, and I too cry to you, Â‘I have sinned, Saviour, wipe away my sins through repentance and have mercy on me.Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; letter-spacing: -.1pt">Have mercy on me, said David, and I too cry to you, ‘I have sinned, Saviour, wipe away my sins through repentance and have mercy on me.’</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red">Verse:</span>*<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"> </span>*<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Lord, do not rebuke me in your anger; nor chastise me in your wrath.<span style="letter-spacing:-.1pt"></span></span>
 
-Have mercy on me, have mercy on me, lamented David for two sins; for ten thousand offences I cry to you, Â‘He watered his couch with tears, while I have not found one drop; I despair and entreat, have mercy on me, O God, according to your great mercy.Â’
+Have mercy on me, have mercy on me, lamented David for two sins; for ten thousand offences I cry to you, ‘He watered his couch with tears, while I have not found one drop; I despair and entreat, have mercy on me, O God, according to your great mercy.’
 
 <span style="color:windowtext">Glory. Both now.</span> **Theotokion.**
 
@@ -34,7 +34,7 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 **After the 3rd reading, Kathismata.
 As you are source of compassion.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">You plunged in JordanÂ’s streams, John, the ungrudging Source of compassion; therefore I implore you insistently, by your acceptable prayers lead me, who with many passions am being fearfully drowned each day by the ocean of life, to the harbour of life.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">You plunged in Jordan’s streams, John, the ungrudging Source of compassion; therefore I implore you insistently, by your acceptable prayers lead me, who with many passions am being fearfully drowned each day by the ocean of life, to the harbour of life.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua"><span style="mso-bidi-font-style: normal">**Verse:**</span> God is wonderful in his Saints, the God of Israel.</span>
 
@@ -52,7 +52,7 @@ Grant space to my lamentations, O Saviour. Joseph.<a href="#_ftn1" id="_ftnref1"
 
 **Ode 1. Tone 2. Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“Take up MosesÂ’ song, my soul, and shout, Â‘He has become my helper and protector. This is my God, and I will glorify him.Â’Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“Take up Moses’ song, my soul, and shout, ‘He has become my helper and protector. This is my God, and I will glorify him.’”</span>
 
 **Troparia.**
 
@@ -62,7 +62,7 @@ Grant space to my lamentations, O Saviour. Joseph.<a href="#_ftn1" id="_ftnref1"
 
 **Of the Martyrs.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">ChristÂ’s Champions, who endured the fire of tortures with GodÂ’s refreshing dew, rescue me, subject to dread passions, from the fire of Gehenna.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Christ’s Champions, who endured the fire of tortures with God’s refreshing dew, rescue me, subject to dread passions, from the fire of Gehenna.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Glorious Martyrs of Christ, shown to be strong by the might of God against your foes, you overthrew their power that has no strength.</span>
 
@@ -83,11 +83,11 @@ Baptist, accept this supplication. Joseph.</span>
 
 **Theotokion.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Blessed Forerunner, you were the kinsman of the pure Virgin who gave God a body. With her we honour you and we, who now walk within your holy place,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> implore, Â‘Make us houses of the SpiritÂ’.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Blessed Forerunner, you were the kinsman of the pure Virgin who gave God a body. With her we honour you and we, who now walk within your holy place,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> implore, ‘Make us houses of the Spirit’.</span>
 
 **Ode 3. The Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“O God, husbandman of fair fruits and planter of good things, make my barren mind bring forth fruit.Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“O God, husbandman of fair fruits and planter of good things, make my barren mind bring forth fruit.”</span>
 
 **Troparia.**
 
@@ -109,17 +109,17 @@ Baptist, accept this supplication. Joseph.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Heal the wounds of my soul, fill my mind, darkened by indifference, with radiance by your godlike mediation, Forerunner of the Lord, and deliver me, I beg, from every hostile circumstance.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Brought to birth by GodÂ’s foreknowledge, wise Prophet, you released the one who gave you birth from barrenness. Therefore, Forerunner of the Lord, now make my barren heart fruitful, bearing shoots of virtues.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Brought to birth by God’s foreknowledge, wise Prophet, you released the one who gave you birth from barrenness. Therefore, Forerunner of the Lord, now make my barren heart fruitful, bearing shoots of virtues.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Baptist and Forerunner, implore that the godly house, constructed for you with love,<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a> may attain the inheritance on high. By your mediations make those who serve with faith in your sacred enclosure temples of the divine Spirit.</span>
 
 **Theotokion.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">The Forerunner, carried in his motherÂ’s womb, rejoices and he worshipped the lord, carried in your womb, O Full of GodÂ’s grace. Intercede with him that I may be rescued from every affliction.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">The Forerunner, carried in his mother’s womb, rejoices and he worshipped the lord, carried in your womb, O Full of God’s grace. Intercede with him that I may be rescued from every affliction.</span>
 
 **Ode 4. The Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“The Prophet, foreseeing your birth from a Virgin, cried out and proclaimed, Â‘I heard your report, O Christ, and I was afraid, for you came from Theman and from a holy shaded mountain.Â’Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“The Prophet, foreseeing your birth from a Virgin, cried out and proclaimed, ‘I heard your report, O Christ, and I was afraid, for you came from Theman and from a holy shaded mountain.’”</span>
 
 **Troparia.**
 
@@ -141,9 +141,9 @@ Baptist, accept this supplication. Joseph.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">You bowed beneath your right hand, all-blessed Saint, the head of him who bowed the heavens and conversed with mortals. Keep me safe by that hand and guard my soul in humility.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">The pathless desert had you as a citizen, blessed Forerunner. Therefore I cry to you, Â‘Keep safe my soul, which has become a desert of any godly deed.Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">The pathless desert had you as a citizen, blessed Forerunner. Therefore I cry to you, ‘Keep safe my soul, which has become a desert of any godly deed.’</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">For defending GodÂ’s law you were lawlessly destroyed. Therefore I implore you, set me to rights, who always transgress the law and am entrapped by the wiles of the demons.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">For defending God’s law you were lawlessly destroyed. Therefore I implore you, set me to rights, who always transgress the law and am entrapped by the wiles of the demons.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Having built yourself, O Forerunner, as a palace for the Master, you have passed over to tabernacles of God. Implore that he who raised up the all-holy house to you may attain them.</span>
 
@@ -153,11 +153,11 @@ Baptist, accept this supplication. Joseph.</span>
 
 **Ode 5. The Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“Scatter the fog of my soul, my Saviour, and make me radiant with the light of your commandments, for you alone are King of peace.Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“Scatter the fog of my soul, my Saviour, and make me radiant with the light of your commandments, for you alone are King of peace.”</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Foolishly I join sins to sins and there is no looking upward in my death. Alas, how shall I appear to Christ?</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Having suffered shipwreck as on a voyage, I have lost the cargo that you gave me, O Compassionate, and now in poverty I cry, Â‘Do not despise me, O Christ!Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Having suffered shipwreck as on a voyage, I have lost the cargo that you gave me, O Compassionate, and now in poverty I cry, ‘Do not despise me, O Christ!’</span>
 
 **Of the Martyrs.**
 
@@ -186,11 +186,11 @@ The enlightenment of those in darkness.**
 
 **Ode 6. The Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“I am held fast by an abyss of sins, O Christ, and am storm-tossed on the sea of life. But as you did Jonas from the beast, bring me up too from the passions, O Saviour, and save me.Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“I am held fast by an abyss of sins, O Christ, and am storm-tossed on the sea of life. But as you did Jonas from the beast, bring me up too from the passions, O Saviour, and save me.”</span>
 
 **Troparia.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Like the woman of Canaan of old, I cry out to you, Saviour, Â‘Son of God, have mercy on me, take pity! For I have a soul that is suffering grievously and does not of itself wish to come to its senses.Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Like the woman of Canaan of old, I cry out to you, Saviour, ‘Son of God, have mercy on me, take pity! For I have a soul that is suffering grievously and does not of itself wish to come to its senses.’</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">A storm of unmeasured passions tosses me about. As you once rebuked the sea and saved the holy Disciples, bring me up too, O Jesu, and save me, O Christ.</span>
 
@@ -219,7 +219,7 @@ Surrounded by an abyss of faults.**
 
 **Ode 7. The Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“The Youths in the furnace, imitating the Cherubim, danced and cried out, Â‘Blessed are you, O God, for with truth and judgement you have brought all these things upon us because of our sins; you who are highly praised and glorified to all the ages.Â’Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“The Youths in the furnace, imitating the Cherubim, danced and cried out, ‘Blessed are you, O God, for with truth and judgement you have brought all these things upon us because of our sins; you who are highly praised and glorified to all the ages.’”</span>
 
 **Troparia.**
 
@@ -252,7 +252,7 @@ A godless order.**</span>
 
 **Ode 8. The Irmos.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â“Him whom the wonder of the Virgin foreshadowed for Moses in the Bush on mount Sinai, praise, bless and highly exalt to all the ages.Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">“Him whom the wonder of the Virgin foreshadowed for Moses in the Bush on mount Sinai, praise, bless and highly exalt to all the ages.”</span>
 
 **Troparia.**
 
@@ -262,7 +262,7 @@ A godless order.**</span>
 
 **Of the Martyrs.**
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Â‘Let us stand bravely togetherÂ’, the joyful Champions cried to one another, as they were being savagely tortured. Â‘See Christ is holding out the crowns of victory to all the ages.Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">‘Let us stand bravely together’, the joyful Champions cried to one another, as they were being savagely tortured. ‘See Christ is holding out the crowns of victory to all the ages.’</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">With the powerful ropes of your valiant toils you throttled the serpent who wished maliciously to ensnare you, and you appeared as heirs to the delight of Paradise.</span>
 
@@ -275,7 +275,7 @@ A furnace once in Babylon.</span>**
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Give me your right hand as I lie on the ground, O Forerunner, who stretched out your right hand and washed the Undefiled in the waters, and deliver me from defilement of body, cleansing me wholly by repentance and save me.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Soul, you have an opportunity to repent, shake off the heavy sleep of indifference, and with haste keep awake, crying out to the Master, Â‘At the intercessions of the Baptist take pity on me, O Compassionate!Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Soul, you have an opportunity to repent, shake off the heavy sleep of indifference, and with haste keep awake, crying out to the Master, ‘At the intercessions of the Baptist take pity on me, O Compassionate!’</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Tempests of passions and waves of wickedness have come right into my soul, blessed Forerunner. Hurry quickly to draw me out, you who washed in the streams of the river the calm Ocean of dispassion.</span>
 
@@ -285,13 +285,13 @@ A furnace once in Babylon.</span>**
 
 <span style="mso-font-kerning:10.0pt">**Ode 9. The Irmos.**</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Â“Who of those born of earth has heard the like? Or who has ever seen that a Virgin has been found to bear in her womb and give birth to a babe with pangs? Such is your wonder. And, pure Mother of God, we magnify you.Â”</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">“Who of those born of earth has heard the like? Or who has ever seen that a Virgin has been found to bear in her womb and give birth to a babe with pangs? Such is your wonder. And, pure Mother of God, we magnify you.”</span>
 
 <span style="mso-font-kerning:10.0pt">**Troparia.**</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">How dreadful is your tribunal, at which I wait to be judged, and, as I pass through the whole time of my life in indifference, I am quite insensitive to how fearful it is! Turn me back, only Creator, as you turned back Manasses who had offended.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Â‘Put a stop, O ChristÂ’, I cry out to you, Â‘to the steams of my unnumbered evils, by granting me showers of tears that wash away the defilement that I acquired through folly. And save me, you who in mercy saved the harlot when she repented from her soul.Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">‘Put a stop, O Christ’, I cry out to you, ‘to the steams of my unnumbered evils, by granting me showers of tears that wash away the defilement that I acquired through folly. And save me, you who in mercy saved the harlot when she repented from her soul.’</span>
 
 <span style="mso-font-kerning:10.0pt">**Of the Martyrs.**</span>
 
@@ -316,7 +316,7 @@ The Son of the Father without beginning.**</span>
 
 <span style="mso-font-kerning:10.0pt">**Theotokion.**</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">As he was being carried in the womb of GodÂ’s Mother, you worshipped the One who carries the universe by his will. With her, O Prophet, entreat that my miserable soul, which daily falls into many offences, may be saved.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">As he was being carried in the womb of God’s Mother, you worshipped the One who carries the universe by his will. With her, O Prophet, entreat that my miserable soul, which daily falls into many offences, may be saved.</span>
 
 **Aposticha of Lauds, of Compunction.**
 
@@ -331,7 +331,7 @@ The Son of the Father without beginning.**</span>
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Glory. Both now. <span style="color:red">Theotokion</span></span>
 
 <span style="letter-spacing:
-0pt">Hail Mary, Mother of God, Temple that cannot be destroyed, but rather is Holy, as the Prophet cried, </span><span style="mso-font-kerning:10.0pt">Â‘Holy is your Temple, wonderful in righteousnessÂ‘<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a>.</span><span style="letter-spacing:0pt"></span>
+0pt">Hail Mary, Mother of God, Temple that cannot be destroyed, but rather is Holy, as the Prophet cried, </span><span style="mso-font-kerning:10.0pt">‘Holy is your Temple, wonderful in righteousness‘<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a>.</span><span style="letter-spacing:0pt"></span>
 
 ------------------------------------------------------------------------
 
@@ -348,6 +348,6 @@ The Son of the Father without beginning.**</span>
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

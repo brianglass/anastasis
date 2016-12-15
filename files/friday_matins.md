@@ -22,7 +22,7 @@ When you were crucified, O Christ, the tyranny of the foe was abolished and his 
 
 ****
 
-Cross-Theotokion. The soldiers watching. Ã”ὸÃ­ Ã´άÃ¶Ã¯Ã­ Ã³Ã¯Ãµ Ã“Ã¹Ã´ήÃ±.
+Cross-Theotokion. The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.
 
 You wounded the foe by your Cross, O Saviour; scatter their heresies like dust; exalt the horn of your honoured Church; halt the storm that rages against us, O Lord, and give peace to the multitudes of the Orthodox at the prayers of her who bore you.
 
@@ -30,7 +30,7 @@ You wounded the foe by your Cross, O Saviour; scatter their heresies like dust; 
 
 After the 2nd Reading from the Psalter Kathismata of the Cross.
 
-When the stone had been sealed. Ã”Ã¯ῦ Ã«ίÃ¨Ã¯Ãµ Ã³Ã¶Ã±Ã¡Ã£Ã©Ã³Ã¨έÃ­Ã´Ã¯Ã².
+When the stone had been sealed. Ôïῦ ëίèïõ óöñáãéóèέíôïò.
 
 We worship the tree of your Cross. Lover of mankind, because you, the Life of all, were nailed upon it; you opened Paradise, O Saviour, to the Thief who approached you in faith, and he was found worthy of its delight when he confessed you: Remember me, Lord. Like him receive us too who cry: We have all sinned; in your compassion do not despise us.
 
@@ -40,7 +40,7 @@ Verse:
 
 God is our king from of old; he has worked salvation in the midst of the earth. ****
 
-The soldiers watching. Ã”ὸÃ­ Ã´άÃ¶Ã¯Ã­ Ã³Ã¯Ãµ Ã“Ã¹Ã´ήÃ±.
+The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.
 
 The weapon of the Cross was once revealed in war to the devout King Constantine as an invincible trophy against his foes through Faith. The hostile powers tremble at it; it has become the salvation of the faithful and the boast of Paul.
 
@@ -48,12 +48,12 @@ Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
-Â‘Seeing you dead and naked on a tree I am grievously wounded and I am shaken to the depths of my being, my Son and my God, supremely good and all-powerfulÂ’, cried out the All-blameless in her distress. As Mother of the Lord let us sing her praise and glorify her.
+‘Seeing you dead and naked on a tree I am grievously wounded and I am shaken to the depths of my being, my Son and my God, supremely good and all-powerful’, cried out the All-blameless in her distress. As Mother of the Lord let us sing her praise and glorify her.
 
 ****
 
 After the 3rd Reading from the Psalter, Kathismata.
-The soldiers watching. Ã”ὸÃ­ Ã´άÃ¶Ã¯Ã­ Ã³Ã¯Ãµ Ã“Ã¹Ã´ήÃ±.
+The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.
 
 Willingly nailed to the Cross, O Compassionate, you made our corrupted nature divine, and put to death the dragon that destroys humankind. But buttress the world by orthodoxy and put down the uprisings of heresy by your precious Cross.
 
@@ -70,7 +70,7 @@ The glorious Champions have surrounded you, O Lord, as the boast of struggle and
 Glory. Both now.
 
 **Cross-Theotokion.**
-**The soldiers watching. Ã”ὸÃ­ Ã´άÃ¶Ã¯Ã­ Ã³Ã¯Ãµ Ã“Ã¹Ã´ήÃ±.**
+**The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.**
 
 The spotless Ewe-lamb, seeing the Lamb and Shepherd on the Cross like a lamb that was slain, tore at her eyes and cried out in grief: Oh, the daring of the bloodthirsty Hebrews! Oh, your divine long-suffering, my Son! For you have suffered willingly.
 
@@ -78,7 +78,7 @@ The spotless Ewe-lamb, seeing the Lamb and Shepherd on the Cross like a lamb tha
 
 Canon of the Cross, a composition of Kyr Joseph, of which the acrostic is:
 
-The MasterÂ’s holy sufferings now will I praise. Joseph.
+The Master’s holy sufferings now will I praise. Joseph.
 
 ****
 
@@ -118,7 +118,7 @@ Made pure in soul beforehand by the light of the divine Spirit, you received in 
 
 We magnify you, the heavenly tabernacle and holy ark, in which Christ his own house and revealed you as a mercy seat for our salvation.
 
-You are a safe refuge, wall, protection, harbour and mighty guardian of the race of mortals in lifeÂ’s troubles, all-praised Mother of God.
+You are a safe refuge, wall, protection, harbour and mighty guardian of the race of mortals in life’s troubles, all-praised Mother of God.
 
 ****
 
@@ -278,7 +278,7 @@ After childbirth, O All-blameless, you remained as before childbirth; for you bo
 
 Of the Mother of God. A different Irmos.
 
-\[With Jonas, Lord, we cry to you, imploring with a voice of praise, Â‘Bring our life up from corruptionÂ’.\]
+\[With Jonas, Lord, we cry to you, imploring with a voice of praise, ‘Bring our life up from corruption’.\]
 
 Heal the painful fractures of my passions with the bandage that is your intercession, Sovereign Lady, and grant me strength.
 
@@ -320,15 +320,15 @@ The blameless Mother of God, seeing the Lord crucified, said: Alas, my Son, how 
 
 Of the Mother of God. A different Irmos.
 
-\[You appeared in the bush and the fire to the Lawgiver, and by it foreshadowed the VirginÂ’s child-bearing. Blessed are you, Lord, the God of our fathers.\]
+\[You appeared in the bush and the fire to the Lawgiver, and by it foreshadowed the Virgin’s child-bearing. Blessed are you, Lord, the God of our fathers.\]
 
-Knowing you to a helper in trials and safety in dangers, Sovereign Lady, with faith we cry, Â‘Blessed, O All-pure, is the fruit of your wombÂ’.
+Knowing you to a helper in trials and safety in dangers, Sovereign Lady, with faith we cry, ‘Blessed, O All-pure, is the fruit of your womb’.
 
-As you gave birth to the Giver of life, O Mother of God, raise me up, who have been slain by grievous sins, as I cry out, Â‘Blessed are you, God of our fathersÂ’.
+As you gave birth to the Giver of life, O Mother of God, raise me up, who have been slain by grievous sins, as I cry out, ‘Blessed are you, God of our fathers’.
 
 Coming forth from you, God redeemed nature from the curse and cured all its pains. Blessed, All-pure, is the fruit of your womb.
 
-Hail, joy of believers, and release from grief. Hail, mercy-seat of all who cry in faith, Â‘Blessed are you, immaculate, all-praised Mother of GodÂ’.
+Hail, joy of believers, and release from grief. Hail, mercy-seat of all who cry in faith, ‘Blessed are you, immaculate, all-praised Mother of God’.
 
 ****
 
@@ -362,15 +362,15 @@ She who is higher than the heavens, when she saw Christ lifted high on a Tree an
 
 Of the Mother of God. A different Irmos.
 
-\[Like the Youths in the furnace, we offer you the hymn of the Bodiless Powers, and singing in praise we say, Â‘Bless the Lord, all you works of the LordÂ’.\]
+\[Like the Youths in the furnace, we offer you the hymn of the Bodiless Powers, and singing in praise we say, ‘Bless the Lord, all you works of the Lord’.\]
 
-Appease the compassionate God and Word, O Mother of God, on behalf of those why cry in faith, Â‘Bless the Lord, all you works of the LordÂ’.
+Appease the compassionate God and Word, O Mother of God, on behalf of those why cry in faith, ‘Bless the Lord, all you works of the Lord’.
 
-We who are fixed fast in a deep of offences and have your intercession as cleansing, Mother of God, cry, Â‘Bless the Lord, all you works of the LordÂ’.
+We who are fixed fast in a deep of offences and have your intercession as cleansing, Mother of God, cry, ‘Bless the Lord, all you works of the Lord’.
 
-Having you as refuge, support and protection in trouble, we all cry, Â‘Bless the Lord, all you works of the LordÂ’.
+Having you as refuge, support and protection in trouble, we all cry, ‘Bless the Lord, all you works of the Lord’.
 
-A mist of fearful waves troubles me, and so I hasten to the harbour of your intercession crying out, Â‘Bless the Lord, all you works of the LordÂ’.
+A mist of fearful waves troubles me, and so I hasten to the harbour of your intercession crying out, ‘Bless the Lord, all you works of the Lord’.
 
 ****
 
@@ -406,7 +406,7 @@ Of the Mother of God. Same Irmos.
 
 As you great sympathy and a wealth of compassion, Sovereign Lady, heal the sufferings, wounds, bruises and pains of my body, that as is fitting I may glorify you.
 
-As the one who conceived in her womb and bore beyond nature the Word of the Father and remained Virgin, O All-pure, I glorify you as with thanksgiving I cry, Â‘Hail, help of sinnersÂ’.
+As the one who conceived in her womb and bore beyond nature the Word of the Father and remained Virgin, O All-pure, I glorify you as with thanksgiving I cry, ‘Hail, help of sinners’.
 
 You alone are the unerring guidance of the faithful, a saving path, leading straight to the truly heavenly Kingdom, O Immaculate, the hope of our souls.
 
@@ -414,7 +414,7 @@ You cultivated and nourished for us the heavenly Ear of corn, O All-blameless, a
 
 ****
 
-Exapostilarion. Ὁ Ã¯ὐÃ±Ã¡Ã­ὸÃ­ Ã´Ã¯ῖÃ² ἄÃ³Ã´Ã±Ã¯Ã©Ã².
+Exapostilarion. Ὁ ïὐñáíὸí ôïῖò ἄóôñïéò.
 
 Cross of my Christ, sceptre and victory of Sovereigns, glory of the Orthodox, guard those who worship you, that the multitudes of the unorthodox may be defeated.
 
@@ -428,7 +428,7 @@ The Cross is the guardian of the whole inhabited world; the Cross is the beauty 
 
 Cross-Theotokion.
 
-Standing by the Cross and grieving, she who gave you birth without seed, cried out, Â‘Alas, my sweetest Child! How have you set from my sight? How have you been numbered among the dead?Â’
+Standing by the Cross and grieving, she who gave you birth without seed, cried out, ‘Alas, my sweetest Child! How have you set from my sight? How have you been numbered among the dead?’
 
 ****
 
@@ -455,6 +455,6 @@ Sweetest child, you have been lifted up on the Cross like an innocent lamb, will
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

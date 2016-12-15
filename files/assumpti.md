@@ -122,7 +122,7 @@ Thus says the Lord: Walk, go through my gates; prepare my way and make a way for
 The Reading is from the Prophecy of Zachary.
 \[**14,4; 8-11\]**
 
-Thus says the Lord: See, the day of the Lord is coming, and on that day his feet will stand upon the mount of Olives, opposite Jerusalem, where the sun rises. And on that day living water will come out from Jerusalem, half towards the first sea and half towards the last sea; in spring and in summer it shall be so; and the Lord will be for a King over all the earth; in that day there shall be one Lord, and his name, compassing all the earth and the wilderness from Gabaa as far as Remmon, south of Jerusalem; and he shall be exalted and remain on his place from the gate of Benjamin as far as the place of the first gate, as far as the gate of Gomor and as far as the tower of AnameÃ«l and as far as the tower of the corners and as far as the king’s winepresses; they shall dwell in it and there shall be no more curse and Jerusalem shall dwell confidently.
+Thus says the Lord: See, the day of the Lord is coming, and on that day his feet will stand upon the mount of Olives, opposite Jerusalem, where the sun rises. And on that day living water will come out from Jerusalem, half towards the first sea and half towards the last sea; in spring and in summer it shall be so; and the Lord will be for a King over all the earth; in that day there shall be one Lord, and his name, compassing all the earth and the wilderness from Gabaa as far as Remmon, south of Jerusalem; and he shall be exalted and remain on his place from the gate of Benjamin as far as the place of the first gate, as far as the gate of Gomor and as far as the tower of Anameël and as far as the tower of the corners and as far as the king’s winepresses; they shall dwell in it and there shall be no more curse and Jerusalem shall dwell confidently.
 
 ****
 
@@ -884,7 +884,7 @@ You were taken up in glory, Christ our God, having made the Disciples joyful wit
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
 
@@ -893,6 +893,6 @@ able&gt;
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

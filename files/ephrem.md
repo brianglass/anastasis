@@ -40,7 +40,7 @@ The icon of St Ephrem was painted for me at the Monastery of the Holy Paraclete,
 
 ------------------------------------------------------------------------
 
-The Introductions, Notes and Translations on these pages are all Â© by Archimandrite Ephrem, 1997.
+The Introductions, Notes and Translations on these pages are all © by Archimandrite Ephrem, 1997.
 
 ------------------------------------------------------------------------
 
@@ -49,6 +49,6 @@ The Introductions, Notes and Translations on these pages are all Â© by Archima
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

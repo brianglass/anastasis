@@ -14,13 +14,13 @@ AT VESPERS
 
 **Tone 1**
 
-Brethren, let us not pray like the Pharisee, for those who exalt themselves will be humbled. Let us be humbled before God through fasting like the Tax Collector, as we cry aloud, Â‘God forgive<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a> us sinnersÂ’.<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a> <span style="mso-bidi-font-style:italic">(<span style="color:red">Twice</span>)</span>**
+Brethren, let us not pray like the Pharisee, for those who exalt themselves will be humbled. Let us be humbled before God through fasting like the Tax Collector, as we cry aloud, ‘God forgive<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a> us sinners’.<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a> <span style="mso-bidi-font-style:italic">(<span style="color:red">Twice</span>)</span>**
 
-A Pharisee, conquered by vainglory, and a Tax Collector, bowed down in repentance, drew near to you, the only Master. The one by boasting was deprived of GodÂ’s good things, while the other by not uttering was found worthy of gifts. Strengthen me<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a> by these sighs of sorrow, Christ our God, for you love humankind.
+A Pharisee, conquered by vainglory, and a Tax Collector, bowed down in repentance, drew near to you, the only Master. The one by boasting was deprived of God’s good things, while the other by not uttering was found worthy of gifts. Strengthen me<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a> by these sighs of sorrow, Christ our God, for you love humankind.
 
 <span style="color:windowtext">Glory.</span> **Tone 8**
 
-Almighty Lord, I know how powerful tears are. They brought Ezekias up from the gates of death.<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a> They delivered the sinful woman from the transgressions of many years.<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a> They justified the Tax Collector above the Pharisee. And so I pray, Â‘Numbering me with them with them, have mercy on meÂ’.
+Almighty Lord, I know how powerful tears are. They brought Ezekias up from the gates of death.<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a> They delivered the sinful woman from the transgressions of many years.<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a> They justified the Tax Collector above the Pharisee. And so I pray, ‘Numbering me with them with them, have mercy on me’.
 
 <span style="color:windowtext">Both now.</span>
 
@@ -32,7 +32,7 @@ Almighty Lord, I know how powerful tears are. They brought Ezekias up from the g
 
 <span style="font-size:1.0pt;mso-bidi-font-size:10.0pt"> </span>
 
-<span style="color: windowtext">Understanding the difference between the Tax Collector and the Pharisee, my soul, hate the proud speech of the one, and eagerly imitate the deeply contrite prayer of the other, crying aloud, Â‘God forgive me a sinner and have mercy on meÂ’.</span><a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="color:windowtext"></span>
+<span style="color: windowtext">Understanding the difference between the Tax Collector and the Pharisee, my soul, hate the proud speech of the one, and eagerly imitate the deeply contrite prayer of the other, crying aloud, ‘God forgive me a sinner and have mercy on me’.</span><a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="color:windowtext"></span>
 
 <span style="color:windowtext">Both now.</span> **Theotokion. Same Tone.**
 
@@ -46,7 +46,7 @@ My eyes have been weighed down through my iniquities, and I am unable to look up
 
 <span style="color:windowtext">Both now.</span> **Theotokion. Same Tone.**
 
-You are temple and gate, palace and throne of the King, all-honoured Virgin. Through you, my Redeemer, Christ the Lord, appeared to those who sat in darkness, for he is the Sun of justice, who wishes to enlighten those whom he fashioned in his own image by his own hand. Therefore, O All-praised, as you have a motherÂ’s freedom to speak with him, intercede unceasingly that our souls may be saved.
+You are temple and gate, palace and throne of the King, all-honoured Virgin. Through you, my Redeemer, Christ the Lord, appeared to those who sat in darkness, for he is the Sun of justice, who wishes to enlighten those whom he fashioned in his own image by his own hand. Therefore, O All-praised, as you have a mother’s freedom to speak with him, intercede unceasingly that our souls may be saved.
 
 **Apolytikion,** <span style="color:windowtext">Virgin Mother of God</span>**, three times.**
 
@@ -75,7 +75,7 @@ baseline"></span>
 footnote">[5]</span></a> Luke 7:36-50
 
 <a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[6]</span></a> The translation of the last two clauses is a problem. The first is a quotation from the parable, which is almost always translated Â‘God, be merciful to me a sinnerÂ’; the second is the extremely common prayer Â‘Have mercy on meÂ’, *eleison me.* The prayer in the Gospel could equally well be rendered Â‘Be gracious to meÂ’, or Â‘forgive meÂ’. The familiar prayer to the Holy Trinity, Â‘All-holy Trinity, have mercy on us. Lord, wipe away our sinsÂ’ is not from this passage, but from Psalm 78:9, where the Septuagint is translating the Hebrew *kipper*, which probably means Â‘wipe awayÂ’, though some scholars believe it means Â‘coverÂ’. The former meaning explains the Slavonic translation. The Greek verb is extremely rare in the Bible, occurring about a dozen times in the Old and only twice in the New Testament.<span style="mso-spacerun: yes"> </span>
+footnote">[6]</span></a> The translation of the last two clauses is a problem. The first is a quotation from the parable, which is almost always translated ‘God, be merciful to me a sinner’; the second is the extremely common prayer ‘Have mercy on me’, *eleison me.* The prayer in the Gospel could equally well be rendered ‘Be gracious to me’, or ‘forgive me’. The familiar prayer to the Holy Trinity, ‘All-holy Trinity, have mercy on us. Lord, wipe away our sins’ is not from this passage, but from Psalm 78:9, where the Septuagint is translating the Hebrew *kipper*, which probably means ‘wipe away’, though some scholars believe it means ‘cover’. The former meaning explains the Slavonic translation. The Greek verb is extremely rare in the Bible, occurring about a dozen times in the Old and only twice in the New Testament.<span style="mso-spacerun: yes"> </span>
 
 <a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[7]</span></a> Unlike the Slavonic, the current Greek Triodion makes no special provision for the Liti. The Slavonic books give the third Idiomel in Tone 3 from Lauds as the Doxastikon and the Resurrection Theotokion in the same Tone.<span style="mso-spacerun: yes"> </span>
@@ -85,6 +85,6 @@ footnote">[7]</span></a> Unlike the Slavonic, the current Greek Triodion makes n
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -252,13 +252,13 @@ The fallen first created to himself.
 
 ****
 
-The YpakoÃ¯. Tone 8.
+The Ypakoï. Tone 8.
 
 Heaven, calling the Magi by a star, brought the first fruits of the nations to you, an infant lying in a manger; sceptres and thrones did not astonish them, but utter poverty; for what is meaner than a cave, what humbler than swaddling clothes? In which there shone forth the wealth of your godhead. Lord, glory to you!
 
 ****
 
-When we say an YpakoÃ¯ we do not say a Kathisma, as we have found in some Typika.
+When we say an Ypakoï we do not say a Kathisma, as we have found in some Typika.
 
 Kathisma. Tone 8.
 
@@ -670,6 +670,6 @@ Great Doxology and Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

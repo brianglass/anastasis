@@ -35,7 +35,7 @@ By the strength of the Trinity you drove polytheism from the ends of the earth, 
 
 <img src="Meeting.jpg" width="136" height="193" />
 
-When the forty days of the purification of the most pure Mother and ever-virgin Mary was complete, she brought her first born Son to Jerusalem on this day, which is the fortieth from his Nativity, that she might present him in the temple and fulfil the law of Moses that every first born male shall be dedicated to God, and that she might offer the sacrifice prescribed for this, a brace of pigeons or two young doves \[Lk 2.22-24; Ex 13.2; Lev 12.6-8\]. On the same day and hour the devout and just Symeon, a very old man, was present there, guided by the Holy Spirit. He had long been waiting for the salvation of God and had been informed by a divine revelation that he would not die until he had seen the LordÂ’s Christ. When he had seen him and taken him in his aged arms he gave glory to God and sang the third and final canticle of the New Testament, Â‘Now, Master, you dismiss your servantÂ’, and confessed that he closed his eyes in death with joy, since he had seen the light for revelation to the gentiles and the glory of Israel \[Lk 2.25-32\].
+When the forty days of the purification of the most pure Mother and ever-virgin Mary was complete, she brought her first born Son to Jerusalem on this day, which is the fortieth from his Nativity, that she might present him in the temple and fulfil the law of Moses that every first born male shall be dedicated to God, and that she might offer the sacrifice prescribed for this, a brace of pigeons or two young doves \[Lk 2.22-24; Ex 13.2; Lev 12.6-8\]. On the same day and hour the devout and just Symeon, a very old man, was present there, guided by the Holy Spirit. He had long been waiting for the salvation of God and had been informed by a divine revelation that he would not die until he had seen the Lord’s Christ. When he had seen him and taken him in his aged arms he gave glory to God and sang the third and final canticle of the New Testament, ‘Now, Master, you dismiss your servant’, and confessed that he closed his eyes in death with joy, since he had seen the light for revelation to the gentiles and the glory of Israel \[Lk 2.25-32\].
 
 ****
 
@@ -49,7 +49,7 @@ Hail Mother of God, Virgin full of grace! For from you the Sun of justice has da
 
 Kontakion. Tone 1.
 
-You sanctified a virgin womb by your birth, and fittingly blessed SymeonÂ’s hands, You have come now too and saved us, O Christ God; but give peace to your commonwealth in times of war, and strengthen our Rulers, whom You have loved, who alone love mankind.
+You sanctified a virgin womb by your birth, and fittingly blessed Symeon’s hands, You have come now too and saved us, O Christ God; but give peace to your commonwealth in times of war, and strengthen our Rulers, whom You have loved, who alone love mankind.
 
 3. Of the holy and just Symeon, who received God, and the holy Prophetess Anna.
 
@@ -113,13 +113,13 @@ God of our Fathers, who always deal with us in your forbearance, do not deprive 
 
 Kontakion. Tone 3.
 
-Holy Parthenios, inspired by God, you received the divine grace of wonders, you purify all the passions of the faithful by driving out spirits of evil, wonderworking, god-bearing Father; therefore we hymn you as a great initiate of GodÂ’s grace.
+Holy Parthenios, inspired by God, you received the divine grace of wonders, you purify all the passions of the faithful by driving out spirits of evil, wonderworking, god-bearing Father; therefore we hymn you as a great initiate of God’s grace.
 
 ****
 
 8. Of the holy Great Martyr Theodore the General, and of the holy Prophet Zachary.
 
-The Martyr was of the EfchaÃ¯tes of Galatia, he lived in Herakleia and was a soldier by profession. He suffered under Licinius in 320. The prophet was the son of Barachias, and a contemporary of the Prophet Haggai \[Dec.16th\]. He also prophesied at around the same time as he. His prophecy is divided into 14 chapters and is ranged eleventh among the Minor Prophets.
+The Martyr was of the Efchaïtes of Galatia, he lived in Herakleia and was a soldier by profession. He suffered under Licinius in 320. The prophet was the son of Barachias, and a contemporary of the Prophet Haggai \[Dec.16th\]. He also prophesied at around the same time as he. His prophecy is divided into 14 chapters and is ranged eleventh among the Minor Prophets.
 
 ****
 
@@ -177,7 +177,7 @@ You dawned like as a beacon from the East and enlightened the faithful with the 
 
 11. Of the holy Bishop and Martyr Blaise, and of the holy Augusta \[Empress\] Theodora.
 
-He was Bishop of Sebaste \[in Armenia\]. The divine grace through which he cured the diseases of men and animals, and especially those of children, made his name well known. He suffered under Licinius in 316. The revered Empress Theodora came from Paphlagonia, daughter of a Chiliarch named Marinos. She became the wife of the iconoclast Emperor Theophilos and adorned her diadem through virtue and piety. She restored the holy Images after the death of her husband \[1st Sunday of the Fast\]. She guided the throne with great wisdom for fifteen years, while her son Michael was still a minor. In 857 she abdicated and entered a womanÂ’s monastery called Gastria, where she lived holily for the rest of her life and fell asleep in the Lord. Her sacred relics are located today in Corfu, in the Church of the Metropolis dedicated to the Archangel Michael \[Dec.22nd\].
+He was Bishop of Sebaste \[in Armenia\]. The divine grace through which he cured the diseases of men and animals, and especially those of children, made his name well known. He suffered under Licinius in 316. The revered Empress Theodora came from Paphlagonia, daughter of a Chiliarch named Marinos. She became the wife of the iconoclast Emperor Theophilos and adorned her diadem through virtue and piety. She restored the holy Images after the death of her husband \[1st Sunday of the Fast\]. She guided the throne with great wisdom for fifteen years, while her son Michael was still a minor. In 857 she abdicated and entered a woman’s monastery called Gastria, where she lived holily for the rest of her life and fell asleep in the Lord. Her sacred relics are located today in Corfu, in the Church of the Metropolis dedicated to the Archangel Michael \[Dec.22nd\].
 
 ****
 
@@ -185,13 +185,13 @@ Permission for wine and oil.
 
 Apolytikion. Tone 4.
 
-You shared their way of life and you succeeded to the ApostlesÂ’ thrones; you found the action, O God-inspired, to climb the heights of contemplation; rightly directing the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Blaise; intercede with Christ God that our souls may be saved.
+You shared their way of life and you succeeded to the Apostles’ thrones; you found the action, O God-inspired, to climb the heights of contemplation; rightly directing the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Blaise; intercede with Christ God that our souls may be saved.
 
 ****
 
 Kontakion. Tone 2.
 
-Godly shoot, unfading flower, most fruitful branch of ChristÂ’s vine, god-bearing Blaise, fill with joy those who honour your memory in faith as you intercede without ceasing for us all.
+Godly shoot, unfading flower, most fruitful branch of Christ’s vine, god-bearing Blaise, fill with joy those who honour your memory in faith as you intercede without ceasing for us all.
 
 12. Of our Father among the Saints Meletios, archbishop of Antioch the Great.
 
@@ -263,7 +263,7 @@ Your Martyrs, O Lord, by their struggles obtained crowns of incorruption from Yo
 
 Kontakion. Tone 4.
 
-In the face of fearful tortures the LordÂ’s true athletes rejoiced with unflinching mind and confronted them, reckoning nothing to the flesh; therefore they have inherited everlasting glory and ever intercede for us who praise their struggles.
+In the face of fearful tortures the Lord’s true athletes rejoiced with unflinching mind and confronted them, reckoning nothing to the flesh; therefore they have inherited everlasting glory and ever intercede for us who praise their struggles.
 
 ****
 
@@ -299,7 +299,7 @@ The truth of your actions proclaimed you to your flock as a rule of faith, an im
 
 Kontakion. Tone 3.
 
-Seated on a priestly throne, glorious Father, you stopped the mouths of rational lions with god-inspired doctrines of the holy Trinity and shed the light of the knowledge of God on your flock; therefore you have been glorified as a godly initiate of GodÂ’s grace.
+Seated on a priestly throne, glorious Father, you stopped the mouths of rational lions with god-inspired doctrines of the holy Trinity and shed the light of the knowledge of God on your flock; therefore you have been glorified as a godly initiate of God’s grace.
 
 19. Of the holy Apostle Archippus (See November 22nd).
 
@@ -333,7 +333,7 @@ Let us all garland with songs Leo, offered to the Lord from infancy and recipien
 
 21. Of our venerable Father Timothy of Symvola, and of Saint Efstathios \[Eustace\], bishop of Antioch the Great.
 
-The SaintÂ’s country and period when he led the ascetic life are unknown. Efstathios the great champion of piety was from Sidi in Pamphylia. He first became bishop of Beroea (Aleppo); then in 325, after being present at the First General Council, he was translated by it to the throne of Antioch. But Constantine the Great, believing the AriansÂ’ accusations against him, exiled him to Traianoupolis in Thrace, where he died in 337, according to some; but others extend his life to 360.
+The Saint’s country and period when he led the ascetic life are unknown. Efstathios the great champion of piety was from Sidi in Pamphylia. He first became bishop of Beroea (Aleppo); then in 325, after being present at the First General Council, he was translated by it to the throne of Antioch. But Constantine the Great, believing the Arians’ accusations against him, exiled him to Traianoupolis in Thrace, where he died in 337, according to some; but others extend his life to 360.
 
 ****
 
@@ -357,13 +357,13 @@ Your Martyrs, O Lord, by their struggles obtained crowns of incorruption from Yo
 
 23. Of the holy Bishop and Martyr Polycarp, bishop of Smyrna.
 
-This Apostolic and Prophetic man and model of faith and truth was the disciple of John the Evangelist and successor of Voukolos (Feb.6th). He was very old, 95 years, when the fifth persecution of the Christians broke out under Marcus Aurelius who was called the Antonine philosopher. Polycarp was arrested by the proconsul of Smyrna and when urged to blaspheme Christ he said: Â‘I have served Him for eighty six years and He has done me no wrong; how can I blaspheme the King who has saved me?Â’ But the tyrant, enraged at these words, gave orders for him to be cast into the fire. And so he perished gloriously in the year 166, having always taught, according to Eusebius, what he had learned from the Apostles, what the Church hands down, which alone is true (Eccles. Hist. IV.14 and 15).
+This Apostolic and Prophetic man and model of faith and truth was the disciple of John the Evangelist and successor of Voukolos (Feb.6th). He was very old, 95 years, when the fifth persecution of the Christians broke out under Marcus Aurelius who was called the Antonine philosopher. Polycarp was arrested by the proconsul of Smyrna and when urged to blaspheme Christ he said: ‘I have served Him for eighty six years and He has done me no wrong; how can I blaspheme the King who has saved me?’ But the tyrant, enraged at these words, gave orders for him to be cast into the fire. And so he perished gloriously in the year 166, having always taught, according to Eusebius, what he had learned from the Apostles, what the Church hands down, which alone is true (Eccles. Hist. IV.14 and 15).
 
 ****
 
 Apolytikion. Tone 4.
 
-You shared their way of life and you succeeded to the ApostlesÂ’ thrones; you found the action, O God-inspired, to climb the heights of contemplation; rightly directing the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Polycarp; intercede with Christ God that our souls may be saved.
+You shared their way of life and you succeeded to the Apostles’ thrones; you found the action, O God-inspired, to climb the heights of contemplation; rightly directing the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Polycarp; intercede with Christ God that our souls may be saved.
 
 ****
 
@@ -421,7 +421,7 @@ Adorned with holy ways you were radiantly attired with the robe of priesthood, a
 
 27. Of our venerable Father and confessor Prokopios the Dekapolite.
 
-He and his fellow ascetic and athleteÂ—below on the 28thÂ—Basil flourished around the middle of the eighth century, in the time of Leo the Isaurian, by whom they also suffered much for their reverence for the holy Icons. They ended their lives as monks.
+He and his fellow ascetic and athlete—below on the 28th—Basil flourished around the middle of the eighth century, in the time of Leo the Isaurian, by whom they also suffered much for their reverence for the holy Icons. They ended their lives as monks.
 
 ****
 
@@ -460,6 +460,6 @@ Alleluia.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

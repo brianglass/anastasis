@@ -289,7 +289,7 @@ Kontakion. Tone 4. Lifted up on the Cross.
 
 As a precious treasure and a spring flowing with streams of healings the Master has granted your relics to those on earth; they cleanse diseases of every kind and give grace to souls in a never-ending stream; and so with one accord, Karpos and Papylos we celebrate with love your festival.
 
-14. Of the holy Martyrs Nazarius, Gervase, Protasius and Celsius; and of our venerable father Kosmas of the Holy City, the poet, Bishop of MaÃ¯ouma.
+14. Of the holy Martyrs Nazarius, Gervase, Protasius and Celsius; and of our venerable father Kosmas of the Holy City, the poet, Bishop of Maïouma.
 
 All the Martyrs suffered at Milan under Nero in 64.
 
@@ -701,6 +701,6 @@ The Saints of Cyprus, Apostles and Martyrs, High Priests and Ascetics, let us Cy
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

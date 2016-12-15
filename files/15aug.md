@@ -20,7 +20,7 @@ AT SMALL VESPERS
 
 **At** Lord, I have cried **we insert 4 Stichera and sing the 3 following Prosomia, doubling the 1st.**
 
-Tone 2. <span style="font-family: Palatino Linotype">Ã?Ã¯ίÃ¯Ã©Ã² Ã¥ὐÃ¶Ã§Ã¬Ã©ῶÃ­ Ã³Ã´έÃ¬Ã¬Ã¡Ã³Ã©.</span>
+Tone 2. <span style="font-family: Palatino Linotype">Ðïίïéò åὐöçìéῶí óôέììáóé.</span>
 
 With what lips may we, poor and worthless, call the Mother of God blessed? She is greater in honour than creation and holier than the Cherubim and all the Angels; the unshakeable throne of the King; the house in which the Most High made his dwelling; the salvation of the world; the Sanctuary of God; on her memorial she richly grants to all the faithful his great mercy. (
 
@@ -38,7 +38,7 @@ She who is higher than the heavens, more glorious than the Cherubim and greater 
 
 ****
 
-At the Aposticha, Prosomia. Tone 2. <span lang="EL" style="font-family: Palatino Linotype">Ã?ἶÃªÃ¯Ã² Ã´Ã¯ῦ ἘÃ¶Ã±Ã¡Ã¨ά</span><span style="font-family: Palatino Linotype">.</span>
+At the Aposticha, Prosomia. Tone 2. <span lang="EL" style="font-family: Palatino Linotype">Ïἶêïò ôïῦ Ἐöñáèά</span><span style="font-family: Palatino Linotype">.</span>
 
 Having come from the ends of the earth at an all-powerful command, the company of the Disciples is gathering to bury the Mother who gave birth to God.
 
@@ -87,7 +87,7 @@ At
 
 Lord, I have cried **we insert 8 Stichera and sing 3 Prosomia.**
 
-Tone 1. Model Melody. <span lang="EL" style="font-family: Palatino Linotype">Ὧ Ã´Ã¯ῦ Ã°Ã¡Ã±Ã¡Ã¤όÃ®Ã¯Ãµ Ã¨Ã¡ύÃ¬Ã¡Ã´Ã¯Ã²!</span>
+Tone 1. Model Melody. <span lang="EL" style="font-family: Palatino Linotype">Ὧ ôïῦ ðáñáäόîïõ èáύìáôïò!</span>
 
 O marvellous wonder! The source of life is laid in a grave, and the tomb becomes a ladder to heaven. Be glad, O Gethsemane, the holy shrine of the Mother of God. Let us the faithful cry, with Gabriel as our captain: O Full of grace, hail! The Lord is with you, who grants the world through you his great mercy. (
 
@@ -266,7 +266,7 @@ AT MATINS
 
 **After the 1st Reading from the Psalter, Kathisma.**
 
-Tone 4. <span lang="EL" style="font-family: Palatino Linotype"> ÃŠÃ¡Ã´Ã¥Ã°Ã«άÃ£Ã§ ἸÃ¹Ã³ὴÃ¶</span><span style="font-family: Palatino Linotype">.</span>
+Tone 4. <span lang="EL" style="font-family: Palatino Linotype"> Êáôåðëάãç Ἰùóὴö</span><span style="font-family: Palatino Linotype">.</span>
 
 David, cry out: ‘What is this present feast? The one I sang of in the book of Psalms, he says, as daughter and child of God and Virgin, Christ, who was born from her without seed, has taken over to the mansions of the world to come; and therefore mothers and daughters and brides of Christ rejoice as they cry: Hail, you who have passed over into the palaces on high’.
 
@@ -276,7 +276,7 @@ Glory. Both now.
 
 After the 2nd Reading, Kathisma.
 
-Tone 1. <span lang="EL" style="font-family: Palatino Linotype"> Ã”ὸÃ­ Ã´άÃ¶Ã¯Ã­ Ã³Ã¯Ãµ Ã“Ã¹Ã´ὴÃ±</span>
+Tone 1. <span lang="EL" style="font-family: Palatino Linotype"> Ôὸí ôάöïí óïõ Óùôὴñ</span>
 
 The all-honoured choir of the wise Apostles was wondrously assembled to bury with glory your immaculate body, O all-praised Mother of God. With them the multitudes of Angels also raised their song as they reverently praised your Translation, which we celebrate with faith.
 
@@ -285,7 +285,7 @@ Glory. Both now.
 **The same.** **** ****
 
 After the Polyeleos, Kathisma.
-Tone 3. <span lang="EL" style="font-family: Palatino Linotype">Ã”ὴÃ­ ὡÃ±Ã¡Ã©όÃ´Ã§Ã´Ã¡</span><span style="font-family: Palatino Linotype">.</span>
+Tone 3. <span lang="EL" style="font-family: Palatino Linotype">Ôὴí ὡñáéόôçôá</span><span style="font-family: Palatino Linotype">.</span>
 
 In your giving birth conception was without seed; in your falling asleep death was without corruption. A double wonder ran to meet a wonder, O Mother of God; for how could one who knew not wedlock suckle a babe, while yet remaining pure? How could God’s Mother be carried as a corpse while yet giving off sweet fragrance? And so with the Angel we cry to you: ‘Hail, full of grace!’
 
@@ -396,7 +396,7 @@ A company of Theologians from the ends of the earth and a multitude of Angels ha
 
 ****
 
-YpakoÃ¯. Tone 5.
+Ypakoï. Tone 5.
 
 All generations we call you blessed, Virgin Mother of God; for in you Christ our God, the uncontainable, was well-pleased to be contained. Blessed are we also, for we have your protection, for day and night you intercede for us and the sceptres of the kingdom are strengthened by your intercessions. And so we sing your praises and cry out to you: ‘Hail, full of grace, the Lord is with you’.
 
@@ -831,6 +831,6 @@ Your people, O Christ, brings your Mother in supplication. At her entreaties gra
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -1,11 +1,13 @@
 import glob
+import multiprocessing
 import os.path
 import pipes
 
 from lxml import etree, html
 
-from multiprocessing import Pool
-
+parser = html.HTMLParser(encoding='latin-1')
+pipeline = pipes.Template()
+pipeline.append('pandoc -S -f html -t markdown_github', '--')
 
 def replace_tag(old_element, new_element):
     parent = old_element.getparent()
@@ -15,8 +17,8 @@ def replace_tag(old_element, new_element):
     old_element.drop_tag()
 
 def transform(filename):
-    htmlfile = open(filename, encoding='ISO-8859-1')
-    tree = html.parse(htmlfile)
+    htmlfile = open(filename, encoding='latin-1')
+    tree = html.parse(htmlfile, parser=parser)
 
     for node in tree.xpath('//font'):
         size = int(node.get('size')) if 'size' in node.attrib else None
@@ -44,27 +46,24 @@ def transform(filename):
         if extension.startswith('htm'):
             node.set('href', '{}.{}'.format(basename, 'md'))
 
-    #for node in tree.xpath('//p[re:test(@align, "^center$", "i")]', namespaces={"re": "http://exslt.org/regular-expressions"}):
-    #    node.set('align', None)
-
-    transformed_html = etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
-    return transformed_html
+    return etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
 
 def convert_html_file(filepath):
-    path, filename = os.path.split(filepath)
-    basename, extension = filename.split('.')
-    pandoc = 'pandoc -S -f html -t markdown_github'
-
     transformed_html = transform(filepath)
 
-    t = pipes.Template()
-    t.append(pandoc, '--')
-    f = t.open('files/{}.md'.format(basename), 'w')
+    path, filename = os.path.split(filepath)
+    basename, extension = filename.split('.')
+    output_path = 'files/{}.md'.format(basename)
+
+    open(output_path, 'w', encoding='utf-8').write(transformed_html)
+
+    f = pipeline.open(output_path, 'w')
     f.write(transformed_html)
     f.close()
 
 
 if __name__ == '__main__':
-    with Pool(8) as pool:
+    cpu_count = multiprocessing.cpu_count()
+    with multiprocessing.Pool(cpu_count) as pool:
         convert_html_file('original/index.html')
         pool.map(convert_html_file, glob.glob('original/*.htm'))

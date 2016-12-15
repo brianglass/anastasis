@@ -7,13 +7,13 @@ color:red;font-weight:normal">PRE-CHRISTMAS TEXTS</span>
 
 <span style="font-size:24.0pt;mso-bidi-font-size:12.0pt;
 color:red;font-weight:normal"></span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">The Byzantine rite has no liturgical season corresponding to Advent in the Latin rite and its various western derivatives. This does not mean that there is no liturgical preparation for feast of Christ</span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Â‘s </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> Nativity. This begins on 15 November, the day after the commemoration of the Apostle Philip with the Christmas Fast, with replacement of </span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt"> Â‘</span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">The Lord is God</span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Â‘ </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> by </span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt"> Â‘</span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">Alleluia</span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Â‘ </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> and other non-lenten features on non-festal days. On 21 November we begin to sing the Christmas Katavasias, </span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt"> Â‘</span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">Christ is born, give glory!</span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Â‘ </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> Then, on St Andrew’s day and subsequent feasts, the office introduces pre-Christmas idiomela at Vespers and Matins. I have collected these on this and added some footnotes giving scriptural and other references.</span>
+mso-bidi-font-size:12.0pt">‘s </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> Nativity. This begins on 15 November, the day after the commemoration of the Apostle Philip with the Christmas Fast, with replacement of </span><span style="font-size:14.0pt;
+mso-bidi-font-size:12.0pt"> ‘</span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">The Lord is God</span><span style="font-size:14.0pt;
+mso-bidi-font-size:12.0pt">‘ </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> by </span><span style="font-size:14.0pt;
+mso-bidi-font-size:12.0pt"> ‘</span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">Alleluia</span><span style="font-size:14.0pt;
+mso-bidi-font-size:12.0pt">‘ </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> and other non-lenten features on non-festal days. On 21 November we begin to sing the Christmas Katavasias, </span><span style="font-size:14.0pt;
+mso-bidi-font-size:12.0pt"> ‘</span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal">Christ is born, give glory!</span><span style="font-size:14.0pt;
+mso-bidi-font-size:12.0pt">‘ </span><span style="mso-bidi-font-size: 12.0pt; font-weight: normal"> Then, on St Andrew’s day and subsequent feasts, the office introduces pre-Christmas idiomela at Vespers and Matins. I have collected these on this and added some footnotes giving scriptural and other references.</span>
 
 <span style="font-size:18.0pt;mso-bidi-font-size:12.0pt;
 color:red;font-weight:normal">30 November</span>*<span style="font-size:14.0pt;
@@ -27,7 +27,7 @@ mso-bidi-font-size:12.0pt">Isaias, dance,<a href="#_ftn1" id="_ftnref1"><span cl
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Aposticha. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both now.<span style="color:red"></span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Joseph, tell us: how are you bringing the Maiden you received from the Holy Place, to Bethlehem great with child?<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> Â‘I, he said, having searched the Prophets and been told by an Angel,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a> am assured that Mary will give birth to God in a way past explanation; to worship him Magi will come from the East, adoring him with precious gifts.Â’ Lord, incarnate for our sake, glory to you!</span>
+mso-bidi-font-size:12.0pt">Joseph, tell us: how are you bringing the Maiden you received from the Holy Place, to Bethlehem great with child?<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> ‘I, he said, having searched the Prophets and been told by an Angel,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a> am assured that Mary will give birth to God in a way past explanation; to worship him Magi will come from the East, adoring him with precious gifts.’ Lord, incarnate for our sake, glory to you!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Lauds. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both now.<span style="color:red"></span></span>
 
@@ -41,13 +41,13 @@ font-weight:normal">6 December</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:12.0pt">Cave,<a href="#_ftn12" id="_ftnref12"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[12]</span></a> make ready; for the Ewe-lamb<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[13]</span></a> has come, bearing Christ in her womb.<span style="mso-spacerun: yes">  </span>Manger, receive the One who by a word freed us who are born of earth from irrational<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[14]</span></a> action.<span style="mso-spacerun: yes">  </span>You Shepherds abiding in the fields, bear witness to the fearful wonder; and Magi from Persia, offer gold, frankincense and myrrh to the King; because the Lord has appeared from a Virgin Mother.<span style="mso-spacerun: yes">  </span>Bowing low like a slave his Mother worshipped him, and cried out to the One in her arms, Â‘How were you sown in me, or how did you grow within me, my Redeemer and my God?Â’<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[15]</span></a></span>
+footnote">[14]</span></a> action.<span style="mso-spacerun: yes">  </span>You Shepherds abiding in the fields, bear witness to the fearful wonder; and Magi from Persia, offer gold, frankincense and myrrh to the King; because the Lord has appeared from a Virgin Mother.<span style="mso-spacerun: yes">  </span>Bowing low like a slave his Mother worshipped him, and cried out to the One in her arms, ‘How were you sown in me, or how did you grow within me, my Redeemer and my God?’<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[15]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Vespers. Liti. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both now.<span style="color:red"></span></span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:12.0pt">Bethlehem prepare; let the Manger make ready; let the Cave receive. The truth has come,<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[16]</span></a> the shadow has passed away, and God has appeared among humankind from a Virgin, formed like us<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[17]</span></a> and deifying the addition.<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[18]</span></a> Therefore Adam is made new with Eve, as they cry, Â‘Goodwill has appeared on earth, to save our raceÂ’.</span>
+footnote">[17]</span></a> and deifying the addition.<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[18]</span></a> Therefore Adam is made new with Eve, as they cry, ‘Goodwill has appeared on earth, to save our race’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Vespers. Aposticha. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both now.<span style="color:red"></span></span>
 
@@ -61,12 +61,12 @@ font-weight:normal">17 December</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Vespers. 1st </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both now.<span style="color:red"> See 6 December.</span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Cave, make readyÂ…</span>
+mso-bidi-font-size:12.0pt">Cave, make ready…</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Vespers. Aposticha. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both now.<span style="color:red"> See 30 November.</span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Bethlehem welcomeÂ…</span>
+mso-bidi-font-size:12.0pt">Bethlehem welcome…</span>
 
 <span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;color:red">Sunday before Christmas</span>**<span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt">
@@ -77,15 +77,15 @@ Prosomia of the Forefeast. Tone 1. All-praised Martyrs</span>*<span style="font-
 mso-bidi-font-size:12.0pt">All-blameless Virgin, living Palace of God, you contained within yourself the One whom the heavens cannot contain;<a href="#_ftn21" id="_ftnref21"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[21]</span></a> beyond understanding you gave birth to him in the Cave, a beggar and incarnate, that he might make me divine<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a> and enrich me, made a beggar by the incontinence of bitter eating.<a href="#_ftn23" id="_ftnref23"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[23]</span></a></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">Through compassion enrolled with slaves by CaesarÂ’s decree,<a href="#_ftn24" id="_ftnref24"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[24]</span></a> long-suffering Christ, you came to give freedom, life and deliverance to ungrateful servants, who worship your saving Nativity, for you have come to save our souls.</span>
+mso-bidi-font-size:12.0pt">Through compassion enrolled with slaves by Caesar’s decree,<a href="#_ftn24" id="_ftnref24"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[24]</span></a> long-suffering Christ, you came to give freedom, life and deliverance to ungrateful servants, who worship your saving Nativity, for you have come to save our souls.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">The All-holy and blameless Virgin, realising that her child-bearing was beyond explanation and had made new the laws of nature, cried to her Son, Â‘My Child, so much desired, I am amazed at the great mystery: I have born a child and yet remain a virgin by your power, who do all things by your will!Â’</span>
+mso-bidi-font-size:12.0pt">The All-holy and blameless Virgin, realising that her child-bearing was beyond explanation and had made new the laws of nature, cried to her Son, ‘My Child, so much desired, I am amazed at the great mystery: I have born a child and yet remain a virgin by your power, who do all things by your will!’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both Now.<span style="color:red"> Of the Forefeast. Tone 6. See 6 December.</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-12.0pt">Cave make ready Â…</span><span style="font-size:12.0pt;mso-bidi-font-size:
+12.0pt">Cave make ready …</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt"></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Liti. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Both Now.<span style="color:red"> Of the Forefeast. Same Tone.</span></span>
@@ -124,9 +124,9 @@ footnote">[32]</span></a></span>
 mso-bidi-font-size:12.0pt">She who is holier than the Angels and all creation now bears in the flesh the Angel of the great counsel<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> of the Father for the recalling of all who sing to him unceasingly: Holy are you, O Lord.<a href="#_ftn35" id="_ftnref35"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[35]</span></a></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Ode 4. Of the Forefeast. Rod out of JesseÂ’s root.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Ode 4. Of the Forefeast. Rod out of Jesse’s root.</span>
 
-<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Rod out of JesseÂ’s root,<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[36]</span></a> O Virgin, you budded, and blossomed with a flower that does wither, the Creator of all, who as God decks the whole earth with flowers, which cries aloud to him: Glory to your power, O Lord!</span>
+<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Rod out of Jesse’s root,<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[36]</span></a> O Virgin, you budded, and blossomed with a flower that does wither, the Creator of all, who as God decks the whole earth with flowers, which cries aloud to him: Glory to your power, O Lord!</span>
 
 <span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">O Word of God you came to get me back, who had been stolen through evil eating, had fallen away by my own will and become like the dumb beasts.<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[37]</span></a> So you became a babe and were laid in a manger for dumb beasts. Glory to your power, O Lord!</span>
@@ -173,12 +173,12 @@ font-style:normal">Ode 6. Of the Forefeast. The monster from the deep</span>
 
 <span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Glory to God in the highest, let us cry in joy with the Angels. The Saviour will be born. The Master, whom a Star shows to the Magi as they hasten to behold him in a manger, will come to make his dwelling. Let all creation bless the Lord, and highly exalt him to all the ages.<a href="#_ftn46" id="_ftnref46"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[46]</span></a></span>
 
-<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Obedient to CaesarÂ’s law, Master, you were willingly enrolled among slaves,<a href="#_ftn47" id="_ftnref47"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[47]</span></a> that as God you might free humanity from the slavery of the evil one, O most merciful. therefore with joy we raise the song: Let all creation bless the Lord, and highly exalt him to all the ages.</span>
+<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Obedient to Caesar’s law, Master, you were willingly enrolled among slaves,<a href="#_ftn47" id="_ftnref47"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[47]</span></a> that as God you might free humanity from the slavery of the evil one, O most merciful. therefore with joy we raise the song: Let all creation bless the Lord, and highly exalt him to all the ages.</span>
 
 **Theotokion**
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt"><span style="mso-spacerun: yes"> </span>Â‘O Word without beginning, I carry you as a young babe, yet am wholly without knowledge of manÂ’, said the Virgin. Â‘I am at a loss to know whom I should name as your father on earth; therefore with all I raise the song to you: Let all creation bless the Lord, and highly exalt him to all the agesÂ’.</span>
+mso-bidi-font-size:12.0pt"><span style="mso-spacerun: yes"> </span>‘O Word without beginning, I carry you as a young babe, yet am wholly without knowledge of man’, said the Virgin. ‘I am at a loss to know whom I should name as your father on earth; therefore with all I raise the song to you: Let all creation bless the Lord, and highly exalt him to all the ages’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Ode 9. Of the Forefeast. A strange and wonderful mystery.</span>
 
@@ -213,7 +213,7 @@ mso-bidi-font-size:12.0pt">Bethlehem, rejoice; and you, Ephrata, prepare, for th
 
 <span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Both now.<span style="color:red"> See Lauds for 30 November.</span></span>
 
-<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Bethlehem welcomeÂ…</span>
+<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">Bethlehem welcome…</span>
 
 *<span style="mso-spacerun: yes; font-size: 14.0pt; mso-bidi-font-size: 12.0pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">At the Aposticha, Idiomel Stichera of the Forefeast.</span>
@@ -228,7 +228,7 @@ color:red;mso-bidi-font-style:italic">Verse: </span><span style="font-size:
 
 <span style="font-size: 14.0pt; mso-bidi-font-size: 11.5pt; color: red; font-style: normal; mso-bidi-font-style: italic">By Andrew Pyros. Same Tone.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:11.5pt">Come, let us all faithfully celebrate the forefeast of ChristÂ’s Nativity; and spiritually setting forth our hymn like a star, let us with the Shepherds shout aloud the MagisÂ’ hymn of glory, Â‘The salvation of mortals has come from a virgin womb, to call back believersÂ’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:11.5pt">Come, let us all faithfully celebrate the forefeast of Christ’s Nativity; and spiritually setting forth our hymn like a star, let us with the Shepherds shout aloud the Magis’ hymn of glory, ‘The salvation of mortals has come from a virgin womb, to call back believers’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:11.5pt;
 color:red;mso-bidi-font-style:italic">Verse: </span><span style="font-size:
@@ -240,7 +240,7 @@ color:red;mso-bidi-font-style:italic">Verse: </span><span style="font-size:
 
 <span style="font-size: 14.0pt; mso-bidi-font-size: 11.5pt; font-style: normal">Both now. <span style="color:red">Tone 2. By Kyprianos. See Sunday before Christmas.</span><a href="#_ftn58" id="_ftnref58"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[58]</span></a></span>
 
-<span style="font-size: 14.0pt; mso-bidi-font-size: 11.5pt">See, the time of our salvationÂ…</span>
+<span style="font-size: 14.0pt; mso-bidi-font-size: 11.5pt">See, the time of our salvation…</span>
 
 <span style="font-size: 14.0pt; mso-bidi-font-size: 11.5pt; color: red; font-style: normal; mso-bidi-font-style: italic">Apolytikion of the Forefeast. Tone 4. Joseph was amazed.</span>
 
@@ -291,7 +291,7 @@ footnote">[62]</span></a> from a pure Maiden, Child of God.</span>
 
 <a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Exodus 3:2-3.</span>
 
-<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea that the places connected with the NativityÂ–Eden, Bethlehem, the Cave, the MangerÂ–must prepare is a constant theme in the pre-Christmas texts.</span>
+<a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea that the places connected with the Nativity–Eden, Bethlehem, the Cave, the Manger–must prepare is a constant theme in the pre-Christmas texts.</span>
 
 <a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"><span style="mso-spacerun:
 yes">  </span>Cf. Genesis 3:23-24. Christmas reverses the results of the Fall.</span>
@@ -302,17 +302,17 @@ yes">  </span>Cf. Genesis 3:23-24. Christmas reverses the results of the Fall.<
 
 <a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[7]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 1:20-22.</span>
 
-<a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a> The Greek says, literally, Â‘the Metropolis of GodÂ’. St Gregory the Divine, in his sermon *On the Death of his Father,* 17, calls Bethlehem Â‘the metropolis of the inhabited world, as the nurse and mother of Christ, who created and conquered the worldÂ’Â–<span lang="EL" style="font-family:&quot;GR Times New Roman&quot;;
+<a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a> The Greek says, literally, ‘the Metropolis of God’. St Gregory the Divine, in his sermon *On the Death of his Father,* 17, calls Bethlehem ‘the metropolis of the inhabited world, as the nurse and mother of Christ, who created and conquered the world’–<span lang="EL" style="font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EL"> τῆς οἰκουμένης μητρόπολιν, ὡς Χριστοῦ καὶ τροφὸν καὶ μητέρα, τοῦ τὸν κόσμον καὶ ποιήσαντος καὶ νικήσαντος.</span><span lang="EL" style="font-family:&quot;GR Times New Roman&quot;"> </span><span style="mso-bidi-font-family:
-&quot;GR Times New Roman&quot;">This could perhaps be the source for the hymn writerÂ’s bold image.</span>
+&quot;GR Times New Roman&quot;">This could perhaps be the source for the hymn writer’s bold image.</span>
 
-<a href="#_ftnref9" id="_ftn9"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[9]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek word </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">Ã?dutoV </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">usually means<span style="mso-spacerun: yes">  </span>Â‘inaccessibleÂ’, and as a neuter noun the Â‘inner shrineÂ’ of a temple. It also, though less frequently, means Â‘unsettingÂ’. When coupled with Â‘lightÂ’ it can, therefore means either Â‘inaccessibleÂ’ or Â‘unsettingÂ’. The former meaning is suggested by the expression Â‘inaccessible lightÂ’Â–</span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">fwV Ã‚prÃ³siton</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">Â–in 1 Timothy 6:16. Origen, however describes Christ as </span><span lang="EL" style="font-size:12.0pt;
+<a href="#_ftnref9" id="_ftn9"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[9]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek word </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">ÁdutoV </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">usually means<span style="mso-spacerun: yes">  </span>‘inaccessible’, and as a neuter noun the ‘inner shrine’ of a temple. It also, though less frequently, means ‘unsetting’. When coupled with ‘light’ it can, therefore means either ‘inaccessible’ or ‘unsetting’. The former meaning is suggested by the expression ‘inaccessible light’–</span><span style="font-size:12.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">fwV Âprósiton</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">–in 1 Timothy 6:16. Origen, however describes Christ as </span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL">ὁ νοητὸς ἥλιος τὸ φῶς τὸ ἄδυτον καὶ ἀνέσπερον</span><span style="font-size:
-12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">Â–Â‘the spiritual sun, the light that never sets and knows no eveningÂ’, while St Theodore the Studite, speaking of the Mother of God, says that she it was </span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
+12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">–‘the spiritual sun, the light that never sets and knows no evening’, while St Theodore the Studite, speaking of the Mother of God, says that she it was </span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EL">ἐξ ἧς ὁ τῆς δικαιοσύνης ἥλιος ἀνέτειλεν, ἡμέραν ἀδύτου σωτηρίας ἀνθρώποις δημιουργησάμενος</span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">Â–Â‘from who dawned the Sun of righteousness, who created for humans a day of salvation that never setsÂ’. The meaning Â‘inaccessibleÂ’ is scarcely appropriate here.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"><span style="mso-spacerun:
+mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">–‘from who dawned the Sun of righteousness, who created for humans a day of salvation that never sets’. The meaning ‘inaccessible’ is scarcely appropriate here.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"><span style="mso-spacerun:
 yes">  </span></span>
 
 <a href="#_ftnref10" id="_ftn10"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[10]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:8.</span>
@@ -321,18 +321,18 @@ yes">  </span></span>
 
 <a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[12]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The accounts of the Nativity in the Gospels make no mention of a cave. This comes from the *Protoevangelium* of James, 18:1.</span>
 
-<a href="#_ftnref13" id="_ftn13"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[13]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This epithet of the Mother of God is rare in the Fathers. It is used by Theodore the Studite in his homily on the Nativity of the Mother of GodÂ–</span><span lang="EL" style="font-size:
+<a href="#_ftnref13" id="_ftn13"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[13]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This epithet of the Mother of God is rare in the Fathers. It is used by Theodore the Studite in his homily on the Nativity of the Mother of God–</span><span lang="EL" style="font-size:
 12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL"> Χαῖρε, ἀμνὰς,</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;GR Times New Roman&quot;">Â…</span><span lang="EL" style="font-size:12.0pt;
+font-family:&quot;GR Times New Roman&quot;">…</span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL"> ᾿Εξ ἧς ὁ ἀμνὸς τοῦ Θεοῦ, ὁ αἴρων τὴν ἁμαρτίαν τοῦ κόσμου, ἐπεδήμησε.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"></span>
 
 <a href="#_ftnref14" id="_ftn14"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[14]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek there is a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Symbol Accentuated&quot;">LÃ³goV</span><span style="font-size:12.0pt;mso-bidi-font-size:
-10.0pt">Â–Â‘WordÂ’, and </span><span style="font-size:12.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Symbol Accentuated&quot;">Ã?logoV</span><span style="font-size:
-12.0pt;mso-bidi-font-size:10.0pt">Â–Â‘irrationalÂ’.</span>
+&quot;Symbol Accentuated&quot;">LógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:
+10.0pt">–‘Word’, and </span><span style="font-size:12.0pt;mso-bidi-font-size:
+10.0pt;font-family:&quot;Symbol Accentuated&quot;">ÁlogoV</span><span style="font-size:
+12.0pt;mso-bidi-font-size:10.0pt">–‘irrational’.</span>
 
 <a href="#_ftnref15" id="_ftn15"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[15]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Romanos *Kontakion 1,*<span style="mso-bidi-font-style:
 italic"> Stanzas 6 & 2.</span></span>
@@ -341,20 +341,20 @@ italic"> Stanzas 6 & 2.</span></span>
 
 <a href="#_ftnref17" id="_ftn17"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[17]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Philippians 2:7.</span>
 
-<a href="#_ftnref18" id="_ftn18"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[18]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word used by St Gregory the Divine and John of Damascus, among others, with reference to ChristÂ’s human nature. St John speaks of Â‘deifying the additionÂ’Â–</span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
-mso-ansi-language:EL"> ποιητῇ τοῦ παντὸς θεοῦντι τὸ πρόσλημμα</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">Â–Â‘the Maker of all deifying the additionÂ’.</span><span style="font-size:12.0pt;
+<a href="#_ftnref18" id="_ftn18"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[18]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word used by St Gregory the Divine and John of Damascus, among others, with reference to Christ’s human nature. St John speaks of ‘deifying the addition’–</span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
+mso-ansi-language:EL"> ποιητῇ τοῦ παντὸς θεοῦντι τὸ πρόσλημμα</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">–‘the Maker of all deifying the addition’.</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
 <a href="#_ftnref19" id="_ftn19"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[19]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> These phrases recall the fourth Sticheron for Vespers of the Nativity.</span>
 
-<a href="#_ftnref20" id="_ftn20"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[20]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Note by Bartholomew, Â‘*Elsewhere* in a manger wrapped in swaddling clothesÂ’.</span>
+<a href="#_ftnref20" id="_ftn20"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[20]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Note by Bartholomew, ‘*Elsewhere* in a manger wrapped in swaddling clothes’.</span>
 
 <a href="#_ftnref21" id="_ftn21"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[21]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 3 Reigns 8:27.</span>
 
 <a href="#_ftnref22" id="_ftn22"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[22]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Deification is a central idea in Orthodox theology. In his homily *On Theophany*, 13 St Gregory the Divine puts it succinctly, </span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
-EL">προελθὼν δὲ Θεὸς μετὰ τῆς προσλήψεως, ἓν ἐκ δύο τῶν ἐναντίων, σαρκὸς καὶ ΠνεύματοςÂ· ὧν, τὸ μὲν ἐθέωσε, τὸ δὲ ἐθεώθη</span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">-</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">Â‘coming forth as God with the addition, one from two opposites, flesh and Spirit. The latter deified, the former was deifiedÂ’.</span>
+EL">προελθὼν δὲ Θεὸς μετὰ τῆς προσλήψεως, ἓν ἐκ δύο τῶν ἐναντίων, σαρκὸς καὶ Πνεύματος· ὧν, τὸ μὲν ἐθέωσε, τὸ δὲ ἐθεώθη</span><span style="font-size:12.0pt;
+mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">-</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">‘coming forth as God with the addition, one from two opposites, flesh and Spirit. The latter deified, the former was deified’.</span>
 
 <a href="#_ftnref23" id="_ftn23"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[23]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Genesis 3:1-7.</span>
 
@@ -384,7 +384,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">-
 
 <a href="#_ftnref36" id="_ftn36"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[36]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 11;1.</span>
 
-<a href="#_ftnref37" id="_ftn37"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[37]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">Ã‚lÃ³gwn</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">, with a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:Symbol">L</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">Ã³goV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
+<a href="#_ftnref37" id="_ftn37"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[37]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">Âlógwn</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">, with a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:Symbol">L</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">ógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
 
 <a href="#_ftnref38" id="_ftn38"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[38]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Avvakoum 1:3.</span>
 
@@ -398,18 +398,18 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">-
 
 <a href="#_ftnref43" id="_ftn43"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[43]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 3:26.</span>
 
-<a href="#_ftnref44" id="_ftn44"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[44]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Christ is often called Â‘MyrrhÂ’ in the liturgical texts. St John of Damascus calls Christ Â‘the myrrh poured out for our renewalÂ’Â–</span><span lang="EN-US" style="font-size:12.0pt;
+<a href="#_ftnref44" id="_ftn44"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[44]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Christ is often called ‘Myrrh’ in the liturgical texts. St John of Damascus calls Christ ‘the myrrh poured out for our renewal’–</span><span lang="EN-US" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EN-US"> Χριστὸν τὸ κενωθὲν μύρον εἰς ἡμῶν ἀνακαίνισιν</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">, *Homily on Holy Saturday* \[PG 96:636\]. Hence the Mother of God can be called </span><span lang="EN-US" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;;mso-bidi-font-family:
-&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">muroqÂ°kh</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;;
+&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">muroq°kh</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">.</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt"></span>
 
-<a href="#_ftnref45" id="_ftn45"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[45]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 6:6-7. The typology of Christ as the burning coal of IsaiasÂ’ vision is applied to the Eucharist. Hence the use of the word </span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">labÃ­V</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">,<span style="mso-spacerun:
-yes">  </span>Â‘tongÂ’, for the spoon with which Communion is given to the people. Here the tong is used a type of the Mother of God.</span>
+<a href="#_ftnref45" id="_ftn45"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[45]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 6:6-7. The typology of Christ as the burning coal of Isaias’ vision is applied to the Eucharist. Hence the use of the word </span><span style="font-size:12.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">labíV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">,<span style="mso-spacerun:
+yes">  </span>‘tong’, for the spoon with which Communion is given to the people. Here the tong is used a type of the Mother of God.</span>
 
 <a href="#_ftnref46" id="_ftn46"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[46]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Daniel 3:74.</span>
 
@@ -419,21 +419,21 @@ yes">  </span>Â‘tongÂ’, for the spoon with which Communion is given to th
 
 <a href="#_ftnref49" id="_ftn49"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[49]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:7.</span>
 
-<a href="#_ftnref50" id="_ftn50"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[50]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word Â‘irrationalÂ’Â–in Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Symbol Accentuated&quot;">Ã?logoV</span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt">Â–is a play on </span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">LÃ³goV.</span>
+<a href="#_ftnref50" id="_ftn50"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[50]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word ‘irrational’–in Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
+font-family:&quot;Symbol Accentuated&quot;">ÁlogoV</span><span style="font-size:12.0pt;
+mso-bidi-font-size:10.0pt">–is a play on </span><span style="font-size:12.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">LógoV.</span>
 
-<a href="#_ftnref51" id="_ftn51"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[51]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 9:27. Note that the phrase Â‘consummation of the timeÂ’ only occurs in TheodotionÂ’s version of Daniel, which is that used by the Orthodox Church,<span style="mso-spacerun:
+<a href="#_ftnref51" id="_ftn51"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[51]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 9:27. Note that the phrase ‘consummation of the time’ only occurs in Theodotion’s version of Daniel, which is that used by the Orthodox Church,<span style="mso-spacerun:
 yes">  </span>but in neither the Septuagint nor the Hebrew.<span style="mso-spacerun: yes">  </span></span>
 
 <a href="#_ftnref52" id="_ftn52"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[52]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This is almost a quotation from the Chalcedonian Definition, </span><span lang="EN-US" style="font-size:
 12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EN-US">τέλειος ὢν ἐν θεότητι καὶ τέλειος ὁ αὐτὸς ἐν ἀνθρωπότητι</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:
-&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">, Â‘being perfect in his divinity and the same perfect in his humanityÂ’.</span><span style="font-size:12.0pt;
+&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">, ‘being perfect in his divinity and the same perfect in his humanity’.</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
-<a href="#_ftnref53" id="_ftn53"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[53]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> One of a number of examples in the liturgical texts of the Trinitarian understanding of the Trisagion in the Byzantine Orthodox tradition. This excludes, for the Orthodox at least , translations which add Â‘andÂ’ in the second and third clauses, which by so doing make the whole hymn refer to Â‘GodÂ’, that is, to the Father.</span>
+<a href="#_ftnref53" id="_ftn53"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[53]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> One of a number of examples in the liturgical texts of the Trinitarian understanding of the Trisagion in the Byzantine Orthodox tradition. This excludes, for the Orthodox at least , translations which add ‘and’ in the second and third clauses, which by so doing make the whole hymn refer to ‘God’, that is, to the Father.</span>
 
 <a href="#_ftnref54" id="_ftn54"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[54]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron is also used at the Liti on the Sunday before Christmas, where no author is given.</span>
 
@@ -449,11 +449,11 @@ mso-bidi-font-size:10.0pt"></span>
 
 <a href="#_ftnref60" id="_ftn60"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[60]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Genesis 1:26.-27.</span>
 
-<a href="#_ftnref61" id="_ftn61"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[61]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The days from 20-24 December are assimilated the first four days of Holy Week, hence the acrostics for the Triodes of the canons at Compline. In Holy Week the canons at Matins on the first three days are Triode, but this in not the case in December, and therefore the Triodes are included in Compline on the 20-22 of December. In Holy Week Great Thursday has a full canon, and so, on 23 December, the canon for Thursday is sung at Matins, as the acrostic makes clear. Bartholomew of Koutloumousiou has the following note on this canon, Â‘In the manuscript at Koutloumousiou this Triode has the ascription, *Composition by Symeon Metphrastes*. The prosomia on the Wednesday before the Great Canon are also ascribed to him, according to the Typikon for the Annunciation, no. 6. But since Allatius (Prologue at the beginning of September, para. 8) does not include the Metaphrastes in the list of hymn writers, but says simply *Monk Symeon*, it seems that the present composition, and so the following Triodes as well, are by this Symeon, and not Symeon MetaphrastesÂ’. He adds a further note, Â‘In the 1843 Constantinople edition of the Menaia these Triodes are ascribed, *Composition of Symeon, the Logothete, the Metaphrastes.*</span>
+<a href="#_ftnref61" id="_ftn61"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[61]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The days from 20-24 December are assimilated the first four days of Holy Week, hence the acrostics for the Triodes of the canons at Compline. In Holy Week the canons at Matins on the first three days are Triode, but this in not the case in December, and therefore the Triodes are included in Compline on the 20-22 of December. In Holy Week Great Thursday has a full canon, and so, on 23 December, the canon for Thursday is sung at Matins, as the acrostic makes clear. Bartholomew of Koutloumousiou has the following note on this canon, ‘In the manuscript at Koutloumousiou this Triode has the ascription, *Composition by Symeon Metphrastes*. The prosomia on the Wednesday before the Great Canon are also ascribed to him, according to the Typikon for the Annunciation, no. 6. But since Allatius (Prologue at the beginning of September, para. 8) does not include the Metaphrastes in the list of hymn writers, but says simply *Monk Symeon*, it seems that the present composition, and so the following Triodes as well, are by this Symeon, and not Symeon Metaphrastes’. He adds a further note, ‘In the 1843 Constantinople edition of the Menaia these Triodes are ascribed, *Composition of Symeon, the Logothete, the Metaphrastes.*</span>
 
 <a href="#_ftnref62" id="_ftn62"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[62]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Philippians 2:6-7.</span>
 
-<a href="#_ftnref63" id="_ftn63"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[63]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 15:14, where the word is Â‘friendsÂ’, rather than Â‘kinsmenÂ’.</span>
+<a href="#_ftnref63" id="_ftn63"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[63]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 15:14, where the word is ‘friends’, rather than ‘kinsmen’.</span>
 
 <a href="#_ftnref64" id="_ftn64"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[64]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 14:27.</span>
 
@@ -468,6 +468,6 @@ mso-bidi-font-size:10.0pt"></span>
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

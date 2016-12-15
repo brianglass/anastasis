@@ -20,7 +20,7 @@ Tone1. Joy of the heavenly ranks
 
 Having beheld as in a mirror the beauties of Paradise and having enjoyed in abundance its undefiled meadows, you made the knowledge of God flower in the world. As we share in it, Venerable Father, by the spiritual condition of our souls, we flower once again in spirit.
 
-You described the second coming of the Judge and with the streams of your tears you teach us to light the lamps of our souls, as you proclaim to all the BridegroomÂ’s coming, Â‘Let us all clothe ourselves in shining robes to meet the Bridegroom ChristÂ’.
+You described the second coming of the Judge and with the streams of your tears you teach us to light the lamps of our souls, as you proclaim to all the Bridegroom’s coming, ‘Let us all clothe ourselves in shining robes to meet the Bridegroom Christ’.
 
 By self control you tamed the body, O Father, and by prayers and vigils you slew the stirrings of the passions; and so the power of the Spirit overshadowed you, and revealed you to be a spiritual beacon for the whole world.
 
@@ -28,7 +28,7 @@ Glory.
 
 **Tone 6.**
 
-Revered Ephrem, prudently rising above lifeÂ’s troubles, with love of quiet you grasped the desert; and led by it in truth towards God, you shone on the world as a beacon, and became a source of words of life for humankind; and therefore do not cease to support us by your prayers that our souls may be delivered from the enemyÂ’s harm.
+Revered Ephrem, prudently rising above life’s troubles, with love of quiet you grasped the desert; and led by it in truth towards God, you shone on the world as a beacon, and became a source of words of life for humankind; and therefore do not cease to support us by your prayers that our souls may be delivered from the enemy’s harm.
 
 Both now.
 
@@ -40,7 +40,7 @@ We have come to know God incarnate of you, Virgin Mother of God; implore Him tha
 
 Or Cross-Theotokion. You arose on the third day
 
-When she who bore you saw you crucified, O Christ, she cried aloud, Â‘What is the strange mystery I see, my Son? How are you dying on a tree, who hung the earth upon the waters?
+When she who bore you saw you crucified, O Christ, she cried aloud, ‘What is the strange mystery I see, my Son? How are you dying on a tree, who hung the earth upon the waters?
 
 ****
 
@@ -62,7 +62,7 @@ All-holy Bride of God, deliver me from condemnation, and free my wretched soul f
 
 Or Cross-Theotokion.
 
-When the Lamb who gave you birth saw you, the Lamb and Shepherd on the tree she grieved, and cried out as a mother, Â‘My Son so dearly loved, how have you been suspended on the tree of the Cross, O long-suffering? How have your hands and feet been nailed by lawless men? How, Master, have you poured out your blood?Â’
+When the Lamb who gave you birth saw you, the Lamb and Shepherd on the tree she grieved, and cried out as a mother, ‘My Son so dearly loved, how have you been suspended on the tree of the Cross, O long-suffering? How have your hands and feet been nailed by lawless men? How, Master, have you poured out your blood?’
 
 ****
 
@@ -111,7 +111,7 @@ The holy Church of Christ sees in you a second Euphrates, flooding with golden s
 
 Theotokion.
 
-One of the Holy Trinity in two natures incarnate in a manner fitting God from your pure blood came forth and saves AdamÂ’s descendants, All-pure, by his goodness.
+One of the Holy Trinity in two natures incarnate in a manner fitting God from your pure blood came forth and saves Adam’s descendants, All-pure, by his goodness.
 
 ****
 
@@ -135,7 +135,7 @@ Pure and ever Virgin, fervent and invincible advocate, sure hope that cannot be 
 
 Or Cross-Theotokion.
 
-By the Cross of your Son, O Full of GodÂ’s grace, the error of idols has been destroyed, and the strength of demons has been trampled down; therefore we the faithful as is fitting ever sing your praise and bless you, and confessing you to be truly Mother of God we magnify you.
+By the Cross of your Son, O Full of God’s grace, the error of idols has been destroyed, and the strength of demons has been trampled down; therefore we the faithful as is fitting ever sing your praise and bless you, and confessing you to be truly Mother of God we magnify you.
 
 ****
 
@@ -169,11 +169,11 @@ You became, Father, truly a temple of the Trinity, adorned with grace, radiance 
 
 Theotokion.
 
-By the assault of the serpent, evil tasting of the tree pronounced me dead in Eden; but you alone full of GodÂ’s grace have given me life, for you bore Christ the giver of life.
+By the assault of the serpent, evil tasting of the tree pronounced me dead in Eden; but you alone full of God’s grace have given me life, for you bore Christ the giver of life.
 
 ****
 
-Ode 6. Watching lifeÂ’s sea.
+Ode 6. Watching life’s sea.
 
 The God bearing Father, established not on a foundation of sand but on unbreakable faith, remained unshaken by every assault of the foe, for he was governed by invincible power.
 
@@ -191,7 +191,7 @@ He who as God is above all visible and invisible creation took flesh and came fr
 
 Irmos.
 
-Watching lifeÂ’s sea rising with a tempest of temptations, fleeing to your calm haven, I cry out to you: Bring my life up from corruption, O Most merciful.
+Watching life’s sea rising with a tempest of temptations, fleeing to your calm haven, I cry out to you: Bring my life up from corruption, O Most merciful.
 
 ****
 
@@ -217,7 +217,7 @@ Verses.
 
 Ephrem, the Syrian by tongue, once heard in psalms
 a tongue he knew not calling him on high.
-And on the twenty eighth day EphremÂ’s spirit was taken by Angels.
+And on the twenty eighth day Ephrem’s spirit was taken by Angels.
 
 On the same day, Commemoration of our Venerable Father Palladios.
 
@@ -235,7 +235,7 @@ On the same day, Commemoration of our Venerable Father James the Ascetic.
 Verses.
 
 As from a snare James left the flesh behind
-For by the fleshÂ’s snares he was not caught.
+For by the flesh’s snares he was not caught.
 
 On the same day two Martyrs, mother and daughter, died by the sword.
 
@@ -253,7 +253,7 @@ On the same day the holy Charis died by amputation of her legs.
 Verses.
 
 Charis, her legs cut off, now runs to God,
-For her soulÂ’s legs were in no way cut off.
+For her soul’s legs were in no way cut off.
 
 On the same day, Commemoration of our Venerable Father, Isaac the Syrian.
 
@@ -285,19 +285,19 @@ You have come as a river from a second Eden, surrounded by streams of divine tea
 
 Theotokion.
 
-Confessing you as truly Mother of God, with faith we cry to the AngelÂ’s Hail; you alone on earth bore joy, O ever blessed Full of grace.
+Confessing you as truly Mother of God, with faith we cry to the Angel’s Hail; you alone on earth bore joy, O ever blessed Full of grace.
 
 ****
 
 Irmos.
 
-Â‘From flame you made a source of dew for the Saints and with water you consumed the sacrifice of a righteous man with flame. For you do all things, O Christ, simply by willing them. We highly exalt you to all the ages.Â’
+‘From flame you made a source of dew for the Saints and with water you consumed the sacrifice of a righteous man with flame. For you do all things, O Christ, simply by willing them. We highly exalt you to all the ages.’
 
 ****
 
 Ode 9. It is impossible for humans.
 
-Wounded with love of the Almighty, you passed your whole life grieving, crying out with amazement, venerable Father, Â‘Loose the waves of your grace, my Saviour, preserving it richly for me in the life to comeÂ’.
+Wounded with love of the Almighty, you passed your whole life grieving, crying out with amazement, venerable Father, ‘Loose the waves of your grace, my Saviour, preserving it richly for me in the life to come’.
 
 Sweet is your word, fertile of compunction, full of enlightenment for those who have recourse to you, god-bearing, admirable Ephrem; while your life was blameless, adorned and shining with every godly-radiant virtue.
 
@@ -347,7 +347,7 @@ Joy of all the afflicted, defence of the wronged, nourishment of the hungry, con
 
 Or Cross-Theotokion.
 
-When you saw the Maker of the universe enduring many affronts and hanged on Cross, O All-immaculate, you groaned and cried, Â‘Lord beyond praise, my Son and my God, how, when you wish to honour what you fashioned, do you bear dishonour? Glory to your great compassion and condescension, Lover of humankind!Â’
+When you saw the Maker of the universe enduring many affronts and hanged on Cross, O All-immaculate, you groaned and cried, ‘Lord beyond praise, my Son and my God, how, when you wish to honour what you fashioned, do you bear dishonour? Glory to your great compassion and condescension, Lover of humankind!’
 
 ****
 
@@ -356,6 +356,6 @@ The rest of the Office of matins as usual and Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

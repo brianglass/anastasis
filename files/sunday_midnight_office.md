@@ -27,7 +27,7 @@ Immaculate Virgin, all creation seeing your Son risen from the dead, as befits G
 
 ****
 
-Then the Trisagion etc. After the LordÂ’s Prayer, the YpakoÃ¯ of the Tone of the Week.
+Then the Trisagion etc. After the Lord’s Prayer, the Ypakoï of the Tone of the Week.
 
 ** Lord, have mercy **(x40)**. Glory. Both now. Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word. Truly Mother of God we magnify you. In the name of the Lord bless, Father. ****
 
@@ -44,6 +44,6 @@ The Dismissal, and then the final Litany etc. as on Weekdays.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

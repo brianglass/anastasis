@@ -19,6 +19,6 @@ The Proemuim and first Ikos of this Kontakion are still used on the 3rd Sunday o
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

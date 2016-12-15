@@ -19,13 +19,13 @@ The RSV/NRSV has been taken as the basis for the scriptural passages and citatio
 
 There is a constant play in the Greek on the words ‘oil’ — *elaion* — and ‘mercy’ — *eleos* — which it is not possible to reproduce in English at every occurrence.
 
-In contemporary ecclesiastical Greek the word *euchÃª* frequently means ‘blessing’ rather than simply ‘prayer’, which is *proseuchÃª,* except for The Prayer, that is, the Jesus Prayer, for which the former word is always used. The *Euchologion* is the ‘Book of Blessings’ and the word *Euchelaion* means ‘Blessing of Oil’, as the Slavonic translation *Eleosvjashchenie*, or ‘Sanctification of Oil’, suggests. In the text of the rite I have transliterated the word phonetically as *Efchelaion*.
+In contemporary ecclesiastical Greek the word *euchê* frequently means ‘blessing’ rather than simply ‘prayer’, which is *proseuchê,* except for The Prayer, that is, the Jesus Prayer, for which the former word is always used. The *Euchologion* is the ‘Book of Blessings’ and the word *Euchelaion* means ‘Blessing of Oil’, as the Slavonic translation *Eleosvjashchenie*, or ‘Sanctification of Oil’, suggests. In the text of the rite I have transliterated the word phonetically as *Efchelaion*.
 
  
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

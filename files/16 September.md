@@ -66,7 +66,7 @@ Glory*.*
 
 **Tone 8. By Vyzantios.**
 
-Let every tongue be stirred to the praise of all-glorious Efphemia, every race and every age, young men and virgins, let us crown with praises the Virgin Martyr of Christ; for like a professional she fought and, casting off her womanÂ’s frailty, through athleteÂ’s toils she cast down the tyrannous foe; while adorned with heavenly and divine strength she asks her bridegroom and God to bestow on us his great mercy.
+Let every tongue be stirred to the praise of all-glorious Efphemia, every race and every age, young men and virgins, let us crown with praises the Virgin Martyr of Christ; for like a professional she fought and, casting off her woman’s frailty, through athlete’s toils she cast down the tyrannous foe; while adorned with heavenly and divine strength she asks her bridegroom and God to bestow on us his great mercy.
 
 Both now.
 
@@ -164,7 +164,7 @@ We Christians have all gained you as our refuge and protection, and we glorify y
 
 The Irmos.
 
-Â“You are the support, O Lord, of those who have recourse to you; you are the light of those in darkness, and my spirit sings your praiseÂ”.
+“You are the support, O Lord, of those who have recourse to you; you are the light of those in darkness, and my spirit sings your praise”.
 
 ****
 
@@ -216,7 +216,7 @@ We hymn you, Mother of God, as virgin after child-birth, for you bore in the fle
 
 Ode 6. Χιτῶνά μοι παράσχου.
 
-Bearing a manly attitude of soul in a womanÂ’s flesh, glorious Martyr, you despised the beasts in the waters.
+Bearing a manly attitude of soul in a woman’s flesh, glorious Martyr, you despised the beasts in the waters.
 
 You conquered the proud scorn of tyrants, invincible Martyr, remaining unharmed in the waters with the wild beasts, like Jonas.
 
@@ -256,7 +256,7 @@ She lived in the times of Diocletian; arrested because of her confession of Chri
 
 Verses.
 
-Slain by a bearÂ’s fangs for the sake of God,
+Slain by a bear’s fangs for the sake of God,
 With praises \[*efphemiais*\] Efphemia should be your crown.
 And on the sixteenth day a with its fangs bear slew Efphemia.
 
@@ -289,7 +289,7 @@ The Bridegroom, mystically approaching the all-pure bride in the furnace, by the
 
 Theotokion.
 
-As you wished to dispense our salvation, O Saviour, you made your dwelling in the womb of the Virgin and declared her to be the worldÂ’s protector. God of our fathers, blessed are you!
+As you wished to dispense our salvation, O Saviour, you made your dwelling in the womb of the Virgin and declared her to be the world’s protector. God of our fathers, blessed are you!
 
 ****
 
@@ -321,7 +321,7 @@ Ode 9. Σὲ τὴν ἀπειρόγαμον.
 
 The flow of living blood is a proof, all-praised Martyr, of the immaculate life that has been given you from above; for you have been revealed as an inexhaustible treasury of healings for those who draw from it with faith.
 
-Death touched you, God-inspired, by natureÂ’s law; but you have been clothed dispassionately with the death that bears life, by which, having assumed complete purity as a spiritual body, you live incorruptibly, and the streams of your blood bear witness.
+Death touched you, God-inspired, by nature’s law; but you have been clothed dispassionately with the death that bears life, by which, having assumed complete purity as a spiritual body, you live incorruptibly, and the streams of your blood bear witness.
 
 Crowned by the laws of the contest, Efphemia, Martyr, herald of Christ, you devoutly confirmed the volume of honoured doctrines; grasping it from the hands of the fathers of the Council you are revealed as a living monument of orthodoxy.
 
@@ -355,7 +355,7 @@ At Lauds we insert 4 Stichera, and sing the following Idiomels of the Saint.
 
 Tone 3.
 
-Believers, as we contemplate the championÂ’s festival being celebrated, let us sing a hymn of thanksgiving to God, wonderful in his counsels; for by womanÂ’s nature he defeated the invisible might of the hostile power, perfecting his own divine power in the weakness of the fair Martyr. At her intercessions, save our souls.
+Believers, as we contemplate the champion’s festival being celebrated, let us sing a hymn of thanksgiving to God, wonderful in his counsels; for by woman’s nature he defeated the invisible might of the hostile power, perfecting his own divine power in the weakness of the fair Martyr. At her intercessions, save our souls.
 
 **(Twice)**
 
@@ -367,13 +367,13 @@ The all-praised Martyr of Christ, having mingled the mixing bowl of truth with h
 
 The Same Tone.
 
-We, whose souls have been sealed with the blood of Christ for a day of redemption, let us prophetically draw out with spiritual joy holy blood, which gushes up for us from a martyrÂ’s source, formed like the SaviourÂ’s sufferings which flow with life and his eternal glory. And so we cry aloud to him: Lord, who are glorified in your Saints, at the prayers of your all-praised Martyr save our souls.
+We, whose souls have been sealed with the blood of Christ for a day of redemption, let us prophetically draw out with spiritual joy holy blood, which gushes up for us from a martyr’s source, formed like the Saviour’s sufferings which flow with life and his eternal glory. And so we cry aloud to him: Lord, who are glorified in your Saints, at the prayers of your all-praised Martyr save our souls.
 
 Glory. **
 
 **Tone 6. By Monk John.**
 
-The virgin, champion and Martyr stands at the SaviourÂ’s right hand robed with the invincibility of the virtues and adorned with the oil of purity and the blood of the contest, and holding her lamp she cries out to him: I have run in the fragrance of your sweet myrrh, Christ God, for I am wounded with your love, do not part me from you, heavenly Bridegroom. At her entreaties, all-powerful Saviour, send down to us your mercies.
+The virgin, champion and Martyr stands at the Saviour’s right hand robed with the invincibility of the virtues and adorned with the oil of purity and the blood of the contest, and holding her lamp she cries out to him: I have run in the fragrance of your sweet myrrh, Christ God, for I am wounded with your love, do not part me from you, heavenly Bridegroom. At her entreaties, all-powerful Saviour, send down to us your mercies.
 
 Both now. **
 
@@ -385,7 +385,7 @@ Today the plant of life, rising from the hidden places of the earth, confirms th
 
 At the Aposticha. Tone 6. Τριήμερος ἀνέστης.
 
-Let us worship the place where the feet of Christ have stood as we lift high the thrice blessed Cross, on which the MasterÂ’s blood was emptied out, pouring forth resurrection for the world.
+Let us worship the place where the feet of Christ have stood as we lift high the thrice blessed Cross, on which the Master’s blood was emptied out, pouring forth resurrection for the world.
 
 ****
 
@@ -401,7 +401,7 @@ Verse:
 
 ** God is our King for ever; he has wrought salvation in the midst of the earth.
 
-A source owing with life clearly gushed from the SaviourÂ’s side, watering the souls of those who in faith worship his divine passion, and his Cross and Resurrection.
+A source owing with life clearly gushed from the Saviour’s side, watering the souls of those who in faith worship his divine passion, and his Cross and Resurrection.
 
 Glory. **
 
@@ -419,6 +419,6 @@ Today truly the holy utterance of David has reached its term; for see, we manife
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 07 December 2006**

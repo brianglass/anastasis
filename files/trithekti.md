@@ -24,7 +24,7 @@ Reader:
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -50,11 +50,11 @@ Come, let us worship and fall down before Christ himself, the King, our God.
 
 Psalm 16
 
-Hearken to my justice, O Lord; attend to my supplication. Give ear to my prayer from lips which do not deceive. Let my judgement come from your presence, let my eyes see fair dealings. You have tested my heart, you have visited me by night; you have tried me by fire and no injustice has been found in me. That my mouth might not speak of human deeds, for the sake of the words of your lips, I have kept hard ways. Direct my steps in your paths, that my steps may not slip. I have called, for you heard me, O God; incline your ear to me, and hearken to my words. Show the wonder of your mercies, you who save those that hope in you. Guard me, Lord, like the pupil of the eye, from those who resist your right hand. You will shelter me in the shelter of your wings, from the presence of the impious who afflicted me. My foes have surrounded my soul; they have shut their hearts, their mouth has spoken proudly. They cast me out and now they have encircled me, they have fixed their eyes to bow to the ground. They came on me like a lion ready for prey, and like a lion cub lurking in hidden places. Arise, Lord, forestall them and cast them down; deliver my soul from the impious, your sword from the foes of your hand. O Lord, divide them from the few of the land in their life, and their belly was filled from your hidden things. They have been sated with swineÂ’s flesh and left the remainder to their infants. But I in justice will appear in your presence; I shall be satisfied when your glory has appeared to me. ****
+Hearken to my justice, O Lord; attend to my supplication. Give ear to my prayer from lips which do not deceive. Let my judgement come from your presence, let my eyes see fair dealings. You have tested my heart, you have visited me by night; you have tried me by fire and no injustice has been found in me. That my mouth might not speak of human deeds, for the sake of the words of your lips, I have kept hard ways. Direct my steps in your paths, that my steps may not slip. I have called, for you heard me, O God; incline your ear to me, and hearken to my words. Show the wonder of your mercies, you who save those that hope in you. Guard me, Lord, like the pupil of the eye, from those who resist your right hand. You will shelter me in the shelter of your wings, from the presence of the impious who afflicted me. My foes have surrounded my soul; they have shut their hearts, their mouth has spoken proudly. They cast me out and now they have encircled me, they have fixed their eyes to bow to the ground. They came on me like a lion ready for prey, and like a lion cub lurking in hidden places. Arise, Lord, forestall them and cast them down; deliver my soul from the impious, your sword from the foes of your hand. O Lord, divide them from the few of the land in their life, and their belly was filled from your hidden things. They have been sated with swine’s flesh and left the remainder to their infants. But I in justice will appear in your presence; I shall be satisfied when your glory has appeared to me. ****
 
 Psalm 24
 
-To you, O Lord, I have lifted my soul. My God, I have trusted in you, do not let me be shamed for ever. Do not let my foes laugh at me; for all who wait patiently for you shall not be shamed; let those who transgress without cause be shamed. O Lord, make your ways known to me, and teach me your paths. Guide me into your truth and teach me, for you are God my Saviour, and I have waited patiently on you all the day. Remember your acts of pity, Lord, and your mercies, for they are eternal. Do not remember the sins of my youth and ignorance; in accordance with your mercy remember me, on account of your goodness, O Lord. The Lord is good and upright, therefore he will give laws to those who sin on their way. He will guide the meek with judgement, he will teach the meek his ways. All the ways of the Lord are mercy and truth, for those who seek his covenant and his testimonies. For your nameÂ’s sake, O Lord, pardon my sin, for it is great. Who is one who fears the Lord? He will give him laws in the way which he has chosen. His soul will dwell among good things and his seed will inherit the earth. The Lord is the strength of those who fear him, and his covenant will show them this. My eyes are ever towards the Lord, for he will draw my feet out of the snare. Look on me and have mercy on me; for I am alone and poor. The afflictions of my heart have been multiplied; bring me out of my troubles. See my humiliation and my toil, and forgive all my sins. See my foes, for they have been multiplied, and have hated me with an unjust hatred. Guard my soul and deliver me; let me not be shamed, for I have hoped in you. The innocent and upright have joined themselves to me, because I have waited patiently for you, O Lord. O God, deliver Israel from all his afflictions. ****
+To you, O Lord, I have lifted my soul. My God, I have trusted in you, do not let me be shamed for ever. Do not let my foes laugh at me; for all who wait patiently for you shall not be shamed; let those who transgress without cause be shamed. O Lord, make your ways known to me, and teach me your paths. Guide me into your truth and teach me, for you are God my Saviour, and I have waited patiently on you all the day. Remember your acts of pity, Lord, and your mercies, for they are eternal. Do not remember the sins of my youth and ignorance; in accordance with your mercy remember me, on account of your goodness, O Lord. The Lord is good and upright, therefore he will give laws to those who sin on their way. He will guide the meek with judgement, he will teach the meek his ways. All the ways of the Lord are mercy and truth, for those who seek his covenant and his testimonies. For your name’s sake, O Lord, pardon my sin, for it is great. Who is one who fears the Lord? He will give him laws in the way which he has chosen. His soul will dwell among good things and his seed will inherit the earth. The Lord is the strength of those who fear him, and his covenant will show them this. My eyes are ever towards the Lord, for he will draw my feet out of the snare. Look on me and have mercy on me; for I am alone and poor. The afflictions of my heart have been multiplied; bring me out of my troubles. See my humiliation and my toil, and forgive all my sins. See my foes, for they have been multiplied, and have hated me with an unjust hatred. Guard my soul and deliver me; let me not be shamed, for I have hoped in you. The innocent and upright have joined themselves to me, because I have waited patiently for you, O Lord. O God, deliver Israel from all his afflictions. ****
 
 Psalm 50
 
@@ -78,7 +78,7 @@ Verse 1.
 
 Create a clean heart in me, O God, and renew a right spirit within me.
 
-Lord, who at the third hourÂ….
+Lord, who at the third hour….
 
 ****
 
@@ -86,7 +86,7 @@ Verse 2.
 
 Do not cast me from your presence, do not take your Holy Spirit from me.
 
-Lord, who at the third hourÂ….
+Lord, who at the third hour….
 
 Glory. Both now.
 
@@ -112,7 +112,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -158,7 +158,7 @@ Lord, have mercy. (
 
 Priest:
 
-** May God take pityÂ… ****
+** May God take pity… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
@@ -188,11 +188,11 @@ O God, save my by your name, and you will judge me by your power. O God, hear my
 
 Psalm 54
 
-Give ear to my prayer, O God, and do not despise my supplication; attend to me, and hear me. I was grieved in my meditation, and troubled by the voice of the foe and the tribulation of the sinner. Because they cast iniquity upon me, and in anger they were indignant with me. My heart was troubled within me, and fear of death fell on me. Fear and trembling came upon me, and darkness covered me. And I said: Who will give me wings like a doveÂ’s, and I shall fly away and find rest. See, I have gone far away in my flight, and have encamped in the wilderness. I waited for God who saves me from faint-heartedness and from storm. O Lord, drown and divide their tongues; because I have seen iniquity and wrangling in the city. Day and night it will go round upon its walls, and lawlessness and toil are in its midst, and injustice. Usury and fraud have not left its streets. For if an enemy had reviled me, I would have endured it. And if one who hated me had boasted against me, I would have hidden from him. But it was you, a man my equal, my guide and my friend. Who made sweet the food we ate together; we walked in harmony in the GodÂ’s house. Let death come upon them, and let them go down alive into hell. For evil is in their dwellings and in their midst. But I cried to God and the Lord heard me. At evening and morning and at midday I shall speak and declare, and he will listen to my voice. He will redeem my soul in peace from those who draw near me, for in crowds they were about me. God will hear and he who is before the ages will humble them. For there is no change with them, because they have not feared God; he has stretched out his hand to repay. They have defiled his covenant; they have been divided by the wrath from his presence, and their have drawn near. Their words were smoother than oil, yet they are javelins. Cast your care on the Lord, and he will support you; he will not let the just waver for ever. But you, O God, will bring them down to the pit of destruction. Men of bloodshed and deceit will not live out half their days; but I, Lord, shall hope in you. ****
+Give ear to my prayer, O God, and do not despise my supplication; attend to me, and hear me. I was grieved in my meditation, and troubled by the voice of the foe and the tribulation of the sinner. Because they cast iniquity upon me, and in anger they were indignant with me. My heart was troubled within me, and fear of death fell on me. Fear and trembling came upon me, and darkness covered me. And I said: Who will give me wings like a dove’s, and I shall fly away and find rest. See, I have gone far away in my flight, and have encamped in the wilderness. I waited for God who saves me from faint-heartedness and from storm. O Lord, drown and divide their tongues; because I have seen iniquity and wrangling in the city. Day and night it will go round upon its walls, and lawlessness and toil are in its midst, and injustice. Usury and fraud have not left its streets. For if an enemy had reviled me, I would have endured it. And if one who hated me had boasted against me, I would have hidden from him. But it was you, a man my equal, my guide and my friend. Who made sweet the food we ate together; we walked in harmony in the God’s house. Let death come upon them, and let them go down alive into hell. For evil is in their dwellings and in their midst. But I cried to God and the Lord heard me. At evening and morning and at midday I shall speak and declare, and he will listen to my voice. He will redeem my soul in peace from those who draw near me, for in crowds they were about me. God will hear and he who is before the ages will humble them. For there is no change with them, because they have not feared God; he has stretched out his hand to repay. They have defiled his covenant; they have been divided by the wrath from his presence, and their have drawn near. Their words were smoother than oil, yet they are javelins. Cast your care on the Lord, and he will support you; he will not let the just waver for ever. But you, O God, will bring them down to the pit of destruction. Men of bloodshed and deceit will not live out half their days; but I, Lord, shall hope in you. ****
 
 Psalm 90
 
-One who dwells in the help of the Most High will live under the protection of the of the God of heaven, will say to the Lord, Â‘You are my protector and my refuge, my God, and I shall hope in himÂ’. For he will deliver you from the snare of hunters, and from the word which troubles. He will overshadow you with his wings, and beneath his feathers you will hope; his truth will encircle you with a shield. You will not be afraid of terror by night, of the arrow that flies by day. Of the thing that prowls in the darkness, of mishap and the noonday devil. A thousand may fall at your side, and ten thousand at your right, but it will not come near you. But with your eyes you will observe, and see the reward of sinners. For you, Lord, are my hope: you have made the Most High your refuge. Evils will not approach you, nor a scourge draw near your dwelling. Because he has given orders to his Angels about you, to guard you in all your ways. They will bear you on their hands, lest you dash your foot against a stone. You will walk on asp and basilisk, and trample down lion and dragon. Â‘Because he hoped in me, I shall deliver him; I shall shelter him, because he knew my name. He will cry to me, and I shall hear him, I am with him in trouble; I shall rescue him and glorify him. I shall fill him with length of days, and show him my salvationÂ’.
+One who dwells in the help of the Most High will live under the protection of the of the God of heaven, will say to the Lord, ‘You are my protector and my refuge, my God, and I shall hope in him’. For he will deliver you from the snare of hunters, and from the word which troubles. He will overshadow you with his wings, and beneath his feathers you will hope; his truth will encircle you with a shield. You will not be afraid of terror by night, of the arrow that flies by day. Of the thing that prowls in the darkness, of mishap and the noonday devil. A thousand may fall at your side, and ten thousand at your right, but it will not come near you. But with your eyes you will observe, and see the reward of sinners. For you, Lord, are my hope: you have made the Most High your refuge. Evils will not approach you, nor a scourge draw near your dwelling. Because he has given orders to his Angels about you, to guard you in all your ways. They will bear you on their hands, lest you dash your foot against a stone. You will walk on asp and basilisk, and trample down lion and dragon. ‘Because he hoped in me, I shall deliver him; I shall shelter him, because he knew my name. He will cry to me, and I shall hear him, I am with him in trouble; I shall rescue him and glorify him. I shall fill him with length of days, and show him my salvation’.
 
 Glory. Both now. Alleluia (
 
@@ -210,7 +210,7 @@ Verse 1.
 
 Give ear to my prayer, O God, and do not despise my supplication.
 
-On the sixth dayÂ…
+On the sixth day…
 
 ****
 
@@ -218,7 +218,7 @@ Verse 2.
 
 I cried to God and the Lord heard me.
 
-On the sixth dayÂ…
+On the sixth day…
 
 ****
 
@@ -228,7 +228,7 @@ Glory. Both now.
 
 **Theotokion.**
 
-Because we have no boldness because of our many sins, entreat the One born of you, Virgin Mother of God; for a MotherÂ’s plea has great force for the kindness of the Master. Do not despise the supplications of sinners, O all-holy, for he is merciful, and able to save, he who even accepted to suffer for us.
+Because we have no boldness because of our many sins, entreat the One born of you, Virgin Mother of God; for a Mother’s plea has great force for the kindness of the Master. Do not despise the supplications of sinners, O all-holy, for he is merciful, and able to save, he who even accepted to suffer for us.
 
 ****
 
@@ -238,7 +238,7 @@ Then we sing the Troparion of the Prophecy, after which we read the Prophecy. Th
 
 Then the reading from The Ladder and at once
 
-Let your mercies, O Lord, come quickly to our aid, for we are utterly poor; help us, O God our Saviour, for the glory of your name. O Lord, deliver us, and have mercy on our sins, for your nameÂ’s sake.
+Let your mercies, O Lord, come quickly to our aid, for we are utterly poor; help us, O God our Saviour, for the glory of your name. O Lord, deliver us, and have mercy on our sins, for your name’s sake.
 
 ****
 
@@ -248,7 +248,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -278,7 +278,7 @@ Both now.
 
 **Theotokion.**
 
-As you are source of compassion, grant us pity, Mother of God. Look on a people who have sinned and show your power as always; for hoping in you we cry, Â‘HailÂ’, as once Gabriel did, the Chief Captain of the Bodiless Powers.
+As you are source of compassion, grant us pity, Mother of God. Look on a people who have sinned and show your power as always; for hoping in you we cry, ‘Hail’, as once Gabriel did, the Chief Captain of the Bodiless Powers.
 
 ****
 
@@ -286,7 +286,7 @@ This Theotokion is said on Monday, Tuesday and Thursday, but on Wednesday and Fr
 
 Cross-Theotokion.
 
-You are highly glorified, Virgin Mother of God, and we praise you, for through your SonÂ’s Cross Hell has been overthrown and death has died; we who were dead have risen, and been granted life; we have obtained Paradise, the ancient happiness; and so with thanksgiving we glorify Christ our God as mighty and alone full of mercy.
+You are highly glorified, Virgin Mother of God, and we praise you, for through your Son’s Cross Hell has been overthrown and death has died; we who were dead have risen, and been granted life; we have obtained Paradise, the ancient happiness; and so with thanksgiving we glorify Christ our God as mighty and alone full of mercy.
 
 ****
 
@@ -302,7 +302,7 @@ Lord, have mercy. (
 
 Priest:
 
-** May God take pityÂ… ****
+** May God take pity… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
@@ -327,6 +327,6 @@ It is to be noted that after the Dismissal we leave the Church and go off to our
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

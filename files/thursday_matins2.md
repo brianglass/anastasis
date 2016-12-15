@@ -15,7 +15,7 @@ Tone 1
 
 *.*
 
-Wise Fishermen of the whole world, as you have received GodÂ’s compassion, now intercede also for us who cry: Lord, save your people and your city, and through your Apostles free the souls of us who are held fast by troubles.
+Wise Fishermen of the whole world, as you have received God’s compassion, now intercede also for us who cry: Lord, save your people and your city, and through your Apostles free the souls of us who are held fast by troubles.
 
 ****
 
@@ -59,7 +59,7 @@ Verse:
 
 Of the Martyrs. Same melody.
 
-Let us all beseech ChristÂ’s Martyrs, for they ask for our salvation; and let us in love approach them with faith; they possess the grace of healing; they ward off the regiments of demons, as guardians of the Faith.
+Let us all beseech Christ’s Martyrs, for they ask for our salvation; and let us in love approach them with faith; they possess the grace of healing; they ward off the regiments of demons, as guardians of the Faith.
 
 Glory. Both now.
 
@@ -270,6 +270,6 @@ Like the Prophets let us hymn the Virgin as golden jar of the manna, bush unburn
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

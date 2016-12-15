@@ -22,13 +22,13 @@ mso-bidi-font-size:10.0pt">I was entrusted with a sinless and living country, bu
 italic">(Twice)</span>**</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Brethren, let us learn the power of the mystery. For when the Profligate Son ran back from sin to his FatherÂ’s hearth, the all-loving Father, coming out to meet him, kissed him and gave him back again the tokens of his own glory, and completed the mystical joy of those on high by sacrificing the fatted calf, so that we might live lives worthy of the loving Father, who offered the sacrifice, and of the glorious sacrificial victim, the Saviour of our souls. <span style="mso-tab-count:1">    </span><span style="color:red;mso-bidi-font-style:italic">(Twice)</span></span>
+mso-bidi-font-size:10.0pt">Brethren, let us learn the power of the mystery. For when the Profligate Son ran back from sin to his Father’s hearth, the all-loving Father, coming out to meet him, kissed him and gave him back again the tokens of his own glory, and completed the mystical joy of those on high by sacrificing the fatted calf, so that we might live lives worthy of the loving Father, who offered the sacrifice, and of the glorious sacrificial victim, the Saviour of our souls. <span style="mso-tab-count:1">    </span><span style="color:red;mso-bidi-font-style:italic">(Twice)</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Glory.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
 mso-bidi-font-style:italic">Tone 2.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Of what great blessings, wretch that I am, have I deprived myself! From what a kingship<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> in my misery have I fallen! I have wasted the wealth that I received, I have transgressed the commandment. Alas, unhappy soul ! You are henceforth condemned to the eternal fire. Therefore before the end cry out to Christ our God, Â‘Receive me as the Profligate Son, O God, and have mercy on meÂ’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Of what great blessings, wretch that I am, have I deprived myself! From what a kingship<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> in my misery have I fallen! I have wasted the wealth that I received, I have transgressed the commandment. Alas, unhappy soul ! You are henceforth condemned to the eternal fire. Therefore before the end cry out to Christ our God, ‘Receive me as the Profligate Son, O God, and have mercy on me’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"></span>
 
@@ -52,7 +52,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-style:italic">Like the Profligate Son, h
 10.0pt"></span>*
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The mystery hidden from all eternity and unknown to Angels, has been reÂ­vealed to those on earth through you, O Mother of God: God being made flesh in a union without confusion, and willingly accepting the Cross for us, through which he raised the first-formed man and saved our souls from death.<span style="mso-bidi-font-style:italic"></span></span>
+mso-bidi-font-size:10.0pt">The mystery hidden from all eternity and unknown to Angels, has been re­vealed to those on earth through you, O Mother of God: God being made flesh in a union without confusion, and willingly accepting the Cross for us, through which he raised the first-formed man and saved our souls from death.<span style="mso-bidi-font-style:italic"></span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
 font-style:normal;mso-bidi-font-style:italic">Alphabetical Aposticha from the Octoichos.</span>
@@ -60,13 +60,13 @@ font-style:normal;mso-bidi-font-style:italic">Alphabetical Aposticha from the Oc
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal;
 mso-bidi-font-style:italic">Glory.<span style="color:red"> Tone 6.</span></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">I have squandered the wealth of my FatherÂ’s gift, and have grazed<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>, poor wretch, with irrational beasts. Yearning for their food, I starved and was not filled. But now I return to the compassionate Father and cry out with tears, Â‘Accept me as a hired servant, as I fall down before your loving‑kindness, and save meÂ’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">I have squandered the wealth of my Father’s gift, and have grazed<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>, poor wretch, with irrational beasts. Yearning for their food, I starved and was not filled. But now I return to the compassionate Father and cry out with tears, ‘Accept me as a hired servant, as I fall down before your loving‑kindness, and save me’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
 mso-bidi-font-style:italic">Theotokion.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">My maker and redeemer, Christ the Lord, by coming from your womb, All-pure Lady, and clothing himself in me freed Adam from the former curse. Therefore, All-pure, as to her who is truly Mother of God and Virgin, we cry unceasingly the AngelÂ’s Â‘HailÂ’: Hail, Sovereign Lady, defence, protection and salvation of our souls!</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">My maker and redeemer, Christ the Lord, by coming from your womb, All-pure Lady, and clothing himself in me freed Adam from the former curse. Therefore, All-pure, as to her who is truly Mother of God and Virgin, we cry unceasingly the Angel’s ‘Hail’: Hail, Sovereign Lady, defence, protection and salvation of our souls!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red">Apolytikion, </span><span style="font-size:14.0pt;mso-bidi-font-size:
@@ -84,7 +84,7 @@ AT MATINS
 
 After the Six Psalms,
 
-The Lord is God, **the Apolytikion of the Resurrection (twice) and the Theotokion in the Tone of the week. The usual readings from the Psalter, the Kathismata in the Tone of the week from the Octoichos, the Evlogitaria, the YpakoÃ¯, the Anavathmi and the Prokeimenon in the Tone of the week, and the appointed Morning Gospel. Then** Having seen the Resurrection of Christ*,* **followed by Psalm 50, and the following Idiomels.**
+The Lord is God, **the Apolytikion of the Resurrection (twice) and the Theotokion in the Tone of the week. The usual readings from the Psalter, the Kathismata in the Tone of the week from the Octoichos, the Evlogitaria, the Ypakoï, the Anavathmi and the Prokeimenon in the Tone of the week, and the appointed Morning Gospel. Then** Having seen the Resurrection of Christ*,* **followed by Psalm 50, and the following Idiomels.**
 
 Glory. **
 
@@ -104,7 +104,7 @@ Have mercy on me, O God, in accordance with your great mercy. According to the m
 
 Tone 6.
 
-As I ponder the multitudes of dreadful things that I have done, wretch that I am, I tremble for the fearful day of judgement. But confident in your merciful compassion, like David I cry to you, Â‘Have mercy upon me, O God, in accordance with your great mercyÂ’.
+As I ponder the multitudes of dreadful things that I have done, wretch that I am, I tremble for the fearful day of judgement. But confident in your merciful compassion, like David I cry to you, ‘Have mercy upon me, O God, in accordance with your great mercy’.
 
 ****
 
@@ -115,7 +115,7 @@ Composition of Kyr Joseph. Acrostic in Ode 9:
 
 <span style="text-transform: uppercase">Joseph</span>**.**
 
-Ode 1. Tone 2. Take up MosesÂ’ song.
+Ode 1. Tone 2. Take up Moses’ song.
 
 Jesus my God, now accept me too as I repent like the Profligate Son. All my life I have lived in carelessness and provoked you to anger.
 
@@ -127,13 +127,13 @@ Spread wide your fatherly embrace now and accept me too like the Profligate, com
 
 Theotokion
 
-Show in me all your goodness, O God. As my Benefactor, overlook the multitude of my offences at your MotherÂ’s godly prayers.
+Show in me all your goodness, O God. As my Benefactor, overlook the multitude of my offences at your Mother’s godly prayers.
 
 ****
 
 Katavasia.
 
-Take up MosesÂ’ song, my soul, and shout, Â‘He has become my helper and protector. This is my God, and I will glorify him.Â’
+Take up Moses’ song, my soul, and shout, ‘He has become my helper and protector. This is my God, and I will glorify him.’
 
 ****
 
@@ -141,7 +141,7 @@ Ode 3. Make my barren mind.
 
 Wholly beside myself, I attached myself in madness to the inventors of passions. But accept me, O Christ, like the Profligate.
 
-Imitating the words of the Profligate I cry aloud, Â‘I have sinned, FatherÂ’. Like him now embrace me too and do not reject me.
+Imitating the words of the Profligate I cry aloud, ‘I have sinned, Father’. Like him now embrace me too and do not reject me.
 
 Open wide your arms, O Christ, and in compassion receive me as I return from a far country of sin and passions.
 
@@ -159,7 +159,7 @@ Make my barren mind produce fruit, O God, husbandman of what is lovely and plant
 
 **Kathisma. Tone 1. The soldiers watching.**
 
-Make haste and open to me your fatherly embrace. Like the Profligate I have squandered my whole livelihood. As I look to the inexhaustible wealth of your mercy, do not now despise my beggared heart, for to you, Lord, with compunction I cry, Â‘I have sinned against you. Save me!Â’
+Make haste and open to me your fatherly embrace. Like the Profligate I have squandered my whole livelihood. As I look to the inexhaustible wealth of your mercy, do not now despise my beggared heart, for to you, Lord, with compunction I cry, ‘I have sinned against you. Save me!’
 
 Glory.
 
@@ -175,11 +175,11 @@ Pure Virgin Mother of God without bridegroom, the only guardian and protection o
 
 Ode 4. Irmos. Foreseeing your birth.
 
-The wealth of fair blessings which you gave me, heavenly Father, I have wrongly squandered, enslaved to citizens of a foreign country, therefore I cry to you, Â‘I have sinned against you. Receive me like the Profligate of old, unfolding your arms to meÂ’.
+The wealth of fair blessings which you gave me, heavenly Father, I have wrongly squandered, enslaved to citizens of a foreign country, therefore I cry to you, ‘I have sinned against you. Receive me like the Profligate of old, unfolding your arms to me’.
 
 I have become enslaved to every evil and, wretchedly bowed down to the creators of the passions, through negligence I have lost possession of myself. Take pity on me, Saviour, heavenly Father, as I flee to your many mercies.
 
-I have been filled with every shame and dare not look towards the height of heaven, for I have irrationally bowed down to sin. But now as I return I cry aloud in compunction, Â‘I have sinned against you. Receive me, King of allÂ’.
+I have been filled with every shame and dare not look towards the height of heaven, for I have irrationally bowed down to sin. But now as I return I cry aloud in compunction, ‘I have sinned against you. Receive me, King of all’.
 
 ****
 
@@ -191,17 +191,17 @@ You are the help of humankind, the sure hope of all Christians, immaculate Virgi
 
 Katavasia.
 
-Foreseeing your birth from a Virgin, the Prophet cried out and proclaimed, Â‘I heard your report, O Christ, and I was afraid, for you came from Theman and from a holy shaded mountain.Â’
+Foreseeing your birth from a Virgin, the Prophet cried out and proclaimed, ‘I heard your report, O Christ, and I was afraid, for you came from Theman and from a holy shaded mountain.’
 
 ****
 
 Ode 5. Irmos. The night has passed.
 
-I was enslaved to citizens of a foreign country, I became an exile in a land of destruction, and I was filled with shame. But now, as I return, O Compassionate, I cry to you, Â‘I have sinned.Â’
+I was enslaved to citizens of a foreign country, I became an exile in a land of destruction, and I was filled with shame. But now, as I return, O Compassionate, I cry to you, ‘I have sinned.’
 
 Open to me now your fatherly compassion as I return from evils, heavenly Father, and in your surpassing mercy do not reject me.
 
-I dare not look up at the height of heaven, O Christ, for I have angered you beyond measure. But knowing your compassion, merciful Lord, I cry, Â‘I have sinned. Be merciful. Save meÂ’.
+I dare not look up at the height of heaven, O Christ, for I have angered you beyond measure. But knowing your compassion, merciful Lord, I cry, ‘I have sinned. Be merciful. Save me’.
 
 ****
 
@@ -221,7 +221,7 @@ Ode 6. I am held fast by an abyss.
 
 The depth of sin ever holds me fast, and a tempest of transgressions drags me down. Pilot me, Christ my God, to the harbour of life and save me, King of glory.
 
-I have wickedly squandered my FatherÂ’s wealth, and reduced to poverty, I am filled with shame, enslaved to fruitless thoughts. Therefore I cry to you who love humankind, Â‘Take pity on me and save meÂ’.
+I have wickedly squandered my Father’s wealth, and reduced to poverty, I am filled with shame, enslaved to fruitless thoughts. Therefore I cry to you who love humankind, ‘Take pity on me and save me’.
 
 I am wasted with starvation of every good, and estranged from you, O Christ supremely good. Take pity on me as I now return, and save me as I sing the praise of your love for humankind.
 
@@ -247,7 +247,7 @@ I have foolishly run away, O Father, from your glory; I have squandered in evil 
 
 Ikos.
 
-Our Saviour teaches us every day through his own voice. Let us therefore listen to the Scriptures concerning the Profligate who became temperate again, and with faith let us imitate his fair repentance. With humble heart let us cry out to him who knows all secrets, Â‘We have sinned against you, merciful Father, and are not worthy ever to be called your children as before. But since you are by nature full of love for humankind, accept me and make me as one of your hired servants.
+Our Saviour teaches us every day through his own voice. Let us therefore listen to the Scriptures concerning the Profligate who became temperate again, and with faith let us imitate his fair repentance. With humble heart let us cry out to him who knows all secrets, ‘We have sinned against you, merciful Father, and are not worthy ever to be called your children as before. But since you are by nature full of love for humankind, accept me and make me as one of your hired servants.
 
 ****
 
@@ -259,8 +259,8 @@ On this day we commemorate the parable of the Profligate Son from the holy Gospe
 
 Verses.
 
-If youÂ’re a Profligate, like me, take heart!
-All doors to GodÂ’s compassion open lie.
+If you’re a Profligate, like me, take heart!
+All doors to God’s compassion open lie.
 
 By your ineffable love for humankind, Christ our God, have mercy on me.
 
@@ -268,9 +268,9 @@ By your ineffable love for humankind, Christ our God, have mercy on me.
 
 Ode 7. Irmos. Imitating the Cherubim.
 
-I have bowed down miserably to the pleasures of the body and I have become wholly enslaved to the inventors of the passions; and I have become a stranger to you, lover of humankind. But now I cry with the voice of the Profligate, Â‘I have sinned, O Christ, do not despise, for you alone are mercifulÂ’.
+I have bowed down miserably to the pleasures of the body and I have become wholly enslaved to the inventors of the passions; and I have become a stranger to you, lover of humankind. But now I cry with the voice of the Profligate, ‘I have sinned, O Christ, do not despise, for you alone are merciful’.
 
-I call out, Â‘I have sinnedÂ’, and I dare not even look towards the height of heaven, O King of all; for in foolishness I alone have angered you, rejecting your commandments. Therefore, as you alone are good, do not cast me away from your presence.
+I call out, ‘I have sinned’, and I dare not even look towards the height of heaven, O King of all; for in foolishness I alone have angered you, rejecting your commandments. Therefore, as you alone are good, do not cast me away from your presence.
 
 At the prayers of the apostles, prophets, ascetics, honoured martyrs and the just, pardon me all the things by which I have offended, and angering your goodness, Christ my Lord, that I may sing your praise to all the ages.
 
@@ -284,7 +284,7 @@ Mother of God, you are revealed as more radiant than the Cherubim and Seraphim a
 
 Katavasia.
 
-Imitating the Cherubim, the Youths in the furnace, danced as they cried out, Â‘Blessed are you, O God, for with truth and judgement you have brought all these things upon us because of our sins; you who are highly praised and glorified to all the ages.Â’
+Imitating the Cherubim, the Youths in the furnace, danced as they cried out, ‘Blessed are you, O God, for with truth and judgement you have brought all these things upon us because of our sins; you who are highly praised and glorified to all the ages.’
 
 ****
 
@@ -314,9 +314,9 @@ Ode 9. Who of those born of earth.
 
 See, O Christ, the affliction of my heart; see my turning back; see my tears, O Saviour, and do not despise me. But embrace me once again through your compassion and number me with the multitude of the saved, that with thanksgiving I may sing the praise of your mercies.
 
-Like the Thief I cry to you, Â‘Remember meÂ’. Like the Tax Collector, with downcast eyes cast, I now beat my breast and say, Â‘Be mercifulÂ’. Like the Profligate deliver me from all my evils, compassionate King of all, that I may sing the praise of your profound condescension.
+Like the Thief I cry to you, ‘Remember me’. Like the Tax Collector, with downcast eyes cast, I now beat my breast and say, ‘Be merciful’. Like the Profligate deliver me from all my evils, compassionate King of all, that I may sing the praise of your profound condescension.
 
-Groan now, my soul, all-wretched, and cry aloud to Christ, Â‘Lord, who for my sake willingly became poor, in my poverty I lack every good work. Make me rich with an abundance of fair things, as you alone are good and full of mercyÂ’.
+Groan now, my soul, all-wretched, and cry aloud to Christ, ‘Lord, who for my sake willingly became poor, in my poverty I lack every good work. Make me rich with an abundance of fair things, as you alone are good and full of mercy’.
 
 O Good One, the joy that you once created at the voluntary return of the Profligate, now create once again because of me, wretch though I am. Open wide your holy arms to me, that saved I may sing the praise of your profound condescension.
 
@@ -378,13 +378,13 @@ I will give you thanks, O Lord, with my whole heart: I will tell of all your won
 
 Tone 8.
 
-Like the Profligate I have wasted the riches of my FatherÂ’s substance; and having spent them all I am now destitute, dwelling in the land of the evil citizens. No longer can I bear to live among them, but turning back I cry to you, merciful Father, Â‘I have sinned against heaven and before you, and I am not worthy to be called your son. Make me as one of your hired servants, O God, and have mercy on meÂ’.
+Like the Profligate I have wasted the riches of my Father’s substance; and having spent them all I am now destitute, dwelling in the land of the evil citizens. No longer can I bear to live among them, but turning back I cry to you, merciful Father, ‘I have sinned against heaven and before you, and I am not worthy to be called your son. Make me as one of your hired servants, O God, and have mercy on me’.
 
 Glory.
 
 **Tone 6.**
 
-Loving Father, I have gone far from you, but do not forsake me, nor declare me unfitted for your Kingdom. The all-evil enemy has stripped me naked and taken all my wealth. I have squandered like the Profligate the graces given to my soul. But now I have arisen and returned, and I cry aloud to you, Â‘Make me as one of your hired servants, you who for my sake stretched out your spotless hands on the Cross, to snatch me from the fearsome beast and to clothe me once again in the first robe, for you alone art full of mercyÂ‘.
+Loving Father, I have gone far from you, but do not forsake me, nor declare me unfitted for your Kingdom. The all-evil enemy has stripped me naked and taken all my wealth. I have squandered like the Profligate the graces given to my soul. But now I have arisen and returned, and I cry aloud to you, ‘Make me as one of your hired servants, you who for my sake stretched out your spotless hands on the Cross, to snatch me from the fearsome beast and to clothe me once again in the first robe, for you alone art full of mercy‘.
 
 Both now*.*
 
@@ -398,17 +398,17 @@ Great Doxology. the two Litanies, and the Dismissal. The usual Liti, at which we
 
 <a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious.</span>
 
-<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, Â‘toÂ’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive Â‘To be entrusted with somethingÂ’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be Â‘withÂ’, which at least makes sense, and for the moment I follow him. It is unclear what the Â‘sinless and living land isÂ’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word Â‘butÂ’ in the first line is not in the Greek and there is a colon after Â‘sinÂ’. The latter would not make sense. It is simpler to take Â‘having sown the ground with sinÂ’ with what follows. In Slavonic Â‘reapedÂ’ and Â‘piledÂ’ are also participles, which all depend on Â‘I was entrustedÂ’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the Â‘IÂ’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means Â‘entrusted withÂ’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word Â‘countryÂ’. </span>
+<a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, ‘to’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive ‘To be entrusted with something’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be ‘with’, which at least makes sense, and for the moment I follow him. It is unclear what the ‘sinless and living land is’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word ‘but’ in the first line is not in the Greek and there is a colon after ‘sin’. The latter would not make sense. It is simpler to take ‘having sown the ground with sin’ with what follows. In Slavonic ‘reaped’ and ‘piled’ are also participles, which all depend on ‘I was entrusted’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the ‘I’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means ‘entrusted with’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word ‘country’. </span>
 
 <a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo* <span style="mso-spacerun: yes"> </span>is not attested in the lexical, but again the meaning is obvious.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is Â‘payÂ’, used with reference to soldiers, but the word is connected with *sitos*, Â‘cornÂ’, and so the meaning must be the one proposed above.</span>
+<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above.</span>
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both Â‘kingdomÂ’ and Â‘kingshipÂ’.</span>
+<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’.</span>
 
 <a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday.</span>
 
-<a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[7]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means Â‘dwell withÂ’.</span>
+<a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[7]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’.</span>
 
 <a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[8]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday.</span>
 
@@ -417,6 +417,6 @@ Great Doxology. the two Litanies, and the Dismissal. The usual Liti, at which we
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

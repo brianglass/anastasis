@@ -28,7 +28,7 @@ Come, believers, having gained Mary the Mother of God as an unbreachable wall, l
 <span style="color:red">After the 2nd reading other Kathismata.
 The soldiers watching.</span>
 
-<span style="letter-spacing:-.1pt">Hasten to open to me your fatherly embrace; like the Wastrel I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry, Â‘I have sinned against you, save me!Â’<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a></span>
+<span style="letter-spacing:-.1pt">Hasten to open to me your fatherly embrace; like the Wastrel I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry, ‘I have sinned against you, save me!’<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a></span>
 
 <span style="color:red;letter-spacing:-.1pt;mso-bidi-font-style:italic">Verse:</span>*<span style="letter-spacing:-.1pt"> </span>*Lord, do not rebuke me in your anger; nor chastise me in your wrath.<span style="letter-spacing:-.1pt"></span>
 
@@ -37,12 +37,12 @@ The soldiers watching.</span>
 <span style="mso-bidi-font-style:italic">Glory. Both now. <span style="color:red">Theotokion.
 Same melody.</span></span>
 
-Put away, my soul, the sleep of sloth and light the bright lamp of repentance, and now go out, bidding farewell to the confusion of life, to meet the immortal Bridegroom, saying, Â‘Accept and do not reject me, O Word, at the supplications of the one who gave you birthÂ’.<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>
+Put away, my soul, the sleep of sloth and light the bright lamp of repentance, and now go out, bidding farewell to the confusion of life, to meet the immortal Bridegroom, saying, ‘Accept and do not reject me, O Word, at the supplications of the one who gave you birth’.<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>
 
 <span style="color:red">After the 3rd Reading, Other Kathismata.
 The soldiers watching.</span>
 
-John, who of old baptized in JordanÂ’s streams the Purification of all the world, draw me out, who am drowned by many offences, and wash me clean of every kind of stain, as you ever entreat the Lover of humankind as an acceptable intercessor.
+John, who of old baptized in Jordan’s streams the Purification of all the world, draw me out, who am drowned by many offences, and wash me clean of every kind of stain, as you ever entreat the Lover of humankind as an acceptable intercessor.
 
 <span style="color:red;
 mso-bidi-font-style:italic">Verse: </span>God is wonderful in his Saints, the God of Israel.
@@ -56,7 +56,7 @@ footnote">[8]</span></a> you received victory from heaven. Glory to him who gave
 <span style="mso-bidi-font-style:italic">Glory. Both now. <span style="color:red">Theotokion.
 The soldiers watching.</span></span>
 
-John, leaping in his motherÂ’s womb, by grace recognised God being carried in your womb, pure Virgin, and faithfully worshipped.<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[9]</span></a> But I implore you, O Virgin, with the Forerunner, entreat the Word, to whom you gave a body, that your servant may be saved.
+John, leaping in his mother’s womb, by grace recognised God being carried in your womb, pure Virgin, and faithfully worshipped.<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[9]</span></a> But I implore you, O Virgin, with the Forerunner, entreat the Word, to whom you gave a body, that your servant may be saved.
 
 <span style="color:red">Canon of Compunction, of which the Acrostic, without the Theotokia, is:</span>
 
@@ -88,7 +88,7 @@ Listen to the voice of those who cry to you, blest Saint. Joseph<a href="#_ftn16
 
 <span style="color:red">The same Irmos.</span>
 
-<span style="color: red">F</span> You were called Â‘Voice of the WordÂ’<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[17]</span></a>, blest Saint. Therefore, O Forerunner, receive our voices that we bring to you, freeing us from evils by your mediation.
+<span style="color: red">F</span> You were called ‘Voice of the Word’<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[17]</span></a>, blest Saint. Therefore, O Forerunner, receive our voices that we bring to you, freeing us from evils by your mediation.
 
 <span style="color: red">W</span> Shining out like the dawn, like the sun, you enlighten the ends of the earth and darken the wicked spirits. Therefore dispel the gloom darkness of my soul.
 
@@ -101,7 +101,7 @@ footnote">[18]</span></a>. Therefore put to death the passions that slay me, and
 
 <span style="color:red">Ode 3. Irmos.</span>
 
-Â‘A stone which the builders rejected has become the head of the cornerÂ’<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[19]</span></a>; it is the rock on which Christ made firm<a href="#_ftn20" id="_ftnref20"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[20]</span></a> the Church which he had ransomed<a href="#_ftn21" id="_ftnref21"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[21]</span></a> from among the nations<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a>.
+‘A stone which the builders rejected has become the head of the corner’<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[19]</span></a>; it is the rock on which Christ made firm<a href="#_ftn20" id="_ftnref20"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[20]</span></a> the Church which he had ransomed<a href="#_ftn21" id="_ftnref21"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[21]</span></a> from among the nations<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a>.
 
 <span style="color:red">Troparia</span>
 
@@ -113,7 +113,7 @@ footnote">[18]</span></a>. Therefore put to death the passions that slay me, and
 
 <span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">T</span><span style="color:red"> </span>The host of Bodiless Powers was truly amazed at your courage, Holy Ones, how you wondrously competed in the stadium and falling in body you threw down in one godly moment all your bodiless opponents.
 
-<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">E</span><span style="color:red"> </span>Still decked out with the blood from your wounds; still drenched in gore, O Champions, you stand beside the Lord, the immortal King, all garlanded with victorsÂ’ crowns.
+<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">E</span><span style="color:red"> </span>Still decked out with the blood from your wounds; still drenched in gore, O Champions, you stand beside the Lord, the immortal King, all garlanded with victors’ crowns.
 
 <span style="color:red">Theotokion</span>
 
@@ -135,11 +135,11 @@ You give birth the One whom the Father begot before all ages; you nourish the no
 
 <span style="color:red">Ode 4. Irmos</span>
 
-Foreseeing in Spirit, you proclaimed the incarnation of the Word, prophet Avvakoum, as you cried, Â‘When the years draw near you will be recognised; when the moment comes you will be revealedÂ’; glory to your power, O Lord!<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[28]</span></a>
+Foreseeing in Spirit, you proclaimed the incarnation of the Word, prophet Avvakoum, as you cried, ‘When the years draw near you will be recognised; when the moment comes you will be revealed’; glory to your power, O Lord!<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[28]</span></a>
 
 <span style="color:red">Troparia</span>
 
-<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">O</span> The wealth you gave me I have squandered wickedly, committing monstrous deeds and now am naked, clothed<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> in the works of dishonour. And so I cry to you, Â‘Make me radiant with robes, goading me to repentance by divine graceÂ’.<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[30]</span></a>
+<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">O</span> The wealth you gave me I have squandered wickedly, committing monstrous deeds and now am naked, clothed<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> in the works of dishonour. And so I cry to you, ‘Make me radiant with robes, goading me to repentance by divine grace’.<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[30]</span></a>
 
 <span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">Y</span><span style="color:red"> </span>I became unconscious, and have fallen terribly, and I lie upon the ground, incurably sick. Raise me, O Christ who raise the fallen, and establish my heart on the rock of repentance.
 
@@ -174,7 +174,7 @@ Give us your peace, O Son of God, for we know no other God but you; we name you 
 <span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">E</span> I have been filled with many and grievous offences, longsuffering, compassionate Master. Have compassion on me, who am condemned, and do not cast me away from your presence.<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[36]</span></a>
 
-<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">T</span> You justified the Tax-collector, O Christ, when he sighed and groaned; therefore I too, imitating him, beat my breast and cry to you, Â‘Have mercy on me, O only compassionate and pityingÂ’.<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[37]</span></a>
+<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">T</span> You justified the Tax-collector, O Christ, when he sighed and groaned; therefore I too, imitating him, beat my breast and cry to you, ‘Have mercy on me, O only compassionate and pitying’.<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[37]</span></a>
 
 <span style="color:red">Of the Martyrs</span>
 
@@ -200,13 +200,13 @@ You gave birth, All-immaculate, to one of the honoured Trinity with two wills bu
 
 <span style="color:red">Ode 6. Irmos</span>
 
-I imitate the Prophet Jonas as I cry, Â‘Free my life from corruption, good Lord, and save me, Saviour of the world, as I cry, Â‘Glory to you!Â’<a href="#_ftn44" id="_ftnref44"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[44]</span></a>
+I imitate the Prophet Jonas as I cry, ‘Free my life from corruption, good Lord, and save me, Saviour of the world, as I cry, ‘Glory to you!’<a href="#_ftn44" id="_ftnref44"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[44]</span></a>
 
 <span style="color:red">Troparia</span>
 
 <span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">S</span> The bones of my wretched soul have been crushed, and I am bowed down by the weight of many pleasures. Help me, O Christ, the only hope of all.
 
-<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">E</span> Fallen into an ocean of dread deeds and the tempest of the passions, I cry out, Â‘All-powerful Christ, bring me up with your mighty hand, and save me.Â’<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[45]</span></a>
+<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">E</span> Fallen into an ocean of dread deeds and the tempest of the passions, I cry out, ‘All-powerful Christ, bring me up with your mighty hand, and save me.’<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[45]</span></a>
 
 <span style="color:red">Of the Martyrs</span>
 
@@ -222,7 +222,7 @@ Revealed as a tabernacle of sanctification<a href="#_ftn47" id="_ftnref47"><span
 
 <span style="color:red">O</span> Baptist, who on earth proclaimed repentance<a href="#_ftn48" id="_ftnref48"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[48]</span></a>, show me ways of repentance that guide me to the light, and deliver me from the chasms of error.
 
-<span style="color: red">W </span>As you plunged the abyss<a href="#_ftn49" id="_ftnref49"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[49]</span></a> in the riverÂ’s streams, dry up the abysses of my passions by granting me showers of tears, Forerunner, herald of Christ.
+<span style="color: red">W </span>As you plunged the abyss<a href="#_ftn49" id="_ftnref49"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[49]</span></a> in the river’s streams, dry up the abysses of my passions by granting me showers of tears, Forerunner, herald of Christ.
 
 <span style="color: red">N</span> Forerunner of the Lord, save me from diseases of the soul, passions of the flesh, the difficulties of life, and trials and afflictions of every kind.
 
@@ -232,7 +232,7 @@ Revealed as a tabernacle of sanctification<a href="#_ftn47" id="_ftnref47"><span
 
 <span style="color:red">Ode 7. Irmos</span>
 
-The fire did not touch or trouble your youths in the furnace, O Saviour. Then the three, as from one mouth, hymned and blessed you, saying, Â‘Blessed is the God of our fathersÂ’.<a href="#_ftn50" id="_ftnref50"><span class="MsoFootnoteReference" style="mso-special-character:
+The fire did not touch or trouble your youths in the furnace, O Saviour. Then the three, as from one mouth, hymned and blessed you, saying, ‘Blessed is the God of our fathers’.<a href="#_ftn50" id="_ftnref50"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[50]</span></a>
 
 <span style="color:red">Troparia</span>
@@ -298,13 +298,13 @@ The one who saved the Youths who in the furnace sang his praise, and who changed
 <span style="color: red">A</span> By your way of life, Baptist John, you were revealed to be an Angel, preaching the Angel of great counsel<a href="#_ftn64" id="_ftnref64"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[64]</span></a> to the ends of the earth. Therefore we sing your praise to all the ages.
 
-<span style="color: red">K</span> Your head was unjustly cut off, blest Saint, who plunged ChristÂ’s head in the waters. By your prayers empower us all to trample under foot the destructive head of the deceiver.
+<span style="color: red">K</span> Your head was unjustly cut off, blest Saint, who plunged Christ’s head in the waters. By your prayers empower us all to trample under foot the destructive head of the deceiver.
 
 <span style="color: red">A</span> Show us all, blest Saint, the paths that lead to the divine entrances, that as we tread them we may become heirs of the divine bridal chamber by your prayers.
 
 <span style="color:red">Theotokion.</span>
 
-<span style="color: red">R</span> Deliver me from foul sin, sinÂ’s flame, punishing darkness<a href="#_ftn65" id="_ftnref65"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[65]</span></a>, and the gnashing of teeth<a href="#_ftn66" id="_ftnref66"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[66]</span></a> and the worm<a href="#_ftn67" id="_ftnref67"><span class="MsoFootnoteReference" style="mso-special-character:
+<span style="color: red">R</span> Deliver me from foul sin, sin’s flame, punishing darkness<a href="#_ftn65" id="_ftnref65"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[65]</span></a>, and the gnashing of teeth<a href="#_ftn66" id="_ftnref66"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[66]</span></a> and the worm<a href="#_ftn67" id="_ftnref67"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[67]</span></a>, O Virgin, only protection of the human race.
 
 <span style="color:red">Ode 9. Irmos</span>
@@ -315,13 +315,13 @@ The light-bearing cloud,<a href="#_ftn68" id="_ftnref68"><span class="MsoFootnot
 
 <span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">I</span><span style="color:red"> </span>See, now is the moment of repentance and pure work! See, now is the day of light! Work its works; flee the darkness of the passions; banish the sleep of wicked sloth, my soul, that you may become a partaker in divine light.
 
-<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">W</span> Like the Tax-collector I groan, like the Harlot I weep, like the Thief I cry out, Â‘Remember me, O CompassionateÂ’, and like the Wastrel son I cry, Â‘I have sinned!Â’. Like the Woman of Canaan I fall before you, Â‘O merciful, do not despise me!Â’<a href="#_ftn70" id="_ftnref70"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[70]</span></a>
+<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">W</span> Like the Tax-collector I groan, like the Harlot I weep, like the Thief I cry out, ‘Remember me, O Compassionate’, and like the Wastrel son I cry, ‘I have sinned!’. Like the Woman of Canaan I fall before you, ‘O merciful, do not despise me!’<a href="#_ftn70" id="_ftnref70"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[70]</span></a>
 
 <span style="color:red">Of the Martyrs</span>
 
 <span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">S</span><span style="color:red"> </span>You have been revealed as truly healers of sufferings of the body and afflictions of the soul, for you courageously gave your bodies up to torments and to violent death, all-praised Martyrs of the Lord; and therefore you are blessed for ever.
 
-<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">H</span><span style="color:red"> </span>The courage of the ChristÂ’s wise Champions, blazing out more brightly than the rays of the sun, by grace abolished the prince of darkness, dispelled the night of godlessness and enlightened the hearts of believers.
+<span style="mso-char-type: symbol; mso-symbol-font-family: Symbol; mso-ascii-font-family: Book Antiqua; mso-hansi-font-family: Book Antiqua; color: red">H</span><span style="color:red"> </span>The courage of the Christ’s wise Champions, blazing out more brightly than the rays of the sun, by grace abolished the prince of darkness, dispelled the night of godlessness and enlightened the hearts of believers.
 
 <span style="color:red">Theotokion</span>
 
@@ -331,7 +331,7 @@ The light-bearing cloud,<a href="#_ftn68" id="_ftnref68"><span class="MsoFootnot
 
 <span style="color: red">I</span> See the lamp shining for those in the darkness of life, see the sweet voiced swallow, that announces Christ, the spring, the great Forerunner, mediator of the old and new covenants; by whose prayers we are always guarded.
 
-<span style="color: red">W</span> As the BridegroomÂ’s friend I now put you forward as ambassador, O Baptist, and I, who have a multitude of sins, cry out to you, Â‘Obtain the cancellation of my debts, All-blessed, and light the lamp of my soul, completely extinguished by indifferenceÂ’.
+<span style="color: red">W</span> As the Bridegroom’s friend I now put you forward as ambassador, O Baptist, and I, who have a multitude of sins, cry out to you, ‘Obtain the cancellation of my debts, All-blessed, and light the lamp of my soul, completely extinguished by indifference’.
 
 <span style="color: red">S</span> With bodiless Angels, with revered Apostles, with holy Champions, and with Prophets, O Prophet, ever implore God who is supremely good, that we, who are enriched with you as good protector, may obtain eternal good things.
 
@@ -351,7 +351,7 @@ I have you as intermediary with the God who loves humankind; do not expose my de
 
 <span style="color:red">Aposticha of Lauds. Of Compunction.</span>
 
-Another world awaits you, soul, and a Judge who is to publish all your hidden and dread deeds. So do not stay with things here, but in anticipation cry out to the Judge, Â‘O God, be merciful to me and save me!Â’
+Another world awaits you, soul, and a Judge who is to publish all your hidden and dread deeds. So do not stay with things here, but in anticipation cry out to the Judge, ‘O God, be merciful to me and save me!’
 
 Do not reject me, held fast by sloth, my Saviour. Rouse my thoughts to repentance and show me to be a tried worker of your vineyard, granting the payment of the eleventh hour and your great mercy.<a href="#_ftn73" id="_ftnref73"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[73]</span></a>
@@ -392,11 +392,11 @@ footnote">[74]</span></a> For the fire of the Godhead did not burn up your womb,
 
 <a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[11]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 15:1</span>
 
-<a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[12]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 6:6, Deut. 4:34. The phrase occurs 12 times in the Old Testament; ten of which refer to the deliverance of Israel at the Red Sea. In Deut. 4:34 it is linked, as here, to Â‘wondersÂ’, in Greek *terata.*</span>
+<a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[12]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 6:6, Deut. 4:34. The phrase occurs 12 times in the Old Testament; ten of which refer to the deliverance of Israel at the Red Sea. In Deut. 4:34 it is linked, as here, to ‘wonders’, in Greek *terata.*</span>
 
 <a href="#_ftnref13" id="_ftn13"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[13]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 15:1.</span>
 
-<a href="#_ftnref14" id="_ftn14"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[14]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The throne of the Â‘Ancient of DaysÂ’ in Daniel (7:9) is described as a Â‘throne of fireÂ’, but the allusion here is most probably to Ezekiel 1, the divine Chariot, one of the frequently used types of the Mother of God.. </span>
+<a href="#_ftnref14" id="_ftn14"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[14]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The throne of the ‘Ancient of Days’ in Daniel (7:9) is described as a ‘throne of fire’, but the allusion here is most probably to Ezekiel 1, the divine Chariot, one of the frequently used types of the Mother of God.. </span>
 
 <a href="#_ftnref15" id="_ftn15"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[15]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> These two words are used together by St Sophronios of Jerusalem with reference to the uniting of the divine and human natures of Christ in the incarnation.</span>
 
@@ -405,17 +405,17 @@ footnote">[74]</span></a> For the fire of the Godhead did not burn up your womb,
 <a href="#_ftnref17" id="_ftn17"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[17]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 1:23.</span>
 
 <a href="#_ftnref18" id="_ftn18"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[18]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea of the Forerunner preaching to these in Hades is based on the second part of the<span style="mso-spacerun:
-yes">  </span>so-called *Acts of Pilate*, also known as the *Gospel of Nicodemus*, which was originally a separate work on the Descent of Christ into Hell (1 Peter 3:19) and probably dates from the fifth or sixth century. In this account a great light fills Hades at midnight, to the joy of the Patriarchs and Prophets. Then John the Baptist, who is described as Â‘an ascetic from the wildernessÂ’, comes forward and tells them of his ministry and that Jesus himself is about to enter Hades. </span>
+yes">  </span>so-called *Acts of Pilate*, also known as the *Gospel of Nicodemus*, which was originally a separate work on the Descent of Christ into Hell (1 Peter 3:19) and probably dates from the fifth or sixth century. In this account a great light fills Hades at midnight, to the joy of the Patriarchs and Prophets. Then John the Baptist, who is described as ‘an ascetic from the wilderness’, comes forward and tells them of his ministry and that Jesus himself is about to enter Hades. </span>
 
 <a href="#_ftnref19" id="_ftn19"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[19]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 117:22. The sentence is an exact quotation from the <span style="font-variant:small-caps;">lxx</span>.</span>
 
-<a href="#_ftnref20" id="_ftn20"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[20]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 1 Reigns 2:1. The opening words of the Song of Anna in the <span style="font-variant:small-caps;">lxx</span> are Â‘My heart has been made firm \[in Greek </span>ÃŠstereÃµqh\] in the LordÂ’, and the use of this verb is frequently the only link between the poetic text and the biblical one.
+<a href="#_ftnref20" id="_ftn20"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[20]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 1 Reigns 2:1. The opening words of the Song of Anna in the <span style="font-variant:small-caps;">lxx</span> are ‘My heart has been made firm \[in Greek </span>Êstereõqh\] in the Lord’, and the use of this verb is frequently the only link between the poetic text and the biblical one.
 
 <a href="#_ftnref21" id="_ftn21"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[21]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Galatians 3:13, 4:5.</span>
 
-<a href="#_ftnref22" id="_ftn22"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[22]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea of GodÂ’s people being brought out Â‘from the nationsÂ’ is found a number of times in Ezekiel as well as in Psalm 105:47. It is not used in the NT. The phrase is used frequently in the liturgical texts.</span>
+<a href="#_ftnref22" id="_ftn22"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[22]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea of God’s people being brought out ‘from the nations’ is found a number of times in Ezekiel as well as in Psalm 105:47. It is not used in the NT. The phrase is used frequently in the liturgical texts.</span>
 
-<a href="#_ftnref23" id="_ftn23"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[23]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> There is play in Greek on Â‘deformityÂ’ \[</span><span style="mso-bidi-font-size: 10.0pt">Ã‚morfÃ­a</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">\] and Â‘beauty of formÂ’ \[</span><span style="mso-bidi-font-size: 10.0pt">eÃ›morfÃ­</span><span style="mso-bidi-font-size: 10.0pt">a</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">\].</span>
+<a href="#_ftnref23" id="_ftn23"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[23]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> There is play in Greek on ‘deformity’ \[</span><span style="mso-bidi-font-size: 10.0pt">Âmorfía</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">\] and ‘beauty of form’ \[</span><span style="mso-bidi-font-size: 10.0pt">eÛmorfí</span><span style="mso-bidi-font-size: 10.0pt">a</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">\].</span>
 
 <a href="#_ftnref24" id="_ftn24"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[24]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> cf. Luk. 15:13.</span>
 
@@ -427,16 +427,16 @@ yes">  </span>so-called *Acts of Pilate*, also known as the *Gospel of Nicodemu
 
 <a href="#_ftnref28" id="_ftn28"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[28]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Avvakoum 3:2. The last sentence poses a problem. It is a standard one in both the irmi and troparia of the 4th Ode of many canons, but it is not part of the scriptural text in either Hebrew or Greek, nor are there any variants in the Greek manuscripts.</span>
 
-<a href="#_ftnref29" id="_ftn29"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[29]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The play on words is difficult to render in English. The word in Greek also means Â‘to be sunkÂ’ or Â‘submergedÂ’.</span>
+<a href="#_ftnref29" id="_ftn29"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[29]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The play on words is difficult to render in English. The word in Greek also means ‘to be sunk’ or ‘submerged’.</span>
 
 <a href="#_ftnref30" id="_ftn30"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[30]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 15:13, 22.</span>
 
-<a href="#_ftnref31" id="_ftn31"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[31]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word hardly found at all<span style="mso-spacerun: yes">  </span>in classical Greek, but frequent in the Fathers. It occurs some dozen times in the Old Testament, while in the New, apart from Luke 12:23,<span style="mso-spacerun: yes">  </span>it is only found in St MatthewÂ’s Gospel, seven times. He uses it for St john the BaptistÂ’s Â‘clothing of camelÂ’s hairÂ’ and for the Â‘wedding garmentÂ’ in the parable of the royal marriage feast.</span>
+<a href="#_ftnref31" id="_ftn31"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[31]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word hardly found at all<span style="mso-spacerun: yes">  </span>in classical Greek, but frequent in the Fathers. It occurs some dozen times in the Old Testament, while in the New, apart from Luke 12:23,<span style="mso-spacerun: yes">  </span>it is only found in St Matthew’s Gospel, seven times. He uses it for St john the Baptist’s ‘clothing of camel’s hair’ and for the ‘wedding garment’ in the parable of the royal marriage feast.</span>
 
-<a href="#_ftnref32" id="_ftn32"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[32]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> As Faustus says in MarloweÂ’s play, one drop, even half<span style="mso-spacerun: yes">  </span>a drop of ChristÂ’s blood could save him. St Romanos has a similar passage in the final strophe of his Kontakion on All Martyrs: </span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
+<a href="#_ftnref32" id="_ftn32"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[32]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> As Faustus says in Marlowe’s play, one drop, even half<span style="mso-spacerun: yes">  </span>a drop of Christ’s blood could save him. St Romanos has a similar passage in the final strophe of his Kontakion on All Martyrs: </span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">μικρὸν σταγόνα ἐκ τοῦ πνεύματος ὥσπερ ὄμβρον κατάπεμψον, δέομαι, </span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:
-10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">Â‘A small drop of your spirit send down </span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt">like rain, I begÂ’. A homily on the Pharisee and the Harlot attributed to St Kohn Chrysostom speaks of </span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
+10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">‘A small drop of your spirit send down </span><span style="font-size:12.0pt;
+mso-bidi-font-size:10.0pt">like rain, I beg’. A homily on the Pharisee and the Harlot attributed to St Kohn Chrysostom speaks of </span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EL">δικαιοσύνης</span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EN-US"> </span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
@@ -445,23 +445,23 @@ mso-ansi-language:EN-US"> </span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL">τινά</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;GR Times New Roman&quot;">, </span><span style="font-size:12.0pt;
-mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">Â‘a drop of justiceÂ’. The Greek Ephrem has a number of similar expressions.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"></span>
+mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">‘a drop of justice’. The Greek Ephrem has a number of similar expressions.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"></span>
 
 <a href="#_ftnref33" id="_ftn33"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[33]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 63:9.</span>
 
 <a href="#_ftnref34" id="_ftn34"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[34]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 3:3 (Isaias 40:3).</span>
 
-<a href="#_ftnref35" id="_ftn35"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[35]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 26:12-13. The text<span style="mso-spacerun: yes">  </span>is from the 5th Biblical canticle. The following verse refers to the dead, who will Â‘not see life; nor will physicians raise themÂ’.</span>
+<a href="#_ftnref35" id="_ftn35"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[35]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 26:12-13. The text<span style="mso-spacerun: yes">  </span>is from the 5th Biblical canticle. The following verse refers to the dead, who will ‘not see life; nor will physicians raise them’.</span>
 
 <a href="#_ftnref36" id="_ftn36"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[36]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 50:13.</span>
 
 <a href="#_ftnref37" id="_ftn37"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[37]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 18:9-14.</span>
 
-<a href="#_ftnref38" id="_ftn38"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[38]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word translated Â‘beaconsÂ’ only occurs in the Old Testament at Genesis 1:14, where it refers to the sun and moon, and at Daniel 12: 3, where it is of the heavenly bodies in general as a simile of Â‘those with understandingÂ’. It is the latter passage that the poet has in mind. The Martyrs are like the Â‘fixed starsÂ’, not the wandering planets. Our Lord, echoing Daniel, compares the just to the sun at Matthew 13:43. There is a play in Greek on Ã‚planeÃ®V, Â‘unwanderingÂ’, Â‘fixedÂ’ and plÃ¡nh in the next phrase, meaning Â‘wanderingÂ’, and hence Â‘errorÂ’. </span>
+<a href="#_ftnref38" id="_ftn38"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[38]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word translated ‘beacons’ only occurs in the Old Testament at Genesis 1:14, where it refers to the sun and moon, and at Daniel 12: 3, where it is of the heavenly bodies in general as a simile of ‘those with understanding’. It is the latter passage that the poet has in mind. The Martyrs are like the ‘fixed stars’, not the wandering planets. Our Lord, echoing Daniel, compares the just to the sun at Matthew 13:43. There is a play in Greek on ÂplaneîV, ‘unwandering’, ‘fixed’ and plánh in the next phrase, meaning ‘wandering’, and hence ‘error’. </span>
 
 <a href="#_ftnref39" id="_ftn39"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[39]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The image changes to that of sacred processions, lighted by torches.</span>
 
-<a href="#_ftnref40" id="_ftn40"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[40]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A difficult troparion. The word literally means Â‘rolledÂ’. It is not common in Greek, and only occurs eleven times in the Old Testament. Its meaning here is unclear. Only two passages may give a clue. Amos 2:13 in Hebrew speaks of a wagon that is Â‘crushedÂ’ under the weight of the sheaves with which it is loaded. The Greek here has Â‘is rolledÂ’. Zachary 9:16 in Greek, followed by the Slavonic, has the mysterious sentence, Â‘And the Lord will save them in that day, his people like sheep, because holy stones are rolled upon the groundÂ’.</span>
+<a href="#_ftnref40" id="_ftn40"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[40]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A difficult troparion. The word literally means ‘rolled’. It is not common in Greek, and only occurs eleven times in the Old Testament. Its meaning here is unclear. Only two passages may give a clue. Amos 2:13 in Hebrew speaks of a wagon that is ‘crushed’ under the weight of the sheaves with which it is loaded. The Greek here has ‘is rolled’. Zachary 9:16 in Greek, followed by the Slavonic, has the mysterious sentence, ‘And the Lord will save them in that day, his people like sheep, because holy stones are rolled upon the ground’.</span>
 
 <a href="#_ftnref41" id="_ftn41"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[41]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the earlier note on Ode 1 of this Canon, 3rd Troparion.</span>
 
@@ -473,25 +473,25 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
 <a href="#_ftnref45" id="_ftn45"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[45]</span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">Cf. Jonas 2:7.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"></span>
 
-<a href="#_ftnref46" id="_ftn46"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[46]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word, diekcÃºsiV, is unattested in classical Greek and only cited in Lampe from MigneÂ’s text of George of PisidiaÂ’s *Hexaemeron*, where the critical edition reads the more usual word *prÃ³cusiV*.</span>
+<a href="#_ftnref46" id="_ftn46"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[46]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word, diekcúsiV, is unattested in classical Greek and only cited in Lampe from Migne’s text of George of Pisidia’s *Hexaemeron*, where the critical edition reads the more usual word *prócusiV*.</span>
 
 <a href="#_ftnref47" id="_ftn47"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[47]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Psalm 131:8.</span>
 
 <a href="#_ftnref48" id="_ftn48"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[48]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matt.3:2.</span>
 
-<a href="#_ftnref49" id="_ftn49"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[49]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The sense of this troparion is not clear. In the Fathers Â‘the abyssÂ’ usually refers to Hades and is pejorative. The word occurs in the 6th Ode, Â‘the final abyss encircled meÂ’(Jonas 3:6).<span style="mso-spacerun: yes">  </span>The verb </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">katadÃºw</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> can be either transitive or intransitive, but the intransitive sense, Â‘to descend intoÂ’, followed by an accusative seems to be limited to Homer. The 1st Aorist, used here, is commonly used transitively. The meaning could possibly be that John Â‘plunged the Abyss (i.e. Christ) in the streamsÂ’, since the verb is used regularly of Baptism, and in Ode 8 we have exactly the same word in the clause, Â‘you plunged ChristÂ’s head in the watersÂ’. On the other hand, although the word Â‘AbyssÂ’ is used positively of Â‘the abyss of GodÂ’s wisdomÂ‘, it does not seem to be used as an image of Christ. </span>
+<a href="#_ftnref49" id="_ftn49"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[49]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The sense of this troparion is not clear. In the Fathers ‘the abyss’ usually refers to Hades and is pejorative. The word occurs in the 6th Ode, ‘the final abyss encircled me’(Jonas 3:6).<span style="mso-spacerun: yes">  </span>The verb </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">katadúw</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> can be either transitive or intransitive, but the intransitive sense, ‘to descend into’, followed by an accusative seems to be limited to Homer. The 1st Aorist, used here, is commonly used transitively. The meaning could possibly be that John ‘plunged the Abyss (i.e. Christ) in the streams’, since the verb is used regularly of Baptism, and in Ode 8 we have exactly the same word in the clause, ‘you plunged Christ’s head in the waters’. On the other hand, although the word ‘Abyss’ is used positively of ‘the abyss of God’s wisdom‘, it does not seem to be used as an image of Christ. </span>
 
 <a href="#_ftnref50" id="_ftn50"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[50]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Daniel 3:26.</span>
 
-<a href="#_ftnref51" id="_ftn51"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[51]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This troparion plays on the word lÃ³goV, Â‘wordÂ’. In Greek Â‘rationalÂ’ and Â‘irrationalÂ’ are logikÃ³V and Ã?logoV and Â‘wordÂ’ is </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">lÃ³goV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
+<a href="#_ftnref51" id="_ftn51"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[51]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This troparion plays on the word lógoV, ‘word’. In Greek ‘rational’ and ‘irrational’ are logikóV and ÁlogoV and ‘word’ is </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">lógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
 
 <a href="#_ftnref52" id="_ftn52"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[52]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 14:2.</span>
 
-<a href="#_ftnref53" id="_ftn53"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[53]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 57:15, Â‘\[t\]he Lord Most High, resting in the holiesÂ’. The Greek is probably neuter and means Â‘in the holy placeÂ’ (cf. Psalm 133:2), but it could also be masculine and mean Â‘among the saintsÂ’. The poet here deliberately plays on this ambiguity.</span>
+<a href="#_ftnref53" id="_ftn53"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[53]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 57:15, ‘\[t\]he Lord Most High, resting in the holies’. The Greek is probably neuter and means ‘in the holy place’ (cf. Psalm 133:2), but it could also be masculine and mean ‘among the saints’. The poet here deliberately plays on this ambiguity.</span>
 
 <a href="#_ftnref54" id="_ftn54"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[54]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matt. 11:11-15.</span>
 
-<a href="#_ftnref55" id="_ftn55"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[55]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matt. 7:13-14, though in the Gospel it the Â‘gateÂ’ that is Â‘narrowÂ’, the word used here. The Â‘roadÂ’ is Â‘constrictedÂ’.</span>
+<a href="#_ftnref55" id="_ftn55"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[55]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matt. 7:13-14, though in the Gospel it the ‘gate’ that is ‘narrow’, the word used here. The ‘road’ is ‘constricted’.</span>
 
 <a href="#_ftnref56" id="_ftn56"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[56]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Pss. 17:20, 117:5, 118:45.</span>
 
@@ -499,17 +499,17 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
 <a href="#_ftnref58" id="_ftn58"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[58]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Genesis 3:1-7.</span>
 
-<a href="#_ftnref59" id="_ftn59"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[59]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the Nicene Creed. The poet, like the Creed, uses the present participle, Â‘is comingÂ’, not a future. The Latin uses the future Â‘will comeÂ’, and this has influenced most, but not all, English versions of the Creed.</span>
+<a href="#_ftnref59" id="_ftn59"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[59]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the Nicene Creed. The poet, like the Creed, uses the present participle, ‘is coming’, not a future. The Latin uses the future ‘will come’, and this has influenced most, but not all, English versions of the Creed.</span>
 
-<a href="#_ftnref60" id="_ftn60"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[60]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Â‘GehennaÂ’ occurs in the Bible twelve times, ten of them in St Matthew, who uses the expression Â‘Gehenna of fireÂ’ (5:22, 18:19. James 3:6 also speaks of the tongue being Â‘set on fire by GehennaÂ’), rather than the one used here.</span>
+<a href="#_ftnref60" id="_ftn60"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[60]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> ‘Gehenna’ occurs in the Bible twelve times, ten of them in St Matthew, who uses the expression ‘Gehenna of fire’ (5:22, 18:19. James 3:6 also speaks of the tongue being ‘set on fire by Gehenna’), rather than the one used here.</span>
 
 <a href="#_ftnref61" id="_ftn61"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[61]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matthew 25:41</span>
 
 <a href="#_ftnref62" id="_ftn62"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[62]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Song of Songs 2:1.</span>
 
-<a href="#_ftnref63" id="_ftn63"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[63]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This title for God, which is found in the Fathers and the liturgical texts, has its origin in Genesis 2:2, where the cognate verb is used, Â‘and the Lord God planted a paradise in EdemÂ’.</span>
+<a href="#_ftnref63" id="_ftn63"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[63]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This title for God, which is found in the Fathers and the liturgical texts, has its origin in Genesis 2:2, where the cognate verb is used, ‘and the Lord God planted a paradise in Edem’.</span>
 
-<a href="#_ftnref64" id="_ftn64"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[64]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 9:5. The original LXX has only this title, the others were added later, to bring the Greek into line with the Hebrew. There is no Â‘AngelÂ’ in Hebrew.</span>
+<a href="#_ftnref64" id="_ftn64"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[64]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 9:5. The original LXX has only this title, the others were added later, to bring the Greek into line with the Hebrew. There is no ‘Angel’ in Hebrew.</span>
 
 <a href="#_ftnref65" id="_ftn65"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[65]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Mat. 8:12.</span>
 
@@ -521,7 +521,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
 <a href="#_ftnref69" id="_ftn69"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[69]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Psalm 71:16, Judges 6:37-40.</span>
 
-<a href="#_ftnref70" id="_ftn70"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[70]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 18:9-14, 7:36-50, 23:39-43, 15:11-32, Matthew 15:21-28. It is interesting to notice that four of these five well known characters are found only in St LukeÂ’s Gospel.</span>
+<a href="#_ftnref70" id="_ftn70"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[70]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 18:9-14, 7:36-50, 23:39-43, 15:11-32, Matthew 15:21-28. It is interesting to notice that four of these five well known characters are found only in St Luke’s Gospel.</span>
 
 <a href="#_ftnref71" id="_ftn71"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[71]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The allusions to the rising sun in this and the preceding troparion refer to Luke 1:78-9, the Canticle of Zachary forming the second part of the 9th biblical Ode.</span>
 
@@ -536,6 +536,6 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -28,6 +28,6 @@ With the exception of the Canon of the Little Paraklesis, none of the texts on t
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

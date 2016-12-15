@@ -20,21 +20,21 @@ Apolytikion. Tone 2.**
 
 **The same.**
 
-These three prophets are of the number of the twelve Minor Prophets, and each of their prophecies is divided into three chapters. Naum was an Elkesite by origin, of the tribe of Symeon, seventh in order. He prophesied in the reign of Ezekias, after the overthrow of Samaria in 721 BC. Avvakoum, whose name is also spelt Avakoum and Amvakoum, is eighth in order, his country and tribe are unclear from holy Scripture. He prophesied in the times of Joachim, who is also called Jechonias, before the migration of the people to Babylon in 599 BC. The fourth Canticle of Matins is the work of Avvakoum: Â‘Lord, I heard your voice and was afraidÂ’. Sophonias, the ninth in order, was son of Chusi, of the tribe of Levi, or according to some a second cousin of king Ezekias. He prophesied in the days of Josias, who reigned from 641-610 BC.
+These three prophets are of the number of the twelve Minor Prophets, and each of their prophecies is divided into three chapters. Naum was an Elkesite by origin, of the tribe of Symeon, seventh in order. He prophesied in the reign of Ezekias, after the overthrow of Samaria in 721 BC. Avvakoum, whose name is also spelt Avakoum and Amvakoum, is eighth in order, his country and tribe are unclear from holy Scripture. He prophesied in the times of Joachim, who is also called Jechonias, before the migration of the people to Babylon in 599 BC. The fourth Canticle of Matins is the work of Avvakoum: ‘Lord, I heard your voice and was afraid’. Sophonias, the ninth in order, was son of Chusi, of the tribe of Levi, or according to some a second cousin of king Ezekias. He prophesied in the days of Josias, who reigned from 641-610 BC.
 
 <span style="letter-spacing:-.1pt"> 4. Of the holy Great Martyr Barbara; and of our venerable Father John of Damascus.</span>
 
 Barbara was from Nikomedia in the time of Maximianos, daughter of an idolater named<span style="mso-spacerun: yes">  </span>Dioskoros, who tortured her inhumanly because of her faith in Christ and finally beheaded her with his own hands in the year 290.
 
-John was from Damascus in Syria, the son of wealthy and devout parents. He was brought up with Kosmas (October 14th), who had been adopted by his own father, Sergios, and with him had become a disciple of a monk also called Kosmas, who had been taken prisoner by some Arabs from Italy, but ransomed by his father. He became a great philosopher and the beacon of his age. He was honoured by the Caliphs (the descendants of Mohammed) with the rank of counsellor, but he soon abandoned this and took the monastic habit in the monastery of St<span style="mso-spacerun: yes">  </span>Savvas, where he was ordained priest. He struggled bravely through his writings against the iconoclasts, Leo the Isaurian and his son Constantine Copronymous. He was surnamed,<span style="mso-spacerun: yes">  </span>Chrysorroas \[Â‘Gold-flowingÂ’\]because of the skill and eloquence of his words, being given the same title as the name of the river which flows by Damascus. He was the originator of systematic and the father of scholastic theology, by his accurate setting out of the orthodox faith. He lived altogether for eighty four years and died in peace in 760. Among his theological writings, his verse and prose hymns and his honey-sweet songs adorn the Church of Christ.
+John was from Damascus in Syria, the son of wealthy and devout parents. He was brought up with Kosmas (October 14th), who had been adopted by his own father, Sergios, and with him had become a disciple of a monk also called Kosmas, who had been taken prisoner by some Arabs from Italy, but ransomed by his father. He became a great philosopher and the beacon of his age. He was honoured by the Caliphs (the descendants of Mohammed) with the rank of counsellor, but he soon abandoned this and took the monastic habit in the monastery of St<span style="mso-spacerun: yes">  </span>Savvas, where he was ordained priest. He struggled bravely through his writings against the iconoclasts, Leo the Isaurian and his son Constantine Copronymous. He was surnamed,<span style="mso-spacerun: yes">  </span>Chrysorroas \[‘Gold-flowing’\]because of the skill and eloquence of his words, being given the same title as the name of the river which flows by Damascus. He was the originator of systematic and the father of scholastic theology, by his accurate setting out of the orthodox faith. He lived altogether for eighty four years and died in peace in 760. Among his theological writings, his verse and prose hymns and his honey-sweet songs adorn the Church of Christ.
 
 **Apolytikia: of the Martyr. Tone 4.**
 
 <span style="letter-spacing:-.1pt"> Let us honour holy Barbara; for she smashed the snares of the foe; and like a sparrow the all-honoured one was delivered from them by the help and weaponry of the Cross.</span>
 
-**Of the Ascetic. Tone 8. OrthodoxyÂ’s guide. \[Common\]**
+**Of the Ascetic. Tone 8. Orthodoxy’s guide. \[Common\]**
 
-<span style="letter-spacing:-.1pt"> OrthodoxyÂ’s guide, teacher of piety and reverence, beacon of the world, fair ornament of monks, inspired by God, O wise John, by your teaching you have enlightened all, O harp of the Spirit; intercede with Christ God that our souls may be saved.</span>
+<span style="letter-spacing:-.1pt"> Orthodoxy’s guide, teacher of piety and reverence, beacon of the world, fair ornament of monks, inspired by God, O wise John, by your teaching you have enlightened all, O harp of the Spirit; intercede with Christ God that our souls may be saved.</span>
 
 **Kontakia: of the Martyr. Tone 4. Lifted up on the Cross.**
 
@@ -46,7 +46,7 @@ John was from Damascus in Syria, the son of wealthy and devout parents. He was b
 
 <span style="letter-spacing:-.1pt"> 5. Of our venerable and god-bearing father Savvas the sanctified.</span>
 
-He was born in 439 in Moutalaski, a little village of Cappadocia; from boyhood he entered the stadium of monastic life, under the trainer Evthymios, the great teacher of the desert. He became the leader of many monks and teacher of the monasteries of Palestine. He went as an envoy to the emperors Anastasios and Justinian the Great, on behalf of the orthodox faith and the doctrines of the Council of Chalcedon. He lived for 93 years and died in 533. The Typikon which is preserved of the Church offices had its origin in the saintÂ’s monastery.
+He was born in 439 in Moutalaski, a little village of Cappadocia; from boyhood he entered the stadium of monastic life, under the trainer Evthymios, the great teacher of the desert. He became the leader of many monks and teacher of the monasteries of Palestine. He went as an envoy to the emperors Anastasios and Justinian the Great, on behalf of the orthodox faith and the doctrines of the Council of Chalcedon. He lived for 93 years and died in 533. The Typikon which is preserved of the Church offices had its origin in the saint’s monastery.
 
 **No work, and permission for wine and oil.**
 
@@ -70,7 +70,7 @@ He flourished under Constantine the Great. He was one of the 318 holy fathers of
 
 **Kontakion. Tone 3. Today the Virgin.**
 
-<span style="letter-spacing:-.1pt"> In Myra, Holy one, you were proved a true priest, for you fulfilled, venerable Father, the gospel of Christ, you laid down your life for you people, you saved the innocent from death; therefore you have been hallowed as a great initiate of GodÂ’s grace.</span>
+<span style="letter-spacing:-.1pt"> In Myra, Holy one, you were proved a true priest, for you fulfilled, venerable Father, the gospel of Christ, you laid down your life for you people, you saved the innocent from death; therefore you have been hallowed as a great initiate of God’s grace.</span>
 
 <span style="letter-spacing:-.1pt"> 7. Of our father among the saints Ambrose, bishop of Milan.</span>
 
@@ -110,11 +110,11 @@ According to the ancient tradition of the Church, Anne, the foremother of God, w
 
 <span style="letter-spacing:-.1pt"> 10. Of the holy martyrs Menas the fair-sounding, Hermogenes and Evgraphos.</span>
 
-Menas was an Athenian by birth, according to the Synaxaristes, a man of rank, education and eloquence, and so he was surnamed Â‘fair-soundingÂ’. Evgraphos was his secretary. Both were of Christian parentage. Hermogenes, who held the rank of Prefect, was born a pagan, but came to the faith of Christ through the wonders of St Menas. All three suffered in Alexandria under Maximin in 235.
+Menas was an Athenian by birth, according to the Synaxaristes, a man of rank, education and eloquence, and so he was surnamed ‘fair-sounding’. Evgraphos was his secretary. Both were of Christian parentage. Hermogenes, who held the rank of Prefect, was born a pagan, but came to the faith of Christ through the wonders of St Menas. All three suffered in Alexandria under Maximin in 235.
 
 **Apolytikion. Tone 8. Taking knowledge.**
 
-<span style="letter-spacing:-.1pt">Having slain the burning assaults and movements of the passions through self-mastery, ChristÂ’s martyrs received grace to drive away the diseases of the sick, and both while living and after death to work wonders. O truly amazing wonder! that bare bones pour out healings. Glory to our God alone.</span>
+<span style="letter-spacing:-.1pt">Having slain the burning assaults and movements of the passions through self-mastery, Christ’s martyrs received grace to drive away the diseases of the sick, and both while living and after death to work wonders. O truly amazing wonder! that bare bones pour out healings. Glory to our God alone.</span>
 
 **Kontakion. Tone 1. The soldiers guarding.**
 
@@ -138,9 +138,9 @@ He was from Marmoutha in Mesopotamia in the reigns of Leo the Great, Zeno and<sp
 
 **Note**
 
-On the eleventh of the present month, if it falls on a Sunday, or on the first one which follows it, because of the nearness of the Nativity of our Lord Jesus Christ, we remember his forebears according to the flesh both before the Law and under the Law; especially the patriarch Abraham, to whom the promise was first given when God said to him: Â‘In your seed all the nations of the earth shall be blessedÂ’ (Gen. 14:3 and 22:18).
+On the eleventh of the present month, if it falls on a Sunday, or on the first one which follows it, because of the nearness of the Nativity of our Lord Jesus Christ, we remember his forebears according to the flesh both before the Law and under the Law; especially the patriarch Abraham, to whom the promise was first given when God said to him: ‘In your seed all the nations of the earth shall be blessed’ (Gen. 14:3 and 22:18).
 
-This promise was given 2039 years before Christ when Abraham was 75 years old. God called him and ordered him to leave his country, parents and relatives and depart to the land of the Canaanites. When he reached there God said to him: Â‘To your seed I shall give this landÂ’ (ibid.7). And so this land was called the Land of Promise, which became the fatherland of the Hebrews. There Abraham, after the passage of 24 years, was given the law of circumcision by God. In his one hundredth year, and the ninetieth of his wife Sara, he begot Isaac. He lived altogether for 175 years and died in peace, old and full of days.
+This promise was given 2039 years before Christ when Abraham was 75 years old. God called him and ordered him to leave his country, parents and relatives and depart to the land of the Canaanites. When he reached there God said to him: ‘To your seed I shall give this land’ (ibid.7). And so this land was called the Land of Promise, which became the fatherland of the Hebrews. There Abraham, after the passage of 24 years, was given the law of circumcision by God. In his one hundredth year, and the ninetieth of his wife Sara, he begot Isaac. He lived altogether for 175 years and died in peace, old and full of days.
 
 <span style="letter-spacing:-.1pt"> Sunday of the holy Ancestors</span>
 
@@ -148,7 +148,7 @@ This promise was given 2039 years before Christ when Abraham was 75 years old. G
 
 <span style="letter-spacing:-.1pt"> You justified the Forefathers by faith, through them betrothing in advance the Church from the nations. The Saints will exult in glory, for from their seed there is a glorious fruit, she who bore you without seed. At their intercessions, O Christ God, save our souls.</span>
 
-**After the 3rd Ode, the YpakoÃ¯. Tone 2.**
+**After the 3rd Ode, the Ypakoï. Tone 2.**
 
 <span style="letter-spacing:-.1pt">The fire was changed to dew for the Children; the lament was altered to joy for the Women; for an Angel was minister in both marvels: changing the furnace to repose for the former, to the latter making known the Resurrection on the third day. Author of our life, Lord glory to you!</span>
 
@@ -158,9 +158,9 @@ This promise was given 2039 years before Christ when Abraham was 75 years old. G
 
 12. Of our father among the Saints Spyridon, Bishop of Tremithus in Cyprus, the wonderworker.
 
-This Godbearing Father of the Church, the great defender of Kekyra and the boast of all the Orthodox, was a Cypriot by birth, simple in manner, humble of heart, and was at first a shepherd. He was married and had a daughter named Irene. After his wifeÂ’s death he was ordained bishop of Tremithus and became shepherd of rational sheep. When the 1st Ecumenical Council of Nicea was summoned he was present and by his very simple words he silenced the Arians who were supremely confident in their wisdom. Through the divine grace which dwelt in him he performed many wonders, so that he received the title Â‘WonderworkerÂ’. He shepherded his flock devoutly and in a manner pleasing to God and died in Cyprus in the year 350. He left his sacred relics in his home country, a comfort to believers and a source of cures.
+This Godbearing Father of the Church, the great defender of Kekyra and the boast of all the Orthodox, was a Cypriot by birth, simple in manner, humble of heart, and was at first a shepherd. He was married and had a daughter named Irene. After his wife’s death he was ordained bishop of Tremithus and became shepherd of rational sheep. When the 1st Ecumenical Council of Nicea was summoned he was present and by his very simple words he silenced the Arians who were supremely confident in their wisdom. Through the divine grace which dwelt in him he performed many wonders, so that he received the title ‘Wonderworker’. He shepherded his flock devoutly and in a manner pleasing to God and died in Cyprus in the year 350. He left his sacred relics in his home country, a comfort to believers and a source of cures.
 
-Around the middle of the 7th century, on account of the attacks of the barbarians his remains were translated to Constantinople, where they remained, honoured by the Emperors. Before the fall of the City, which took place on May 20th, 1453, a priest named George, surnamed Kalochairetis, curate of the church which held his sacred relics, took them together with those of the Augusta Theodora, because of the impending danger, and journeyed through Serbia and went as far as Arta. From there, since the disasters to our race were increasing daily, he took them across to Kekyra in around 1460. The relics of Saint Theodora were given to the people of Kekyra, but those of Saint Spyridon remain to this day a precious treasure for his descendents, a support of believers in orthodoxy and a supernatural marvel for those who see them; because after the passage of 1500 years they remain incorrupt, and the skin preserves its elasticity. Truly Â‘God is wonderful in his saintsÂ’! \[Ps. 87:35\].
+Around the middle of the 7th century, on account of the attacks of the barbarians his remains were translated to Constantinople, where they remained, honoured by the Emperors. Before the fall of the City, which took place on May 20th, 1453, a priest named George, surnamed Kalochairetis, curate of the church which held his sacred relics, took them together with those of the Augusta Theodora, because of the impending danger, and journeyed through Serbia and went as far as Arta. From there, since the disasters to our race were increasing daily, he took them across to Kekyra in around 1460. The relics of Saint Theodora were given to the people of Kekyra, but those of Saint Spyridon remain to this day a precious treasure for his descendents, a support of believers in orthodoxy and a supernatural marvel for those who see them; because after the passage of 1500 years they remain incorrupt, and the skin preserves its elasticity. Truly ‘God is wonderful in his saints’! \[Ps. 87:35\].
 
 **No work, and permission for wine and oil.**
 
@@ -174,9 +174,9 @@ Around the middle of the 7th century, on account of the attacks of the barbarian
 
 <span style="letter-spacing:-.1pt"> 13. Of the holy Martyrs Efstratios, Afxentios, Evgenios, Mardarios and Orestes; and of the holy Virgin Martyr Lucy.</span>
 
-The five Martyrs were Cappadocian by race, of the time of Diocletian, and from their forebears secret worshippers of Christ. But confessing boldly they were tortured in many different ways by Lysias the governor, and three of them died under torture. Efstratios and Orestes however survived and were sent to Sevasteia to Agricola, the governor of all the East, by whose order they were put to death by fire in 296. Efstratios was a distinguished man and trained in rhetoric, first among the dignitaries of Mysios and Chartophylax of the his district. In the Synaxarion he has the Latin title Â‘ScriniariusÂ’. To him is attributed the prayer which is said at the Midnight Office on Saturdays, Â‘Magnifying, I shall magnify you, O LordÂ’Â’ The one said at the 3rd Hour and elsewhere, Â‘God and Master, Father almightyÂ’ is ascribed to Mardarios.
+The five Martyrs were Cappadocian by race, of the time of Diocletian, and from their forebears secret worshippers of Christ. But confessing boldly they were tortured in many different ways by Lysias the governor, and three of them died under torture. Efstratios and Orestes however survived and were sent to Sevasteia to Agricola, the governor of all the East, by whose order they were put to death by fire in 296. Efstratios was a distinguished man and trained in rhetoric, first among the dignitaries of Mysios and Chartophylax of the his district. In the Synaxarion he has the Latin title ‘Scriniarius’. To him is attributed the prayer which is said at the Midnight Office on Saturdays, ‘Magnifying, I shall magnify you, O Lord’’ The one said at the 3rd Hour and elsewhere, ‘God and Master, Father almighty’ is ascribed to Mardarios.
 
-Lucy, which means in Greek Photini \[Â‘LightÂ’\], was from Syracuse in Sicily. She was betrothed to a man, but then refused marriage to him because he was unwilling to believe in Christ. She was denounced to the governor by her own suitor and beheaded in 304.
+Lucy, which means in Greek Photini \[‘Light’\], was from Syracuse in Sicily. She was betrothed to a man, but then refused marriage to him because he was unwilling to believe in Christ. She was denounced to the governor by her own suitor and beheaded in 304.
 
 **Apolytikion. Tone 4. \[Common\]**
 
@@ -205,7 +205,7 @@ But when a most savage persecution was launched against the Christians under Had
 
 **Apolytikion. Tone 4. \[Common\]**
 
-<span style="letter-spacing:-.1pt">You shared their way of life and you succeeded to the ApostlesÂ’ thrones; you found the action, O God-inspired, to climb the heights of contemplation; rightly directing the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Eleftherios; intercede with Christ God that our souls may be saved.</span>
+<span style="letter-spacing:-.1pt">You shared their way of life and you succeeded to the Apostles’ thrones; you found the action, O God-inspired, to climb the heights of contemplation; rightly directing the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Eleftherios; intercede with Christ God that our souls may be saved.</span>
 
 **Kontakion. Tone 2.**
 
@@ -228,7 +228,7 @@ The Prophet with the Three Youths were all from the royal tribe of Juda. In the 
 
 After this Daniel, while still a boy, expounded the mysterious image which Nabuchodonosor had seen in his sleep, consisting of different metals which were crushed and reduced to powder by a stone which was cut, without human hands, from a mountain. He showed clearly through the Mountain the summit of the holiness of the Virgin, and the overshadowing power of the Holy Spirit; through the Stone, the one born of her without seed, Christ, who at his second Coming, when he has smashed as God all the kingdoms of the earth, which are signified by the Image, he will raise up for his faithful his eternal, heavenly kingdom, which has no successor (ibid. 2:31-45).
 
-Subsequently he foresaw precisely and accurately through the number of the well-known seventy Weeks, the time of his manifestation in the Jordan, the beginning of his preaching of the Gospel, the time of his saving Passion and the cessation of the cult according to the Law (ibid. 9:14-27). He depicted excellently the majestic and awesome image of his second Coming, describing in words as with living colours the throne of flame in place, the eternal Judge seated upon it, the fiery river flowing before it, the reckoning of the relentless assize, the opened books of each oneÂ’s deeds, the thousands upon thousands of his ministers, the ten thousands upon ten thousands of those who stand before him (ibid. 7:9-10). He was named by the Angels who appeared to him Â‘Man of desiresÂ’; because manfully despising every desire of the body, even bread itself, that most necessary food, and desiring to know the freedom of his fellow countrymen and their coming restoration, he did not cease to supplicate God, fasting and kneeling in prayer three times a day; for which cause he was cast into the den of lions, after being denounced by his enemies as a transgressor of the royal decree that had been issued on their advice, that none was to worship, none was to ask anything of God, or of any other man, except the king alone, for thirty days. But he shut up the mouths of the lions by divine power, and appeared in their midst like a shepherd among his sheep, and so proved to the godless the power of true religion (ibid. 6:1-13).
+Subsequently he foresaw precisely and accurately through the number of the well-known seventy Weeks, the time of his manifestation in the Jordan, the beginning of his preaching of the Gospel, the time of his saving Passion and the cessation of the cult according to the Law (ibid. 9:14-27). He depicted excellently the majestic and awesome image of his second Coming, describing in words as with living colours the throne of flame in place, the eternal Judge seated upon it, the fiery river flowing before it, the reckoning of the relentless assize, the opened books of each one’s deeds, the thousands upon thousands of his ministers, the ten thousands upon ten thousands of those who stand before him (ibid. 7:9-10). He was named by the Angels who appeared to him ‘Man of desires’; because manfully despising every desire of the body, even bread itself, that most necessary food, and desiring to know the freedom of his fellow countrymen and their coming restoration, he did not cease to supplicate God, fasting and kneeling in prayer three times a day; for which cause he was cast into the den of lions, after being denounced by his enemies as a transgressor of the royal decree that had been issued on their advice, that none was to worship, none was to ask anything of God, or of any other man, except the king alone, for thirty days. But he shut up the mouths of the lions by divine power, and appeared in their midst like a shepherd among his sheep, and so proved to the godless the power of true religion (ibid. 6:1-13).
 
 The Three Youths, when they had refused the worship and cult of the image of Nabuchodonosor (Daniel it would appear was not then present), were cast into the furnace of fire; from which they remained quite unharmed, by the descent of an Angel of God, and walking in its midst, as in a dew, the sang the universal praise of God, which is contained in the 7th and 8th Odes of the Canons. When they emerged from it, they did not even bear the smell of fire on their clothing, and prefigured thus in themselves the incorrupt child-bearing of the Virgin, who received the fire of the Godhead, but her womb was not consumed and she remained as she had been before bearing child, a Virgin (ibid. 3).
 
@@ -252,7 +252,7 @@ Today the Virgin.**
 
 **Another, of the Saints, after the 6th. Tone 2. Model melody.**
 
-<span style="letter-spacing:-.1pt">Not honouring an image traced by human hand, but armed with the breastplate of uncircumÂ­scribed being you were glorified, thrice-blest, in the arena of fire; standing in the midst of insubstantial flame you called on God: Hasten, O full of pity, and come quickly to our help, as you are merciful, for what you will you can perform.</span>
+<span style="letter-spacing:-.1pt">Not honouring an image traced by human hand, but armed with the breastplate of uncircum­scribed being you were glorified, thrice-blest, in the arena of fire; standing in the midst of insubstantial flame you called on God: Hasten, O full of pity, and come quickly to our help, as you are merciful, for what you will you can perform.</span>
 
 **Another, of the Saint. Tone 3. Today the Virgin.**
 
@@ -278,9 +278,9 @@ Tone 2.**
 
 <span style="letter-spacing:-.1pt"> Great are the achievements of faith! In the fountain of flame, as by the water of rest, the holy Martyr Theodore rejoiced; for wholly consumed by fire he was offered to the Trinity like sweet bread. At his intercessions, Christ God, save our souls.</span>
 
-**After the 3rd Ode, YpakoÃ¯. Tone 8.**
+**After the 3rd Ode, Ypakoï. Tone 8.**
 
-<span style="letter-spacing:-.1pt">An Angel turned the furnace of the Youths to dew, while now he halts the womenÂ’s lamentation, saying: Why do you bring sweet spices here? Whom do you seek in a tomb? Christ God has risen, for He is the life and salvation of the human race.</span>
+<span style="letter-spacing:-.1pt">An Angel turned the furnace of the Youths to dew, while now he halts the women’s lamentation, saying: Why do you bring sweet spices here? Whom do you seek in a tomb? Christ God has risen, for He is the life and salvation of the human race.</span>
 
 **After the 6th, Kontakion of the Forefeast. Tone 1.**
 
@@ -288,7 +288,7 @@ Tone 2.**
 
 <span style="letter-spacing:-.1pt"> 19. Of the holy Martyr Boniface.</span>
 
-He lived in the time of Diocletian, around 200, the slave of a Roman lady of senatorial rank, named AglaÃ¯s. He was sent by her to the East to bring thence relics of the holy Martyrs as sanctification. He promised jokingly to bring her his own. He left with some of his fellow slaves for Cilicia, where the Saints were then suffering, and was arrested by the Governor. On his confessing Christ with boldness, he endured the death of martyrdom and so truly kept his promise to his lady, when his fellow slaves brought her his holy remains.
+He lived in the time of Diocletian, around 200, the slave of a Roman lady of senatorial rank, named Aglaïs. He was sent by her to the East to bring thence relics of the holy Martyrs as sanctification. He promised jokingly to bring her his own. He left with some of his fellow slaves for Cilicia, where the Saints were then suffering, and was arrested by the Governor. On his confessing Christ with boldness, he endured the death of martyrdom and so truly kept his promise to his lady, when his fellow slaves brought her his holy remains.
 
 **Apolytikion. Tone 4. \[Common\]**
 
@@ -296,7 +296,7 @@ He lived in the time of Diocletian, around 200, the slave of a Roman lady of sen
 
 <span style="letter-spacing:-.1pt">20. Forefeast of the Nativity according to the flesh of our Lord Jesus Christ; and commemoration of the holy Bishop and Martyr Ignatios the Godbearer.</span>
 
-He was a disciple of John the Divine and a successor of the Apostles, becoming the second bishop of Antioch after Evodos in 68. He was taken to Rome under Trajan and given as fodder to the lions and fulfilled his course of martyrdom in 167 or 109. The remains of his bones were carefully collected by believers and translated to Antioch. He was named<span style="mso-spacerun: yes">  </span>Godbearer because he bore God dwelling in his soul, and his heart was aflame with love of him; for he also said, Â‘I am GodÂ’s wheat, and I am ground by the teeth of wild beasts, that I may become pure breadÂ’ (Eusebius, Eccl. Hist. 3,36).
+He was a disciple of John the Divine and a successor of the Apostles, becoming the second bishop of Antioch after Evodos in 68. He was taken to Rome under Trajan and given as fodder to the lions and fulfilled his course of martyrdom in 167 or 109. The remains of his bones were carefully collected by believers and translated to Antioch. He was named<span style="mso-spacerun: yes">  </span>Godbearer because he bore God dwelling in his soul, and his heart was aflame with love of him; for he also said, ‘I am God’s wheat, and I am ground by the teeth of wild beasts, that I may become pure bread’ (Eusebius, Eccl. Hist. 3,36).
 
 **Permission for wine and oil.**
 
@@ -306,7 +306,7 @@ He was a disciple of John the Divine and a successor of the Apostles, becoming t
 
 **Of the Saint. Tone 8.**
 
-<span style="letter-spacing:-.1pt"> You shared their way of life and you succeeded to the ApostlesÂ’ thrones; you found the practice, O God-inspired, to climb the heights of contemplation; rightly proclaiming the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Ignatios; intercede with Christ God that our souls may be saved.</span>
+<span style="letter-spacing:-.1pt"> You shared their way of life and you succeeded to the Apostles’ thrones; you found the practice, O God-inspired, to climb the heights of contemplation; rightly proclaiming the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Ignatios; intercede with Christ God that our souls may be saved.</span>
 
 **After the 3rd Ode. Kontakion of the Forefeast. Tone 3.
 Model Melody.**
@@ -327,7 +327,7 @@ She was from Nikomedia in the time of Maximian, the daughter of wealthy parents.
 
 <span style="letter-spacing:-.1pt"> 22. Of the holy Great Martyr Anastasia the Healer of Wounds \[Pharmakolytria\].</span>
 
-She was from Rome, a virgin of great beauty, wealthy and distinguished, the daughter of Prepexastus and Fausta. By the latter she was taught the Christian faith. She was married to a man of dissolute life and godless opinions, named Publius Patricius, but was soon left a widow. After this she would go secretly round the houses of the poor and the prisons of ChristÂ’s Martyrs, bringing them what they needed, tending their wounds, and loosing their bonds and healing their pains. As a result she was surnamed Pharmakolytria. When her activities became known she was arrested by DiocletianÂ’s officers, and after many other torments she died by fire in 290.
+She was from Rome, a virgin of great beauty, wealthy and distinguished, the daughter of Prepexastus and Fausta. By the latter she was taught the Christian faith. She was married to a man of dissolute life and godless opinions, named Publius Patricius, but was soon left a widow. After this she would go secretly round the houses of the poor and the prisons of Christ’s Martyrs, bringing them what they needed, tending their wounds, and loosing their bonds and healing their pains. As a result she was surnamed Pharmakolytria. When her activities became known she was arrested by Diocletian’s officers, and after many other torments she died by fire in 290.
 
 **Apolytikion. Tone 4. \[Common\]**
 
@@ -347,24 +347,24 @@ They came from different towns and villages of the island of Crete and suffered 
 
 **Kontakion. Tone 4. You have appeared today.**
 
-<span style="letter-spacing:-.1pt"> The morning star has shone, the MartyrsÂ’ honoured struggle, shedding light for beforehand on the one hidden in the Cave, whom the Virgin bore without seed.</span>
+<span style="letter-spacing:-.1pt"> The morning star has shone, the Martyrs’ honoured struggle, shedding light for beforehand on the one hidden in the Cave, whom the Virgin bore without seed.</span>
 
 <span style="letter-spacing:-.1pt"> 24. Of the holy Virgin Martyr Evgenia.</span>
 
-She was from Rome, the daughter of most distinguished and noble parents, Philip and Evgenia. Without their knowledge, she took two of her servants, Protas and Hyacinth, and left the house by night. Wearing a manÂ’s clothing and changing her name to Evgenios, she went away with them and lived as a monk in a manÂ’s monastery. All three died as martyrs in the time of Commodus, who reigned from 180-192.
+She was from Rome, the daughter of most distinguished and noble parents, Philip and Evgenia. Without their knowledge, she took two of her servants, Protas and Hyacinth, and left the house by night. Wearing a man’s clothing and changing her name to Evgenios, she went away with them and lived as a monk in a man’s monastery. All three died as martyrs in the time of Commodus, who reigned from 180-192.
 
 **Eve of the Nativity of Christ.
 Apolytikion of the Forefeast. Tone 4.**
 
-<span style="letter-spacing:-.1pt">Mary once, with aged Joseph, went to be enrolled in Bethlehem, for he was of DavidÂ’s line; and she bore in her womb fruit unsown; the time for the birth was at hand, and there was no room in the inn; but the Cave proved a fair place for the Queen. Christ is born, to raise up his image that before had fallen.</span>
+<span style="letter-spacing:-.1pt">Mary once, with aged Joseph, went to be enrolled in Bethlehem, for he was of David’s line; and she bore in her womb fruit unsown; the time for the birth was at hand, and there was no room in the inn; but the Cave proved a fair place for the Queen. Christ is born, to raise up his image that before had fallen.</span>
 
 **25. The Nativity according to the flesh of our Lord and God and Saviour Jesus Christ.**
 
 <img src="NatCyp01a.gif" width="167" height="251" />
 
-The incomprehensible and inexplicable Nativity of Christ took place according to the chronology of the Eastern Church in the year 5508 from the creation of the world, when Herod the Great was reigning in Judea. He was from Ascalon on his motherÂ’s side and from Idumea on his fatherÂ’s, and altogether a stranger to the race of Jacob, receiving his kingdom from the Emperors of Rome. He ruled over the Jewish people for 33 years. The former royal tribe of Juda had been deprived of its rights and stripped of all rule and authority. It was in these circumstances for the Jews that the expected Messiah was born, and the prophecy spoken 1807 years earlier by the Patriarch Jacob was unerringly fulfilled: There will not lack a ruler from Juda, nor a leader from his loins until he for whom it is intended comes, and he is the expectation of nations (Gen. 49:10).
+The incomprehensible and inexplicable Nativity of Christ took place according to the chronology of the Eastern Church in the year 5508 from the creation of the world, when Herod the Great was reigning in Judea. He was from Ascalon on his mother’s side and from Idumea on his father’s, and altogether a stranger to the race of Jacob, receiving his kingdom from the Emperors of Rome. He ruled over the Jewish people for 33 years. The former royal tribe of Juda had been deprived of its rights and stripped of all rule and authority. It was in these circumstances for the Jews that the expected Messiah was born, and the prophecy spoken 1807 years earlier by the Patriarch Jacob was unerringly fulfilled: There will not lack a ruler from Juda, nor a leader from his loins until he for whom it is intended comes, and he is the expectation of nations (Gen. 49:10).
 
-Our Saviour was born in Bethlehem, a city of Judea, to which Joseph had gone up from Nazareth in Galilee, taking with him Mary, his espoused, who was with child, that they too might be enrolled, according to the decree that had been issued in those days from the then ruling emperor Augustus Caesar, among his subjects. When the time for the birth came, and because, and because, owing to the great numbers of people who had arrived, there was not sufficient room in the public inn, the VirginÂ’s condition made it necessary for her to enter a cave near Bethlehem and into a stable used for animals, where she gave birth and wrapped the babe in swaddling clothes when it was born, and laid him in a manger (Lk. 2:1.7). From this there arose the tradition that when he was born Christ was laid between two animals, an ox and an ass. As the words of the Prophets appear also to justify: In the midst of two animals you will be known (Hab. 3:2) and The ox knows its owner and the ass its lordÂ’s manger (Is. 1:3); even though these animals are understood tropologically by the interpreters for those who believed from among the Jews and the nations, or according to another more natural understanding.
+Our Saviour was born in Bethlehem, a city of Judea, to which Joseph had gone up from Nazareth in Galilee, taking with him Mary, his espoused, who was with child, that they too might be enrolled, according to the decree that had been issued in those days from the then ruling emperor Augustus Caesar, among his subjects. When the time for the birth came, and because, and because, owing to the great numbers of people who had arrived, there was not sufficient room in the public inn, the Virgin’s condition made it necessary for her to enter a cave near Bethlehem and into a stable used for animals, where she gave birth and wrapped the babe in swaddling clothes when it was born, and laid him in a manger (Lk. 2:1.7). From this there arose the tradition that when he was born Christ was laid between two animals, an ox and an ass. As the words of the Prophets appear also to justify: In the midst of two animals you will be known (Hab. 3:2) and The ox knows its owner and the ass its lord’s manger (Is. 1:3); even though these animals are understood tropologically by the interpreters for those who believed from among the Jews and the nations, or according to another more natural understanding.
 
 But while the earth received the Saviour so poorly at his birth, from above heaven celebrated with magnificence his coming to save the world. Some shepherds in the region of Bethlehem, who were keeping a night watch over their sheep, were suddenly surrounded by an extraordinary light and saw before them an Angel bringing them the good tidings of the joyful birth of the Lord. And immediately, after the one Angel, they saw and heard the whole host of the heavenly Powers praising God and saying: Glory to God in the highest, and on earth peace, good-will among men (Lk. 2:8-14).
 
@@ -374,7 +374,7 @@ But while the earth received the Saviour so poorly at his birth, from above heav
 
 <span style="letter-spacing:-.1pt"> Your Nativity, O Christ our God, has made the light of knowledge dawn upon the world, for thereby those who adored the stars were taught by a star to worship you, the Sun of justice, and to know you the Dayspring from on high. Lord, glory to you!</span>
 
-**After the 3rd Ode, the YpakoÃ¯. Tone 8.**
+**After the 3rd Ode, the Ypakoï. Tone 8.**
 
 <span style="letter-spacing:-.1pt">Heaven brings you, the Infant lying in a manger, the first fruits of the nations, by summoning the Magi through a star; sceptres and thrones did not amaze them, but utter poverty; for what is more wretched than a cave? What more lowly than swaddling clothes? By these the wealth of your Godhead shone out. Lord, glory to you!</span>
 
@@ -386,7 +386,7 @@ Today the Virgin gives birth to him who is above all being, and the earth offers
 
 This Assembly, which our gathering to sing the glory of the Mother of God, takes place fittingly particularly for her as the one who gave birth beyond nature to the Son and Word of God, and became the instrument of the salvation of humanity.
 
-The godly Efthymios flourished at the time of the 7th Ecumenical Council in 787, at which he was also present, which was the second assembled in Nicea. Having been driven from his throne because of his veneration of the holy ikons and endured chains and scourges, he died a martyrÂ’s death in a in a remote corner of Bithynia, called Akriti, to which he had been banished by Michael Travlos, who reigned from 820-829.
+The godly Efthymios flourished at the time of the 7th Ecumenical Council in 787, at which he was also present, which was the second assembled in Nicea. Having been driven from his throne because of his veneration of the holy ikons and endured chains and scourges, he died a martyr’s death in a in a remote corner of Bithynia, called Akriti, to which he had been banished by Michael Travlos, who reigned from 820-829.
 
 **Apolytikion of the Feast.**
 
@@ -396,11 +396,11 @@ The godly Efthymios flourished at the time of the 7th Ecumenical Council in 787,
 
 **NOTICE**
 
-<span style="letter-spacing:-.1pt">**From the 26th of the present month until the end of it, on whatever date Sunday falls, we celebrate the memory of Saint Joseph, the VirginÂ’s Betrothed, David, the Prophet and king, and James the Brother of God. If no Sunday falls between these dates, we celebrate it on the 26th.**</span>
+<span style="letter-spacing:-.1pt">**From the 26th of the present month until the end of it, on whatever date Sunday falls, we celebrate the memory of Saint Joseph, the Virgin’s Betrothed, David, the Prophet and king, and James the Brother of God. If no Sunday falls between these dates, we celebrate it on the 26th.**</span>
 
-Joseph was the son of Jacob, son in law and subsequently son of Eli (who is also called Eliakim and Joachim), and he is the father of the Virgin Mary (Matt. 1:16. Luke 3:23). He was of the tribe of Juda and the family of David, and was an inhabitant of Nazareth, by trade a carpenter, in age an old man when he was betrothed to the Virgin in accordance with GodÂ’s good pleasure, so that he might serve her at the great Mystery of the incarnate dispensation of God. He died, according to the tradition of the Fathers, after the twelfth year from the birth of the Lord.
+Joseph was the son of Jacob, son in law and subsequently son of Eli (who is also called Eliakim and Joachim), and he is the father of the Virgin Mary (Matt. 1:16. Luke 3:23). He was of the tribe of Juda and the family of David, and was an inhabitant of Nazareth, by trade a carpenter, in age an old man when he was betrothed to the Virgin in accordance with God’s good pleasure, so that he might serve her at the great Mystery of the incarnate dispensation of God. He died, according to the tradition of the Fathers, after the twelfth year from the birth of the Lord.
 
-David the child and ancestor of God, the great Prophet after Moses, and the first after him to write down his prophecy, being a descendent of Juda was a son of Jesse, born in Bethlehem (which as a result was named the Â‘City of DavidÂ’) in the year 1085 BC. While he was still a lad he was mystically anointed by the Prophet Samuel at GodÂ’s command as king of the Israelites, though Saul was still living, but had already been deprived of divine grace. When he was thirty, after Saul had been slain in war, he was chosen for the royal dignity, at first by his own tribe only but afterwards by the whole Israelite people, and he reigned for forty years. He lived in all seventy years and died in 1015 BC, having previously declared his son Solomon to be his successor.
+David the child and ancestor of God, the great Prophet after Moses, and the first after him to write down his prophecy, being a descendent of Juda was a son of Jesse, born in Bethlehem (which as a result was named the ‘City of David’) in the year 1085 BC. While he was still a lad he was mystically anointed by the Prophet Samuel at God’s command as king of the Israelites, though Saul was still living, but had already been deprived of divine grace. When he was thirty, after Saul had been slain in war, he was chosen for the royal dignity, at first by his own tribe only but afterwards by the whole Israelite people, and he reigned for forty years. He lived in all seventy years and died in 1015 BC, having previously declared his son Solomon to be his successor.
 
 Sunday after the Nativity
 
@@ -414,7 +414,7 @@ Today godly David is filled with gladness and Joseph with James offers praise, f
 
 <span style="color:red">27. Of the holy Protomartyr and Archdeacon Stephen,</span> and of our venerable father and confessor Theodore the Branded.
 
-Stephen was a Jew by birth, a disciple of Gamaliel, the teacher of the law, as some say, first of the seven deacons, whom the Apostles appointed in Jerusalem for the care of the poor and for the distribution to them of alms. He was a man full of faith and the Holy Spirit, working great signs and wonders among the people. He disputed with the Jews concerning Jesus and refuted all their objections so manifestly that no one was able to stand up against the wisdom and spirit with he spoke, and he was accused as a blasphemer and dragged before the Sanhedrin of the elders, before whom, having with boldness demonstrated from the divine Scriptures the coming of the Just One (Jesus), of whom they had become the betrayers and murderers, he rebuked their unbelief and hardness of heart. Finally, fixing his eves on heaven and having gazed upon the glory of God, he said: I see the heavens opened and the Son of Man standing on the right hand of God. On hearing this they stopped their ears, and having thrown him violently out of the city they stoned him, as he cried out and said: Lord Jesus, receive my spirit. Then imitating his MasterÂ’s lack of malice, he knelt on the ground and prayed in a loud voice for those who were stoning him, saying, Â‘Lord, do not hold this sin against themÂ’ And having said this he fell asleep in the Lord in the year 36 (Acts 6:7), becoming the first of the Martyrs of ChristÂ’s Church. Concerning St Theodore. see the 11 October.
+Stephen was a Jew by birth, a disciple of Gamaliel, the teacher of the law, as some say, first of the seven deacons, whom the Apostles appointed in Jerusalem for the care of the poor and for the distribution to them of alms. He was a man full of faith and the Holy Spirit, working great signs and wonders among the people. He disputed with the Jews concerning Jesus and refuted all their objections so manifestly that no one was able to stand up against the wisdom and spirit with he spoke, and he was accused as a blasphemer and dragged before the Sanhedrin of the elders, before whom, having with boldness demonstrated from the divine Scriptures the coming of the Just One (Jesus), of whom they had become the betrayers and murderers, he rebuked their unbelief and hardness of heart. Finally, fixing his eves on heaven and having gazed upon the glory of God, he said: I see the heavens opened and the Son of Man standing on the right hand of God. On hearing this they stopped their ears, and having thrown him violently out of the city they stoned him, as he cried out and said: Lord Jesus, receive my spirit. Then imitating his Master’s lack of malice, he knelt on the ground and prayed in a loud voice for those who were stoning him, saying, ‘Lord, do not hold this sin against them’ And having said this he fell asleep in the Lord in the year 36 (Acts 6:7), becoming the first of the Martyrs of Christ’s Church. Concerning St Theodore. see the 11 October.
 
 **Apolytikion. Tone 4. Speedily anticipate.**
 
@@ -426,7 +426,7 @@ Yesterday the Master came to dwell in the flesh for us, and today the slave leav
 
 28. Of the holy 20,000 Martyrs who were burned to death in Nikomedia.
 
-They were all burned alive in the year 303, in the time of Diocletian and Maximianos, 20,000 of them being gathered in a church on the day of ChristÂ’s Nativity, according to the writer of the Syanaxarion. Eusebios however (Ecclesiastical History II,8,6) says that of the Christians then in Nikomedia in their entirety they were progressively wiped out, some being slaughtered with the sword, others being burned alive, and that by some inexplicable godlike zeal both men and women leapt and threw themselves into the fire.
+They were all burned alive in the year 303, in the time of Diocletian and Maximianos, 20,000 of them being gathered in a church on the day of Christ’s Nativity, according to the writer of the Syanaxarion. Eusebios however (Ecclesiastical History II,8,6) says that of the Christians then in Nikomedia in their entirety they were progressively wiped out, some being slaughtered with the sword, others being burned alive, and that by some inexplicable godlike zeal both men and women leapt and threw themselves into the fire.
 
 **Apolytikion. Tone 2.**
 
@@ -438,9 +438,9 @@ An host that numbers twice ten thousand Martyrs dawns like beacon fire that neve
 
 29. Of the 14,000 holy Infants in Bethlehem who were slain by Herod; and of our venerable Father Marcellus, abbot of the monastery of the Unsleeping ones.
 
-This Herod, the slayer of infants, was the same who was reigning at the time of ChristÂ’s Nativity. In those days certain Magi, that is men of wisdom and power, and possibly kings as well, starting from Persia, or Mesopotomia, or some other distant place, came to Jerusalem seeking the one born as king of Jews, and saying that in the East, where their fatherland was, there had appeared two years earlier an unusual and wondrous star, which, according to an ancient oracle (Numbers 24:17), signified the birth of a great king of the Jews, Â‘and so, following the course of this star, we have comeÂ’, they said, Â‘to worship himÂ’. When Herod heard this he was troubled and the whole city with him. Then, having enquired and been informed by the High Priests and Scribes of the people that according to the prophecies the Christ was to be born in Bethlehem, he sent the Magi there, ordering them that, when they had found the child, they should inform him too, so that, he said, Â‘I too may come and worship himÂ’. The Magi, however, after they had worshipped, returned by divine command, to their own country by another way. Then Herod, enraged, sent and killed all the infants in Bethlehem and its neighbourhood from two years and below, thinking that with them he would certainly have put to death the king that had been born. But the foolish enemy of God was tricked, because the child Jesus with his mother Mary, under the protection of Joseph her Betrothed, fled to Egypt on the order of an Angel. And so those innocent babes became the first Martyrs slain for the sake of Christ; but their bloodthirsty executioner and persecutor of Christ shortly afterwards fell victim to dropsy and, having become wholly rotten and his body infested with worms, he ended his miserable life.
+This Herod, the slayer of infants, was the same who was reigning at the time of Christ’s Nativity. In those days certain Magi, that is men of wisdom and power, and possibly kings as well, starting from Persia, or Mesopotomia, or some other distant place, came to Jerusalem seeking the one born as king of Jews, and saying that in the East, where their fatherland was, there had appeared two years earlier an unusual and wondrous star, which, according to an ancient oracle (Numbers 24:17), signified the birth of a great king of the Jews, ‘and so, following the course of this star, we have come’, they said, ‘to worship him’. When Herod heard this he was troubled and the whole city with him. Then, having enquired and been informed by the High Priests and Scribes of the people that according to the prophecies the Christ was to be born in Bethlehem, he sent the Magi there, ordering them that, when they had found the child, they should inform him too, so that, he said, ‘I too may come and worship him’. The Magi, however, after they had worshipped, returned by divine command, to their own country by another way. Then Herod, enraged, sent and killed all the infants in Bethlehem and its neighbourhood from two years and below, thinking that with them he would certainly have put to death the king that had been born. But the foolish enemy of God was tricked, because the child Jesus with his mother Mary, under the protection of Joseph her Betrothed, fled to Egypt on the order of an Angel. And so those innocent babes became the first Martyrs slain for the sake of Christ; but their bloodthirsty executioner and persecutor of Christ shortly afterwards fell victim to dropsy and, having become wholly rotten and his body infested with worms, he ended his miserable life.
 
-Marcellus was from the city of Apamea in Syria, of a renowned family, distinguished by both virtue and education, and chosen to succeed Saint Alexander in about 430 as abbot of the monastery of the Unsleeping ones. This monastery is so called because the monks are divided into three groups which succeed one another in turn at the daily round of Offices and so praise God unceasingly without any interruption. The originator of this system was the one named Alexander, as the writer of the life of both of them says, Â‘Later he also founded near the mouth of the Black Sea a renowned place of contemplation and introduced a new rule, but which is than those everywhere else, that the succession of hymns to God should never be interrupted, but that by the successive rotation of those celebrating the never silent and unceasing glorification of the Master should be assuredÂ’.
+Marcellus was from the city of Apamea in Syria, of a renowned family, distinguished by both virtue and education, and chosen to succeed Saint Alexander in about 430 as abbot of the monastery of the Unsleeping ones. This monastery is so called because the monks are divided into three groups which succeed one another in turn at the daily round of Offices and so praise God unceasingly without any interruption. The originator of this system was the one named Alexander, as the writer of the life of both of them says, ‘Later he also founded near the mouth of the Black Sea a renowned place of contemplation and introduced a new rule, but which is than those everywhere else, that the succession of hymns to God should never be interrupted, but that by the successive rotation of those celebrating the never silent and unceasing glorification of the Master should be assured’.
 
 **Apolytikion. Tone 1. Be entreated. \[Common\]**
 
@@ -464,7 +464,7 @@ She was from Thessaloniki, daughter of devout and wealthy parents, passing her l
 
 31. Of the venerable Melanie, the Roman.
 
-She was a noblewoman, very wealthy and renowned, descended from a line of Roman Consuls. After the death of her husband and two of her children she left for Egypt to visit the monastics of the mountain of Nitria. She distributed her wealth to those in need there and to the confessors of the faith who were being persecuted by the Arians. She fed 5000 of them for three days. Then, when they were banished to Palestine, she left herself for Jerusalem, and founded a womenÂ’s monastery at her own expense, where she died a holy death in about 410.
+She was a noblewoman, very wealthy and renowned, descended from a line of Roman Consuls. After the death of her husband and two of her children she left for Egypt to visit the monastics of the mountain of Nitria. She distributed her wealth to those in need there and to the confessors of the faith who were being persecuted by the Arians. She fed 5000 of them for three days. Then, when they were banished to Palestine, she left herself for Jerusalem, and founded a women’s monastery at her own expense, where she died a holy death in about 410.
 
 There was another Melanie, granddaughter of the one above, being daughter of her son Publicola, who was prefect of Rome. She was born in 388. She was married and became the mother of two children, but lost both soon afterwards. And so, with the agreement of her husband that they should spend the rest of their lives in self-mastery and purity, and taking with her mother Albina, they left for Africa, where they also saw Saint Augustine. They freed 8000 prisoners, founded two monasteries, one for men and one a hesychasterion for women. Six years later they moved to Jerusalem. Melanie was enclosed in a very narrow little hut on the Mount of Olives and, having worn herself out with fasts and vigils, she died in 434. The writer of the Synaxarion appears to have combined the two Melanies into one.
 
@@ -476,6 +476,6 @@ There was another Melanie, granddaughter of the one above, being daughter of her
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

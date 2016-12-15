@@ -17,16 +17,16 @@ AT GREAT VESPERS
 
 <span style="color:red">Tone 1. Joy of the heavenly hosts.</span>
 
-The one who saw ineffable revelations,<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a> the interpreter of GodÂ’s mysteries on high, the child of Zebedee, in writing for us ChristÂ’s Gospel, taught us to contemplate the Father, the Son and the Spirit.
+The one who saw ineffable revelations,<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a> the interpreter of God’s mysteries on high, the child of Zebedee, in writing for us Christ’s Gospel, taught us to contemplate the Father, the Son and the Spirit.
 
 The lyre of heavenly songs, struck by God, this mystic writer, mouth inspired by God, sweetly sings the song of songs,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> moving his lips like strings and striking with his tongue like a plectrum, and intercedes that we may be saved.
 
-Beloved of God, giving utterance with your tongue, which sounds as the thunder,<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a> to the hidden word of the wisdom of God, aptly opening your lips, you ever cry aloud, Â‘In the beginning was the WordÂ’,<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> and with your torch you guide everyone<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> to knowledge of God.
+Beloved of God, giving utterance with your tongue, which sounds as the thunder,<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a> to the hidden word of the wisdom of God, aptly opening your lips, you ever cry aloud, ‘In the beginning was the Word’,<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> and with your torch you guide everyone<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> to knowledge of God.
 
 Glory. <span style="color:red">Tone 2.
 By Germanos (Some say by Vyzantios)</span>**
 
-Race of mortals, let us, as is fitting, praise the son of thunder,<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> the foundation of divine words, the prince of theology and foremost herald of the true wisdom of the doctrines of God, John the beloved and virgin; for he had the divine unceasingly in himself and said, Â‘In the beginning the WordÂ’<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>, and again that he is inseparably with the Father, and after this that he is equal in being with the FaÂ­ther,<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a> showing us through him the right belief of the Holy Trinity. He showed us that he is creator with the Father, and the one who bears life and true light.<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[9]</span></a> O ecstatic wonder and astounding fact! Because being full of love he became also full of theology, by glory and honour and faith being a foundation of our inÂ­violate faith; through which ,may we obtain the eternal good things on the day of judgement.
+Race of mortals, let us, as is fitting, praise the son of thunder,<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> the foundation of divine words, the prince of theology and foremost herald of the true wisdom of the doctrines of God, John the beloved and virgin; for he had the divine unceasingly in himself and said, ‘In the beginning the Word’<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a>, and again that he is inseparably with the Father, and after this that he is equal in being with the Fa­ther,<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[8]</span></a> showing us through him the right belief of the Holy Trinity. He showed us that he is creator with the Father, and the one who bears life and true light.<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[9]</span></a> O ecstatic wonder and astounding fact! Because being full of love he became also full of theology, by glory and honour and faith being a foundation of our in­violate faith; through which ,may we obtain the eternal good things on the day of judgement.
 
 Both now. <span style="color:red">Theotokion. Same Tone.</span>
 
@@ -47,7 +47,7 @@ Beloved, if God so loved us, we also ought to love one another. No one has ever 
 The reading is from the 1st Epistle General of John.
 <span style="color:red">(4,20-21; 5,1-5)</span>**
 
-Beloved, anyone who says, Â‘I love God,Â’ and hates their brother, is a liar; for one who does not love the brother whom they have seen, how can they love God whom they have not seen? And this commandment we have from him: that one who loves God must love their brother also. Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the one who has begotten loves also the one who has been begotten of him. By this we know that we love the children of God, when we love God and keep his commandments. For this is the love of God, that we keep his comÂ­mandments. And his commandÂ­ments are not heavy. Because everything that has been born of God conquers the world. And this is the victory that has conquered the world, our faith. Who is the one who conquers the world, if not the one who believes that Jesus is the Son of God?
+Beloved, anyone who says, ‘I love God,’ and hates their brother, is a liar; for one who does not love the brother whom they have seen, how can they love God whom they have not seen? And this commandment we have from him: that one who loves God must love their brother also. Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the one who has begotten loves also the one who has been begotten of him. By this we know that we love the children of God, when we love God and keep his commandments. For this is the love of God, that we keep his com­mandments. And his command­ments are not heavy. Because everything that has been born of God conquers the world. And this is the victory that has conquered the world, our faith. Who is the one who conquers the world, if not the one who believes that Jesus is the Son of God?
 
 <span style="color:red">At the Liti, Idiomel stichera.
 Tone 1. By Germanos.**</span>
@@ -56,7 +56,7 @@ Rivers of theology poured from your honoured mouth, O Apostle, watered from whic
 
 <span style="color:red">Same Tone. By Andrew of Pyros.</span>
 
-The plant of purity, the myrrh of sweet fragrance has dawned for us again at this present Feast. Cry out to him, Â‘You leant on the MasterÂ’s breast<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[14]</span></a> and rained down the word on the world, Apostle John, who guarded the Virgin as the apple of your eye. Ask of Christ for us his great mercyÂ’.
+The plant of purity, the myrrh of sweet fragrance has dawned for us again at this present Feast. Cry out to him, ‘You leant on the Master’s breast<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[14]</span></a> and rained down the word on the world, Apostle John, who guarded the Virgin as the apple of your eye. Ask of Christ for us his great mercy’.
 
 <span style="color:red">Same Tone.</span>
 
@@ -73,7 +73,7 @@ The summit of the Apostles, the trumpet of theology, the spiritual general, who 
 
 Glory.<span style="color:red"> Tone 4. By Vyzantios.</span>
 
-As you leant on the breast of the Teacher Christ at the LordÂ’s supper,<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:
+As you leant on the breast of the Teacher Christ at the Lord’s supper,<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[17]</span></a> beloved Disciple, you learnt there ineffable things, and you thundered to all the heavenly utterance: In the beginning was the Word, and the Word was with God and the Word was God; the true light that enlightens every one who comes into the world,<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[18]</span></a> Christ God, and the Saviour of our souls.
 
@@ -96,11 +96,11 @@ Ascending the heights of theology, you were initiated into the ineffable mysteri
 
 Glory.<span style="color:red"> Tone 6. By Monk John.</span>
 
-Apostle of Christ, Evangelist, Theologian, you became an initiate of ineffable mysteries and thundered out to us the ineffable docÂ­trines of wisdom, making clear to believers that: In the beginning he was.<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[25]</span></a> And, rejecting the: He was not,<a href="#_ftn26" id="_ftnref26"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[26]</span></a> you refuted the words of the heretics, revealed as bosom and beloved friend, as mighty-voiced Isaias and Moses who saw God.<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[27]</span></a> As you have freedom to speak before God, implore him insistently on behalf of our souls.
+Apostle of Christ, Evangelist, Theologian, you became an initiate of ineffable mysteries and thundered out to us the ineffable doc­trines of wisdom, making clear to believers that: In the beginning he was.<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[25]</span></a> And, rejecting the: He was not,<a href="#_ftn26" id="_ftnref26"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[26]</span></a> you refuted the words of the heretics, revealed as bosom and beloved friend, as mighty-voiced Isaias and Moses who saw God.<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[27]</span></a> As you have freedom to speak before God, implore him insistently on behalf of our souls.
 
 Both now. <span style="color:red">Theotokion.</span>
 
-My Maker and Redeemer, Christ the Lord, coming forth from your womb, O All-pure, clothed himself in me and freed Adam from the former curse;<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[28]</span></a> and so, never silent, we all cry out to you as truly Mother of God and Virgin the AngelÂ’s, Â‘Hail!Â’<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> Hail, Lady, shelter and proÂ­tection and salvation of our souls.
+My Maker and Redeemer, Christ the Lord, coming forth from your womb, O All-pure, clothed himself in me and freed Adam from the former curse;<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[28]</span></a> and so, never silent, we all cry out to you as truly Mother of God and Virgin the Angel’s, ‘Hail!’<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> Hail, Lady, shelter and pro­tection and salvation of our souls.
 
 <span style="color:red">Apolytikion. Tone 2.</span>
 
@@ -108,7 +108,7 @@ Beloved Apostle of Christ our God, hasten, deliver a people without defence. As 
 
 Glory. Both now.<span style="color:red"> Theotokion.</span>
 
-All your mysteries are beyond understanding, all beyond glory, O Mother of God; sealed in purity and guarded in virginity you were recognised to be truly a Mother, in giving birth to the true God: imÂ­plore him that our souls may be saved.
+All your mysteries are beyond understanding, all beyond glory, O Mother of God; sealed in purity and guarded in virginity you were recognised to be truly a Mother, in giving birth to the true God: im­plore him that our souls may be saved.
 
 <span style="color:red">And Dismissal.</span>
 
@@ -129,11 +129,11 @@ The Wisdom and Word you conceived in your womb, O Mother of God, and you bore fo
 
 **Same melody.**
 
-Having abandoned the deep of fishing, O all-praised, you caught all the naÂ­tions like fishes with the rod of the Cross; for as Christ had said to you, you were named a fisher of men,<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[33]</span></a> catching them for true religion; therefore you sowed the knowledge of the Word of God and made Patmos and Ephesus fruitful by your words. Theologian, Apostle, intercede with Christ God to bestow forgiveness of faults on those who feast with love your holy memory.
+Having abandoned the deep of fishing, O all-praised, you caught all the na­tions like fishes with the rod of the Cross; for as Christ had said to you, you were named a fisher of men,<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[33]</span></a> catching them for true religion; therefore you sowed the knowledge of the Word of God and made Patmos and Ephesus fruitful by your words. Theologian, Apostle, intercede with Christ God to bestow forgiveness of faults on those who feast with love your holy memory.
 
 **Theotokion.**
 
-I consider the judgement and I quail, for, wretch that I am, I have done deeds of shame, and I ask, all-praised Mother of God: Before the night of death overtakes me, turn me back, guiding me to the way of repentance, that with thanksgiving I may worship and hymn your measureless power and your divine assistance, All-holy Bride of God, as you inÂ­tercede with Christ God for what I ask of you: that there may be given me pardon of sins and his great mercy.
+I consider the judgement and I quail, for, wretch that I am, I have done deeds of shame, and I ask, all-praised Mother of God: Before the night of death overtakes me, turn me back, guiding me to the way of repentance, that with thanksgiving I may worship and hymn your measureless power and your divine assistance, All-holy Bride of God, as you in­tercede with Christ God for what I ask of you: that there may be given me pardon of sins and his great mercy.
 
 <span style="color:red">Selection at the Polyeleos.</span>
 
@@ -147,7 +147,7 @@ I consider the judgement and I quail, for, wretch that I am, I have done deeds o
 
 <span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">You will establish them as rulers over all the earth.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">For GodÂ’s mighty men of the earth are greatly exalted.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">For God’s mighty men of the earth are greatly exalted.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The God of gods has spoken and summoned the earth.</span>
 
@@ -203,7 +203,7 @@ I consider the judgement and I quail, for, wretch that I am, I have done deeds o
 
 **After the Polyeleos, Kathisma. Same melody.**
 
-Leaning on JesusÂ’ breast, gaining boldness as a disciple, you asked, Â‘Who is your betrayer, Lord?Â’ And as to one beloved, glorious Apostle, he was clearly shown to you through the bread.<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> Therefore too, as an initiate of ineffable things, you teach the ends of the earth the incarnation of the Word. Theologian, Apostle, intercede with Christ God to bestow forgiveness of faults on those who feast with love your holy memory.
+Leaning on Jesus’ breast, gaining boldness as a disciple, you asked, ‘Who is your betrayer, Lord?’ And as to one beloved, glorious Apostle, he was clearly shown to you through the bread.<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> Therefore too, as an initiate of ineffable things, you teach the ends of the earth the incarnation of the Word. Theologian, Apostle, intercede with Christ God to bestow forgiveness of faults on those who feast with love your holy memory.
 
 **Theotokion.**
 
@@ -225,13 +225,13 @@ At the prayers of the Apostle, O Merciful One, blot out the multitude of my tran
 
 Both now.
 
-At the prayers of the Mother of God, O Merciful One, blot out the multitude of my transÂ­gressions.
+At the prayers of the Mother of God, O Merciful One, blot out the multitude of my trans­gressions.
 
 Have mercy one me, O God, in accordance with your great mercy and in accordance with the multitude of your compassion blot out the multitude of my transgressions.
 
 **Then the Idiomel. Tone 2.**
 
-Theologian, Virgin, beloved Disciple of the Saviour, by your inÂ­tercessions save us, we implore, from every kind of harm; for we are your flock.
+Theologian, Virgin, beloved Disciple of the Saviour, by your in­tercessions save us, we implore, from every kind of harm; for we are your flock.
 
 <span style="color:red">The Canons, of the Mother of God, and two of the Apostle.</span>
 
@@ -241,7 +241,7 @@ By Theophanes.</span>
 
 **Ode 1. Tone 2. The Irmos.**
 
-His overwhelming power once smothered in the deep all PharaoÂ’s host; while the incarnate Word, the glorified Lord, has wiped out malignant sin: for he has been greatly glorified.<a href="#_ftn35" id="_ftnref35"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[35]</span></a>
+His overwhelming power once smothered in the deep all Pharao’s host; while the incarnate Word, the glorified Lord, has wiped out malignant sin: for he has been greatly glorified.<a href="#_ftn35" id="_ftnref35"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[35]</span></a>
 
 **Troparia**
 
@@ -250,7 +250,7 @@ His overwhelming power once smothered in the deep all PharaoÂ’s host; while t
  
 
 **W**hile, in the words of the psalm, you stand, pure Virgin, as Queen on the right-hand of the King<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[36]</span></a> who shone forth from your womb, beÂ­seech him to make me stand at his right hand on the day of recompense,<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[37]</span></a> O Bride of God.
+footnote">[36]</span></a> who shone forth from your womb, be­seech him to make me stand at his right hand on the day of recompense,<a href="#_ftn37" id="_ftnref37"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[37]</span></a> O Bride of God.
 
 **V**irgin, you wholly renewed the nature of mortals, dried up by every offence, in giving birth to the heavenly rain. But, I beg, show the dried up furrow of my soul to be fruitful, O Bride of God.
 
@@ -271,7 +271,7 @@ Having received knowledge of heavenly things, with true theology you proclaimed 
 The choir of godly maidens, greatly inspired, sing of you as beautiful among women, O Lady Mother of God, made lovely with the beauties of the Godhead; for beyond reason you bore the Word who creates beauty.
 
 **A second Canon of the Saint, of which the acrostic is:
-**<span style="color:windowtext">I bring to GodÂ’s Initiate a sixth plea. Joseph.</span>
+**<span style="color:windowtext">I bring to God’s Initiate a sixth plea. Joseph.</span>
 
 **Ode 1. Tone 6.
 Crossing the sea as on dry land.**
@@ -304,7 +304,7 @@ The desert, the barren Church from the nations, flowered like a lily at your com
 
 **Of the Saint. The same Irmos.**
 
-With your theologianÂ’s tongue, John blessed by God, you revealed the mystery beyond understanding of the Trinity, by which my heart has been established.<a href="#_ftn41" id="_ftnref41"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[41]</span></a>
+With your theologian’s tongue, John blessed by God, you revealed the mystery beyond understanding of the Trinity, by which my heart has been established.<a href="#_ftn41" id="_ftnref41"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[41]</span></a>
 
 Your tongue became the pen of a scribe,<a href="#_ftn42" id="_ftnref42"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[42]</span></a> the All-holy Spirit, writing for God as it recorded the honoured and divine Gospel.
 
@@ -332,7 +332,7 @@ O Mother of God, as living and ungrudging source, establish those united in spir
 
 **Kathisma. Tone 8. The Wisdom and Word.**
 
-Leaning on WisdomÂ’s breast<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[45]</span></a> and learning knowledge from the Word, with inspiration you thundered: In the beginning was the Word;<a href="#_ftn46" id="_ftnref46"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[46]</span></a> being the first fairly to write of the begetting without beginning and to announce to all the incarnation of the Word; therefore too with your tongue you caught the nations in a net and you teach the ends of the earth the grace of the Holy Spirit. Theologian, Apostle, intercede with Christ God to bestow forgiveness of faults on those who feast with love your holy memory.
+Leaning on Wisdom’s breast<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[45]</span></a> and learning knowledge from the Word, with inspiration you thundered: In the beginning was the Word;<a href="#_ftn46" id="_ftnref46"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[46]</span></a> being the first fairly to write of the begetting without beginning and to announce to all the incarnation of the Word; therefore too with your tongue you caught the nations in a net and you teach the ends of the earth the grace of the Holy Spirit. Theologian, Apostle, intercede with Christ God to bestow forgiveness of faults on those who feast with love your holy memory.
 
 **Theotokion.**
 
@@ -356,7 +356,7 @@ Fittingly the Word declared you a theologian, O most excellent, for he initiated
 
 Having gained a mind inspired by God and a virgin body, most sacred and glorious Apostle, you were named a living and animate temple and dwelling of the all-hymned Trinity.
 
-Blessed Virgin, you were honÂ­oured with sonship of the Immaculate Virgin, were declared brother of the one who chose you for himself and perfected you as disciple and theologian.
+Blessed Virgin, you were hon­oured with sonship of the Immaculate Virgin, were declared brother of the one who chose you for himself and perfected you as disciple and theologian.
 
 **Theotokion.**
 
@@ -409,7 +409,7 @@ Like morning you made the spiritual dawn shine for those on earth, O Apostle, pr
 
 The sacred streams of theology, sacred herald and Apostle, you use to water every soul; therefore I cry to you: Water my heart, wholly dried up by sins.
 
-I have been struck by the enemyÂ’s darts, by your care, wise Apostle, make me whole, I beg, and direct me to the ways of God, who am ever led astray in pathless places.
+I have been struck by the enemy’s darts, by your care, wise Apostle, make me whole, I beg, and direct me to the ways of God, who am ever led astray in pathless places.
 
 **Theotokion.**
 
@@ -425,7 +425,7 @@ Surrounded by a deep of offences, I call upon the unsearchable deep of your comp
 
 **Troparia**
 
-**L**ady, at the judgement to come, do not point me out as an object of the demonsÂ’ malignant joy, but entreat the Judge, your Son, to look kindly on me.
+**L**ady, at the judgement to come, do not point me out as an object of the demons’ malignant joy, but entreat the Judge, your Son, to look kindly on me.
 
 **K**indling your anger by my thoughts and by my evil and lawless deeds, O Lord, for pardon I bring you your Mother. Take pity, save me.
 
@@ -433,7 +433,7 @@ Surrounded by a deep of offences, I call upon the unsearchable deep of your comp
 
 **Of the Saint. The same Irmos.**
 
-Jesus, my God and Lord, conÂ­tented with your purity and total chastity, O Theologian, made you his brother.<a href="#_ftn50" id="_ftnref50"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[50]</span></a>
+Jesus, my God and Lord, con­tented with your purity and total chastity, O Theologian, made you his brother.<a href="#_ftn50" id="_ftnref50"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[50]</span></a>
 
 Having crowned with sanctity your way of life, you thus with confidence leant on the breast of wisdom, glorious Apostle, and from there drew grace.
 
@@ -443,9 +443,9 @@ The great and godlike torches of your theology enlightened the whole inhabited w
 
 He who stretched taut the heavens<a href="#_ftn51" id="_ftnref51"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[51]</span></a> by his will, made wide another heaven upon earth, you, O immaculate Mother of God, and he dawned from you and appeared.
 
-**Another. Watching lifeÂ’s sea.**
+**Another. Watching life’s sea.**
 
-Truly your theologianÂ’s tongue was like the pen of a swift writer,<a href="#_ftn52" id="_ftnref52"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[52]</span></a> writing well true knowledge and a brand new law, O Theologian, on the tables of our hearts.
+Truly your theologian’s tongue was like the pen of a swift writer,<a href="#_ftn52" id="_ftnref52"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[52]</span></a> writing well true knowledge and a brand new law, O Theologian, on the tables of our hearts.
 
 As a skilled husbandman, wither up at their roots the plants of impiety, glorious Apostle, and plant in my soul the fear of God, which makes the fair fruit of virtues thrive.
 
@@ -453,7 +453,7 @@ The One who came forth from a Virgin clearly named you her son.<a href="#_ftn53"
 
 **Theotokion.**
 
-From you, O all-blameless, God was made known to mortals in the likeness of flesh. Ever implore him, O All-holy, to slay the deÂ­structive thoughts of our flesh.
+From you, O all-blameless, God was made known to mortals in the likeness of flesh. Ever implore him, O All-holy, to slay the de­structive thoughts of our flesh.
 
 **Katavasia.**
 
@@ -472,13 +472,13 @@ To learn wholly the high secrets of heaven, to investigate the depths of the sea
 On the 26th day of the same month, the Translation of the holy, glorious Apostle and Evangelist, bosom friend, virgin, beloved, John the Theologian.
 
 **Verses.
-**<span style="color:windowtext">FatherÂ’s beloved Word you stand beside,
+**<span style="color:windowtext">Father’s beloved Word you stand beside,
 Beloved more than all of the Disciples.
 Passed on the twenty sixth day unto God the child of the thunder.</span>
 
-<span style="mso-bidi-font-size: 10.0pt">He was son of Zebedee and Salome, who was the daughter of Joseph the BeÂ­trothed; for Joseph had four sons, Jacob, Symeon, Juda and Joses, and three daughters, Esther, Martha and Salome, who became the wife of Zebedee and the mother of John; and so our Lord Jesus Christ was the JohnÂ’s uncle, as brother of Salome, JosephÂ’s daughter.</span>
+<span style="mso-bidi-font-size: 10.0pt">He was son of Zebedee and Salome, who was the daughter of Joseph the Be­trothed; for Joseph had four sons, Jacob, Symeon, Juda and Joses, and three daughters, Esther, Martha and Salome, who became the wife of Zebedee and the mother of John; and so our Lord Jesus Christ was the John’s uncle, as brother of Salome, Joseph’s daughter.</span>
 
-<span style="mso-bidi-font-size: 10.0pt">John is the one who leant on ChristÂ’s breast, as greatly loved; and he was also present at the betrayal and at the Cross; when he took the Mother of God to his own home and served her until the Dormition. After the Dormition the holy Apostles cast lots for where each of them should go and preach, and the lot John received was to go to Asia. This upset him, for he knew that he would be much tried at sea, as he foretold to his disciple Prochoros. \[<span style="color:red">There follow a further five pages of small print in double columns.</span>\]</span>
+<span style="mso-bidi-font-size: 10.0pt">John is the one who leant on Christ’s breast, as greatly loved; and he was also present at the betrayal and at the Cross; when he took the Mother of God to his own home and served her until the Dormition. After the Dormition the holy Apostles cast lots for where each of them should go and preach, and the lot John received was to go to Asia. This upset him, for he knew that he would be much tried at sea, as he foretold to his disciple Prochoros. \[<span style="color:red">There follow a further five pages of small print in double columns.</span>\]</span>
 
 At his holy prayers have mercy on us, O God. Amen.
 
@@ -492,13 +492,13 @@ The godless order of a lawless tyrant fanned the soaring flame; but Christ let f
 
 **H**aving given God a body from your virgin blood, you made the human divine, O Virgin; and so by your prayers deliver me who am fouled by the passions and destroyed by the wiles of the foe.
 
-**G**ave a foreshadowing the furnace of your giving birth, O All-blameless; for it did not burn up the Youths, just as the unendurable fire did not consume your womb; thereÂ­fore I beseech you, deliver your servant from the everlasting fire.
+**G**ave a foreshadowing the furnace of your giving birth, O All-blameless; for it did not burn up the Youths, just as the unendurable fire did not consume your womb; there­fore I beseech you, deliver your servant from the everlasting fire.
 
 **Of the Saint, the same Irmos.**
 
 Shining with the outpouring of the divine light, you clearly revealed the Holy Spirit who proceeds from the Father who has no beginning, and rests in the Son as inseparably consubstantial.
 
-In you, blessed Saint, the sun of justice made his dwelling,<span class="MsoFootnoteReference"> <a href="#_ftn58" id="_ftnref58"><span style="mso-special-character:footnote">[58]</span></a></span> making you an ever-moving heaven, and by your theologianÂ’s tongue, Beloved, Christ the highly glorious<a href="#_ftn59" id="_ftnref59"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[59]</span></a> is proclaimed.
+In you, blessed Saint, the sun of justice made his dwelling,<span class="MsoFootnoteReference"> <a href="#_ftn58" id="_ftnref58"><span style="mso-special-character:footnote">[58]</span></a></span> making you an ever-moving heaven, and by your theologian’s tongue, Beloved, Christ the highly glorious<a href="#_ftn59" id="_ftnref59"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[59]</span></a> is proclaimed.
 
 The divine sound, the power of your words has gone out,<a href="#_ftn60" id="_ftnref60"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[60]</span></a> O holy and all-blessed, and your Gospel, higher than the world, has encompassed the whole earth with the greatness of its doctrines.
 
@@ -529,11 +529,11 @@ A fiery furnace once in Babylon, by divine decree, divided its action, burning u
 
 **Troparia**
 
-**F**or what is good, my soul,<span style="mso-spacerun: yes">  </span>be zealous, keep far from wickedness through the harmony of godly deeds, for you have GodÂ’s Mother who intercedes for you as protection of all and who cannot be put to shame, for she is compassionate and loves humankind.
+**F**or what is good, my soul,<span style="mso-spacerun: yes">  </span>be zealous, keep far from wickedness through the harmony of godly deeds, for you have God’s Mother who intercedes for you as protection of all and who cannot be put to shame, for she is compassionate and loves humankind.
 
 **E**ver pure Bearer of God you released humanity from the bond of the ancient condemnation; therefore I implore you, release every bond of wickedness of my heart, binding me with the divine love of the Creator.
 
-**D**eck my heart, made gloomy by the dishonour of offences, with radiance, Mother of God, who gave birth to the splendour of the FatherÂ’s glory,<a href="#_ftn63" id="_ftnref63"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[63]</span></a> and make me a partaker of everlasting glory, that with faith I may glorify you.
+**D**eck my heart, made gloomy by the dishonour of offences, with radiance, Mother of God, who gave birth to the splendour of the Father’s glory,<a href="#_ftn63" id="_ftnref63"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[63]</span></a> and make me a partaker of everlasting glory, that with faith I may glorify you.
 
 **Of the Saint. Same Irmos.**
 
@@ -545,7 +545,7 @@ You have become a radiant votive offering and a godly ornament of the heavenly t
 
 **Theotokion.**
 
-That you might abolish the former curse and the sentence of death of the Foremother of old, you were born, O Word of God, from a Virgin, GodÂ’s Mother, bestowing on all indestructible immortality.
+That you might abolish the former curse and the sentence of death of the Foremother of old, you were born, O Word of God, from a Virgin, God’s Mother, bestowing on all indestructible immortality.
 
 **Another. You were a fount of dew.**
 
@@ -553,11 +553,11 @@ You gained a skilful tongue, blessed saint, and gave life to those dead through 
 
 As another Paradise has your divine house been revealed, O Apostle, delighting the souls of all with wonders as with flowers and dispelling the foul stench of the passions.
 
-O God, my God, attend to me and deliver me each day from foes who assail me and who crush my lowly heart, for I have your godÂ­like Disciple to intercede.
+O God, my God, attend to me and deliver me each day from foes who assail me and who crush my lowly heart, for I have your god­like Disciple to intercede.
 
 **Theotokion.**
 
-O full of GodÂ’s grace, ask Jesus the Saviour, who took his body from your pure blood, to have pity on your servants, and deliver us from eternal punishment.
+O full of God’s grace, ask Jesus the Saviour, who took his body from your pure blood, to have pity on your servants, and deliver us from eternal punishment.
 
 **Katavasia.**
 
@@ -601,15 +601,15 @@ Save from every danger, blessed Theologian, us who with faith call on you for he
 
 **Theotokion.**
 
-Let us now bring to GodÂ’s Mother an outstanding prayer of thanks, and let us now cry out: Hail, most high throne of God; hail cloud of light; hail, paradise, through whom may we be worthy of the delight of Paradise.
+Let us now bring to God’s Mother an outstanding prayer of thanks, and let us now cry out: Hail, most high throne of God; hail cloud of light; hail, paradise, through whom may we be worthy of the delight of Paradise.
 
 **Katavasia.**
 
-Let all born of earth bearing torches, in spirit leap for joy; let the nature of the immaterial spirits honour and celebrate the wondrous saÂ­cred festival of the Mother of God, and let them cry: Hail, all-blessed Mother of God, pure and Ever-Virgin!
+Let all born of earth bearing torches, in spirit leap for joy; let the nature of the immaterial spirits honour and celebrate the wondrous sa­cred festival of the Mother of God, and let them cry: Hail, all-blessed Mother of God, pure and Ever-Virgin!
 
 **Exapostilarion. Women hear.**
 
-Becoming son of thunder<a href="#_ftn74" id="_ftnref74"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[74]</span></a> you proclaimed to mortals: In the beginning was the Word,<a href="#_ftn75" id="_ftnref75"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[75]</span></a> Apostle John; for faithfully leaning on your MasterÂ’s breast<a href="#_ftn76" id="_ftnref76"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[76]</span></a> and drawing thence the streams of theology, you water the whole creation.
+Becoming son of thunder<a href="#_ftn74" id="_ftnref74"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[74]</span></a> you proclaimed to mortals: In the beginning was the Word,<a href="#_ftn75" id="_ftnref75"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[75]</span></a> Apostle John; for faithfully leaning on your Master’s breast<a href="#_ftn76" id="_ftnref76"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[76]</span></a> and drawing thence the streams of theology, you water the whole creation.
 
 **Theotokion.**
 
@@ -620,7 +620,7 @@ Tone 8. O marvellous wonder.**
 
 Blessed and all-wise John, with fervent abundance of the love of Christ you appeared more loved than all Disciples; to the all-seeing Word, who judges the whole inhabited world by just scales of purity and chastity, shining brightly with beauties in body and mind, O blessed of God.
 
-Lying on wisdomÂ’s breast<a href="#_ftn78" id="_ftnref78"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[78]</span></a> you drew forth the streams of theology and watered the world, most excellent John, drying up the sea of godlessness with the knowlÂ­edge of the Trinity, becoming a pillar and living cloud<a href="#_ftn79" id="_ftnref79"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[79]</span></a> guiding us to our heavenly inheritance.
+Lying on wisdom’s breast<a href="#_ftn78" id="_ftnref78"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[78]</span></a> you drew forth the streams of theology and watered the world, most excellent John, drying up the sea of godlessness with the knowl­edge of the Trinity, becoming a pillar and living cloud<a href="#_ftn79" id="_ftnref79"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[79]</span></a> guiding us to our heavenly inheritance.
 
 The flowering of virginity, the acceptable dwelling of revered virtues, instrument of wisdom, the sacred enclosure of the Spirit, the light-bearing mouth of grace, the radiant eye of the Church, all-honoured John, let us now praise with spiritual sons as a servant of Christ.
 
@@ -663,7 +663,7 @@ footnote">[5]</span></a> John 1,9
 footnote">[6]</span></a> Mark 3,17.
 
 <a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[7]</span></a> John 1,1. The word Â‘wasÂ’ is not in the text of the hymn.
+footnote">[7]</span></a> John 1,1. The word ‘was’ is not in the text of the hymn.
 
 <a href="#_ftnref8" id="_ftn8"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[8]</span></a> Cf. John 14,8-11
@@ -756,7 +756,7 @@ footnote">[36]</span></a> Psalm 44,9.
 footnote">[37]</span></a> Matthew 25,33.
 
 <a href="#_ftnref38" id="_ftn38"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[38]</span></a> Cf. John 1,1. St Theophanes uses Â‘BegetterÂ’ rather than Â‘GodÂ’ for metrical reasons.
+footnote">[38]</span></a> Cf. John 1,1. St Theophanes uses ‘Begetter’ rather than ‘God’ for metrical reasons.
 
 <a href="#_ftnref39" id="_ftn39"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[39]</span></a> John 1,1.
@@ -783,7 +783,7 @@ footnote">[45]</span></a> John 13,21; 21,20.
 footnote">[46]</span></a> John 1,1.
 
 <a href="#_ftnref47" id="_ftn47"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[47]</span></a> The last clause, Â‘Glory to your power, O Lord!Â’, is found the fourth Ode of numerous canons. It even occurs in the heading of the fourth canticle in the *Horologion.* It is not, however, as one might have expected, a citation from the scriptural text.
+footnote">[47]</span></a> The last clause, ‘Glory to your power, O Lord!’, is found the fourth Ode of numerous canons. It even occurs in the heading of the fourth canticle in the *Horologion.* It is not, however, as one might have expected, a citation from the scriptural text.
 
 <a href="#_ftnref48" id="_ftn48"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[48]</span></a> 1 Timothy 2,5.
@@ -892,6 +892,6 @@ footnote">[81]</span></a> John 19,34.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

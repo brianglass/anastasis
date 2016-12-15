@@ -24,9 +24,9 @@ Truly you have been revealed, like your name, as a mighty Victory \[
 
 Niki\] of the faithful People \[Laos\] in trials, Holy Nicolas, true servant of Christ; for invoked everywhere you come swiftly to help those who with love take refuge under your protection; for appearing night and day by faith, you save them from trials and calamities.
 
-You appeared to the Emperor Constantine with Avlavios in a dream, and filling them with fear, you spoke to them like this, Â‘Free from imprisonment at once those whom you unjustly hold in chains, for they are innocent of lawless murder. But if, Majesty, you disobey, I will make entreaty against you by beseeching the Lord.Â’
+You appeared to the Emperor Constantine with Avlavios in a dream, and filling them with fear, you spoke to them like this, ‘Free from imprisonment at once those whom you unjustly hold in chains, for they are innocent of lawless murder. But if, Majesty, you disobey, I will make entreaty against you by beseeching the Lord.’
 
-Holy Nicolas, sacred herald of Christ, you are a great and fervent helper for those in dangers, those on land and those who sail, those far off and those nearby, a most compassionate and mighty intercessor. Therefore assembled together we cry, Â‘Intercede to the Lord that we may be rescued from every calamityÂ’.
+Holy Nicolas, sacred herald of Christ, you are a great and fervent helper for those in dangers, those on land and those who sail, those far off and those nearby, a most compassionate and mighty intercessor. Therefore assembled together we cry, ‘Intercede to the Lord that we may be rescued from every calamity’.
 
 ****
 
@@ -37,7 +37,7 @@ With what garlands of praise may I bind the brow of the High Priest? In body he 
 
 With what harmonious songs may we praise the High Priest? Opponent of impiety, champion of orthodoxy; defender of the Church; the great warrior and teacher; the one who put to shame all the heretics; the destroyer of Arius and fervent fighter; the one through whom the arrogance of the ill-intentioned was cast down by Christ who has great mercy.
 
-With what prophetic songs may we praise the High Priest? who saw beforehand things far off, and proclaimed them clearly in advance, describing them as though present; rescuing all those unjustly treated; appearing in a dream to the King, inspired by God, and delivering from unjust slaughter those before in chains, enriching them with GodÂ’s great mercy.
+With what prophetic songs may we praise the High Priest? who saw beforehand things far off, and proclaimed them clearly in advance, describing them as though present; rescuing all those unjustly treated; appearing in a dream to the King, inspired by God, and delivering from unjust slaughter those before in chains, enriching them with God’s great mercy.
 
 Glory.
 
@@ -49,7 +49,7 @@ Both now.
 
 **Pre-festal. The same Tone.**
 
-Cave, make ready; for the Ewe-lamb has come, bearing Christ in her womb. Manger, receive the One who by a word frees us who are born of earth from irrational action. Shepherds abiding in the fields, bear witness to the fearful wonder; and Magi from Persia, offer gold, frankincense and myrrh to the King; because the Lord has appeared from a Virgin Mother. Bowing low like a slave his Mother worshipped him, and cried out to the One in her arms, Â‘How were you sown in me, or how did you grow within me, my Redeemer and my God?Â’
+Cave, make ready; for the Ewe-lamb has come, bearing Christ in her womb. Manger, receive the One who by a word frees us who are born of earth from irrational action. Shepherds abiding in the fields, bear witness to the fearful wonder; and Magi from Persia, offer gold, frankincense and myrrh to the King; because the Lord has appeared from a Virgin Mother. Bowing low like a slave his Mother worshipped him, and cried out to the One in her arms, ‘How were you sown in me, or how did you grow within me, my Redeemer and my God?’
 
 ****
 
@@ -62,7 +62,7 @@ The Reading is from Proverbs.
 
 **10:7; 3:13-16 & selection**\]
 
-The memory of the just is with praises, and the LordÂ’s blessing of is upon his head. Blessed is the one who finds wisdom, and the mortal who knows understanding. For it is better to trade for her than for treasures of gold or silver. She is more precious than valuable stones; nothing evil can stand against her; she is well known to all who draw near her; nothing precious matches her worth. From her mouth comes justice, she bears law and mercy on her tongue. Therefore listen to me, my children, for I shall speak noble things; and blessed is the one who will keep my ways. For my issues are issues of life, and favour is prepared by the Lord. Therefore I beseech you and utter my voice to the children of mankind. Because I, Wisdom, have prepared counsel and knowledge and I have called upon understanding. Counsel and assurance are mine, understanding is mine, strength is mine. I love those who are my friends, while those who seek me will find grace. And so you simple folk understand subtlety, you untaught lay it to heart. Hearken to me again, for I shall speak noble things, and I shall open my mouth to speak things that are right. Because my throat will meditate truth, but lying lips are abominations before me. All the words of my mouth are with justice; there is nothing twisted in them or crooked. They are all straight to those who understand, and right to those that find knowledge. For I teach you what is true, that your hope may be in the Lord, and you may be filled with Spirit.
+The memory of the just is with praises, and the Lord’s blessing of is upon his head. Blessed is the one who finds wisdom, and the mortal who knows understanding. For it is better to trade for her than for treasures of gold or silver. She is more precious than valuable stones; nothing evil can stand against her; she is well known to all who draw near her; nothing precious matches her worth. From her mouth comes justice, she bears law and mercy on her tongue. Therefore listen to me, my children, for I shall speak noble things; and blessed is the one who will keep my ways. For my issues are issues of life, and favour is prepared by the Lord. Therefore I beseech you and utter my voice to the children of mankind. Because I, Wisdom, have prepared counsel and knowledge and I have called upon understanding. Counsel and assurance are mine, understanding is mine, strength is mine. I love those who are my friends, while those who seek me will find grace. And so you simple folk understand subtlety, you untaught lay it to heart. Hearken to me again, for I shall speak noble things, and I shall open my mouth to speak things that are right. Because my throat will meditate truth, but lying lips are abominations before me. All the words of my mouth are with justice; there is nothing twisted in them or crooked. They are all straight to those who understand, and right to those that find knowledge. For I teach you what is true, that your hope may be in the Lord, and you may be filled with Spirit.
 
 The Reading is from Proverbs.
 \[
@@ -101,7 +101,7 @@ As a rule of faith and image of meekness Christ God revealed you to your flock, 
 
 Same Tone. Tone 6.
 
-Well done, good and faithful servant; well done, worker in the vineyard of Christ, for you bore the heat of the day, you increased the talent given you and did not envy those who came after you. And so heavenÂ’s gate has opened for you; enter into the joy of your Lord, and intercede for us, Holy Nicolas.
+Well done, good and faithful servant; well done, worker in the vineyard of Christ, for you bore the heat of the day, you increased the talent given you and did not envy those who came after you. And so heaven’s gate has opened for you; enter into the joy of your Lord, and intercede for us, Holy Nicolas.
 
 ****
 
@@ -158,6 +158,6 @@ And Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

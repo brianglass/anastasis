@@ -85,7 +85,7 @@ The Cross is a weapon for salvation. Joseph. ****
 
 Ode 1. Tone 4. Irmos.
 
-Through the Red Sea’s deep the Israel of old marched dry shod, and by MosesÂ’ hands, outstretched in the form of a cross, routed the power of Amalek in the wilderness.
+Through the Red Sea’s deep the Israel of old marched dry shod, and by Moses’ hands, outstretched in the form of a cross, routed the power of Amalek in the wilderness.
 
 ****
 
@@ -199,7 +199,7 @@ O Immaculate, you are the divine house of the Sanctification that was emptied fo
 
 By your prayers, Sovereign Lady, strengthen my thought, tossed about by the tempest of wickedness and wholly sunk in indifference, and snatch it from it s falls.
 
-I now entreat you, O Virgin, Palace of the King, living Heaven, by your prayers prove me, who have been named a robbersÂ’ cave, to be a house for the Trinity.
+I now entreat you, O Virgin, Palace of the King, living Heaven, by your prayers prove me, who have been named a robbers’ cave, to be a house for the Trinity.
 
 ****
 
@@ -275,7 +275,7 @@ Your Offspring, O Virgin, as the life and resurrection of all, has become the de
 
 At the entreaties of your Mother and the numberless Powers, Lover of mankind, stretch out a hand to help me who am storm-tossed on the ocean of life.
 
-Land that brought forth the divine ear of wheat, do not despise my soul, dried up and wasted away by famine of things divine, but nourish me with your SonÂ’s divine gifts of grace.
+Land that brought forth the divine ear of wheat, do not despise my soul, dried up and wasted away by famine of things divine, but nourish me with your Son’s divine gifts of grace.
 
 ****
 
@@ -410,7 +410,7 @@ As your Mother watched you stretched out upon the Cross, pierced by the nails an
 
 **<span style="text-transform: uppercase">The Beatitudes</span>**
 
-Through a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his MasterÂ’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.
+Through a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his Master’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.
 
 Through your great loving kindness, O Christ, you were nailed to the Cross; you were pierced in the side and became the source of two springs of forgiveness, while the earth, unable to bear watching the shameless deed, heaved and quaked, the rocks were rent, the sun was quenched, mountains and hills were shaken with fear of your might.
 
@@ -435,6 +435,6 @@ When you saw your Son and God willingly hanged on a cross, O Most Pure, you were
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

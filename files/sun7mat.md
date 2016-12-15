@@ -47,7 +47,7 @@ Hail full of grace, Virgin Mother of God, haven and protection of the human race
 
 ****
 
-After Psalm 118 the YpakoÃ¯.
+After Psalm 118 the Ypakoï.
 
 Christ God, who took our form and endured the Cross in the body, save me by your Resurrection, as you love humankind.
 
@@ -518,6 +518,6 @@ Both now. You are highly blessed…
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

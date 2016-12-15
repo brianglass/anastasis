@@ -463,9 +463,9 @@ Mother of God, universal Queen, boast of the Orthodox, put to shame the insolenc
 
 **<span style="text-transform: uppercase">Beatitudes</span>**
 
-Through a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his MasterÂ’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.
+Through a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his Master’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.
 
-O Christ the Word, who accepted PeterÂ’s weeping and the HarlotÂ’s tears and the Publican when he only sighed, take pity too on me, as you are compassionate, as I fall down and beg that I be granted pardon of offences. Supremely loving Lord, ransom me from Hell in the other world as you are compassionate.
+O Christ the Word, who accepted Peter’s weeping and the Harlot’s tears and the Publican when he only sighed, take pity too on me, as you are compassionate, as I fall down and beg that I be granted pardon of offences. Supremely loving Lord, ransom me from Hell in the other world as you are compassionate.
 
 Great Forerunner, who loosed the bonds of sterility, loose the barrenness of my wretched heart and by your mediation help it on the way to bear deeds of virtue; through which I shall receive inexhaustible life, as I cry: Remember me, Saviour, in your Kingdom.
 
@@ -488,6 +488,6 @@ You received in your womb the One who with the Father is without beginning and e
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

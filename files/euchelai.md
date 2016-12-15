@@ -526,7 +526,7 @@ And after the Prayer the Priest takes some of the holy Oil and anoints the perso
 
 H
 
-oly Father, physician of souls and bodies, who sent your Only-begotten Son our Lord Jesus Christ to heal every disease and to deliver from death, heal also your servants from the weakness of body and soul which holds them fast and give them life through the grace of your Son, at the prayers of our most holy Lady, Mother of God and ever-virgin Mary, by the might of the precious and life-giving Cross, at the protection of the honoured, heavenly and bodiless Powers, of the honoured and glorious Prophet, Forerunner and Baptist John, of the holy, glorious and all-praised Apostles, of the holy, glorious and victorious Martyrs, of our venerable and God-bearing Fathers, of the holy and healing Unmercenaries Kosmas and Damian, Kyros and John, PanteleÃ¯mon and Hermolaos, Sampson and Diomedes, Mokios and Akinitos, Thalalaios and Tryphon, of the holy and righteous Forebears of God, Joachim and Anne, and of all the Saints.
+oly Father, physician of souls and bodies, who sent your Only-begotten Son our Lord Jesus Christ to heal every disease and to deliver from death, heal also your servants from the weakness of body and soul which holds them fast and give them life through the grace of your Son, at the prayers of our most holy Lady, Mother of God and ever-virgin Mary, by the might of the precious and life-giving Cross, at the protection of the honoured, heavenly and bodiless Powers, of the honoured and glorious Prophet, Forerunner and Baptist John, of the holy, glorious and all-praised Apostles, of the holy, glorious and victorious Martyrs, of our venerable and God-bearing Fathers, of the holy and healing Unmercenaries Kosmas and Damian, Kyros and John, Panteleïmon and Hermolaos, Sampson and Diomedes, Mokios and Akinitos, Thalalaios and Tryphon, of the holy and righteous Forebears of God, Joachim and Anne, and of all the Saints.
 
 For you are the fount of healings, O God, our God, and to you we give glory, to the Father, the Son and the Holy Spirit, now and forever, and to the ages of ages.
 
@@ -1038,6 +1038,6 @@ When they have received their blessing and pardon they depart giving thanks to G
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

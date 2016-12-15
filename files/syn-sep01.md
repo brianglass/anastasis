@@ -9,7 +9,7 @@ The two line verses are written in iambic trimeters, of a sort, but are translat
 
 The extra line, that normally accompanies the first, or the principal, entry each day and which mentions the date, forms a heroic hexameter, with frequent use of epic vocabulary and grammatical forms. I have translated them into English hexameters, though without attempting to reproduce the archaising effect of the original language.
 
-The transliteration of proper names is not scientific, or consistent, but in general follows contemporary pronunciation. Latin names have been given in their Latin, not their Greek, form. Stress accents are generally as in modern Greek. Sometimes I use traditional English forms and stresses, as in ’MÃ³ses’ or ’JÃ³nas’.
+The transliteration of proper names is not scientific, or consistent, but in general follows contemporary pronunciation. Latin names have been given in their Latin, not their Greek, form. Stress accents are generally as in modern Greek. Sometimes I use traditional English forms and stresses, as in ’Móses’ or ’Jónas’.
 
 ------------------------------------------------------------------------
 
@@ -102,7 +102,7 @@ On the same day, commemoration of our Father among the Saints, **John the Faster
 No fleeting pleasures those you now enjoy,
 Faster from fleeting pleasures, blessed John.
 
-Saint DiomÃ©des, slain by a broad sword, met his end.
+Saint Diomédes, slain by a broad sword, met his end.
 
 **Verses**
 Iron to iron was holy Diomede,
@@ -123,46 +123,46 @@ Came to the Lord who loved \[philounta\] him with all speed.
 Saint Eutychianos met his end on a hearth of fire.
 
 **Verses**
-EutychianÃ³s, burned upon a hearth,
+Eutychianós, burned upon a hearth,
 Shared in the Martyrs’ happy \[eutyches\] destiny.
 
-Saint HesÃ½chios, hanged by a noose, met his end.
+Saint Hesýchios, hanged by a noose, met his end.
 
 **Verses**
 Hesychios for his true Master longed;
 And for his sake the noose calmly \[hesychos\] endures.
 
-Saint LeonÃ­das met his end by fire.
+Saint Leonídas met his end by fire.
 
 **Verses**
 The flame of love for God, Leonidas,
 Led you with ease to bear the flame’s fierce force.
 
-Saint EutÃ½chios met his end by crucifixion.
+Saint Eutýchios met his end by crucifixion.
 
 **Verses**
 Eutychios, walking in the Lord’s own steps,
 Like him endured the passion of a cross.
 
-Saint PhilÃ¡delphos met his end by having his neck weighted with a stone.
+Saint Philádelphos met his end by having his neck weighted with a stone.
 
 **Verses**
 Philadelphos by weight of stone put off
 All weight of flesh and mounted light on high.
 
-Saint MelÃ¡nippos met his end by fire.
+Saint Melánippos met his end by fire.
 
 **Verses**
 Melanippos, though something black \[melan\] once had,
 Cleansing he found when cast into the fire.
 
-Saint ParthagÃ¡pe met her end in the sea.
+Saint Parthagápe met her end in the sea.
 
 **Verses**
 O Parthagape, in the sea you die,
 And find a sea of precious gifts on high.
 
-On the same day, commemoration of the righteous priests, Eleazar and Phineas; and of the holy Martyrs AeithalÃ¡s and Ammoun.
+On the same day, commemoration of the righteous priests, Eleazar and Phineas; and of the holy Martyrs Aeithalás and Ammoun.
 
 **September 3rd**
 
@@ -173,39 +173,39 @@ Beheaded, Anthimos, your hair still bloomed \[antheis\]
 To God’s great glory, though you were a corpse.
 On the third day of the month a sharp sword struck the Martyr and slew him.
 
-On the same day Commemoration of our venerable Father TheÃ³ktistos, fellow ascetic of Euthymios the Great.
+On the same day Commemoration of our venerable Father Theóktistos, fellow ascetic of Euthymios the Great.
 
 **Verses**
 You knew God \[Theos\] the Creator \[ktistes\] to be yours
 And so, before all creatures \[ktismata\], you chose him.
 
-On the same day Saint VasÃ­lissa, having fought with the wild beasts and remained unharmed, met her end.
+On the same day Saint Vasílissa, having fought with the wild beasts and remained unharmed, met her end.
 
 **Verses**
 Vasilissa, whom wild beasts fearsome found,
 Stands now before the high King’s \[pamvasileus\] fearsome throne.
 
-On the same day Saint AristÃ­on, Bishop of Alexandria, met his end by fire.
+On the same day Saint Aristíon, Bishop of Alexandria, met his end by fire.
 
 **Verses**
 As if to breakfast \[ariston\] to the pyre you ran,
 Best \[aristos\] of Christ’s Martyrs, great Aristion.
 
-On the same day Saint CharÃ­ton was thrown into a pit of lime and met his end.
+On the same day Saint Charíton was thrown into a pit of lime and met his end.
 
 **Verses**
 Plunged in the pit of lime \[asbestos\] Chariton found
 Unquenched \[asbestos\] the light of an unsullied place.
 
-The holy Martyr ArchontÃ­on met his end by starvation.
+The holy Martyr Archontíon met his end by starvation.
 
-The holy new martyr PolÃ½doros, who bore his witness in New Ephesus in 1794, met his end by hanging.
+The holy new martyr Polýdoros, who bore his witness in New Ephesus in 1794, met his end by hanging.
 
 At their intercessions, O God, have mercy on us. Amen.
 
 **September 4th**
 
-On the 4th of the same month Commemoration of the holy Bishop and Martyr BabÃ½las, Bishop of Antioch the Great, and of the three holy Youths with him, who met their end by the sword.
+On the 4th of the same month Commemoration of the holy Bishop and Martyr Babýlas, Bishop of Antioch the Great, and of the three holy Youths with him, who met their end by the sword.
 
 **Verses**
 Babylas, who once offered Christ himself,
@@ -234,13 +234,13 @@ On the same day, Commemoration of Saint Hermione, one of the daughters of the Ap
 To heaven itself, Hermione, you go,
 For fitting \[hermaios\] the salvation that you found.
 
-Saints TheÃ³timos and TheÃ³doulos, public executioners who became believers, met their end by fire.
+Saints Theótimos and Theódoulos, public executioners who became believers, met their end by fire.
 
 **Verses**
 Theotimos died with Theodoulos,
-A servant’s \[doulos\] honour \[timÃª\] giving to the Lord.
+A servant’s \[doulos\] honour \[timê\] giving to the Lord.
 
-On the same day, Commemoration of the holy Martyrs Centurion, Theodore, Amianos and Julian from the village of KandaulÃª.
+On the same day, Commemoration of the holy Martyrs Centurion, Theodore, Amianos and Julian from the village of Kandaulê.
 
 **Verses**
 Fire of God’s love his breath, Centurion
@@ -249,7 +249,7 @@ Gladly breathes out his soul upon the fire.
 For athletes three the pyre a ladder strange,
 By which they climbed to heaven’s broad expanse.
 
-On the same day, Commemoration of the holy Martyrs Petronios, CharitinÃª, ZÃ¡rbelos (or Sarbelos), ThathouÃ©l and BebaÃ­a.
+On the same day, Commemoration of the holy Martyrs Petronios, Charitinê, Zárbelos (or Sarbelos), Thathouél and Bebaía.
 
 **Verses**
 Bebaia slain and Thathouel as well,
@@ -294,8 +294,8 @@ On the same day, Commemoration of Saint Peter in Athera.
 On the 6th of the same month, the Memorial of the extraordinary wonder by the Archangel Michael that took place at Kolossae,or Chonae, in Phrygia.
 
 **Verses**
-Another NoÃ«, Michael, you appeared
-Ending the flood of rivers with a funnel \[chonÃª\].
+Another Noë, Michael, you appeared
+Ending the flood of rivers with a funnel \[chonê\].
 Michael of Angels the chief on the sixth funnelled strong flowing rivers.
 
 On the same day, Contest of the holy Martyrs Eudoxios, Zenon, Romulus and Makarios.
@@ -304,7 +304,7 @@ On the same day, Contest of the holy Martyrs Eudoxios, Zenon, Romulus and Makari
 Zenon, Eudoxios and Romulus were slain,
 Makarios as well. Blest \[makaristos\] in their end!
 
-On the same day, one thousand one hundred and four holy soldiers and Saint KalodÃ³ti met their end by the sword.
+On the same day, one thousand one hundred and four holy soldiers and Saint Kalodóti met their end by the sword.
 
 **Verses**
 One thousand Martyrs and then ten times ten
@@ -313,7 +313,7 @@ With further four together died by sword.
 The head of Kalodoti was struck off.
 She stands by you, O Word, Giver \[doter\] of good \[kalos\].
 
-On the same day, the holy Faustus, the presbyter, Makarios, Andrew, Bibos, the monk, KyriakÃ³s, Dionysios, Andronikos, AndropelagÃ­a, Thekla, Theoktistos, the ship’s captain and another Kyriakos, the commoner, met their end by the sword.
+On the same day, the holy Faustus, the presbyter, Makarios, Andrew, Bibos, the monk, Kyriakós, Dionysios, Andronikos, Andropelagía, Thekla, Theoktistos, the ship’s captain and another Kyriakos, the commoner, met their end by the sword.
 
 **Verses**
 Faustus, by sword leaving the earth behind,
@@ -356,7 +356,7 @@ On the same day, Saint Eupsychios met his end by the sword.
 Eupsychios, courageous \[eupsychos\] at the sword,
 Offers his Fashioner his soul with joy.
 
-On the same day is celebrated the dormition of the Venerable LoukÃ¡s of the Eparchy of Lykaonia, third Superior of the Monastery of the Saviour, called ’Of the Deep Torrent’.
+On the same day is celebrated the dormition of the Venerable Loukás of the Eparchy of Lykaonia, third Superior of the Monastery of the Saviour, called ’Of the Deep Torrent’.
 
 **September 8th**
 
@@ -421,13 +421,13 @@ Menodora, Metrodora thought,
 Like Nymphodora, flesh’s torments gifts \[dora\].
 Smitten and died on the tenth were the three, gifts \[dora\] whose name has the meaning.
 
-On the same day, Commemoration of the holy Martyr VarypsavÃ¡s.
+On the same day, Commemoration of the holy Martyr Varypsavás.
 
 **Verses**
 Varypsavas for Master’s blood divine
 Pours out his own blood, pounded with wooden clubs.
 
-On the same day the holy Empress PulcherÃ­a met her end in peace.
+On the same day the holy Empress Pulchería met her end in peace.
 
 **Verses**
 As in the Psalm, Queen Pulcheria took
@@ -484,7 +484,7 @@ Kornoutos by the sword gained that to come.
 On the same day, Commemoration of the holy Bishop and Martyr Theodore, Bishop of Alexandria.
 
 **Verses**
-His head by sword struck off, TheÃ³doros
+His head by sword struck off, Theódoros
 Shared in the gifts \[doron\] of God \[theos\], whose name he bore.
 
 On the same day, Commemoration of the holy Martyr Julian of Galatia.
@@ -636,13 +636,13 @@ With faith in you, O Trinity, the three,
 Faith, Hope and Love, bowed necks unto the sword.
 On the seventeenth day of the month, Faith, Hope, Love, the three sisters, they slaughtered.
 
-On the same day, Commemoration of the holy Martyr AgathokleÃ­a.
+On the same day, Commemoration of the holy Martyr Agathokleía.
 
 **Verses**
 Agathokleia bears fire on her neck,
 Dread error’s dread and haughty neck she burns.
 
-On the same day, Commemoration of the holy Martyrs Maximos, TheodÃ³tos and AsklepiodÃ³ti.
+On the same day, Commemoration of the holy Martyrs Maximos, Theodótos and Asklepiodóti.
 
 **Verses**
 For two young men and for one woman there
@@ -802,7 +802,7 @@ he lived devoutly \[eusebos\] and was Christ’s true friend.
 On the same day, commemoration of the holy Martyrs and blood brothers, Eusebios, Nestabos and Zeno.
 
 **Verses
-**Zeno, Eusebios, and NÃ©stabos,
+**Zeno, Eusebios, and Néstabos,
 die by the sword for sake of the true \[eusebes\] faith.
 
 On the same day, commemoration of our holy Fathers and Bishops of Cyprus, Meletios and Isaakios.
@@ -842,10 +842,10 @@ Slaughtered the foe and with him error too.
 Peter and Antony like solid rocks \[petrai\]
 Stoutly endured their rending limb from limb.
 
-On the same day, Commemoration of the holy Virgin Martyr RaÃ¯s.
+On the same day, Commemoration of the holy Virgin Martyr Raïs.
 
 **Verses**
-Longing to see God’s beauty RaÃ¯s gave
+Longing to see God’s beauty Raïs gave
 The beauty of her flesh up to the sword.
 
 On the same day, Commemoration of the Venerable women Xanthippe and Polyxena, sisters by blood.
@@ -946,10 +946,10 @@ On the same day, commemoration of our venerable Father Ignatios, who was abbot o
 
 On the same day, commemoration of the holy Apostles Mark, Aristarchos and Zeno.
 
-On the same day, commemoration of the holy Martyrs Bishop Philemon, Fortunatus and the holy Martyr GaÃ¯ana.
+On the same day, commemoration of the holy Martyrs Bishop Philemon, Fortunatus and the holy Martyr Gaïana.
 
 **Verses
-**GaÃ¯ana, give your back to burning flame,
+**Gaïana, give your back to burning flame,
 That you may flee the back of sword of flame.
 
 On the same day, commemoration of the fifteen holy Martyrs who, thrown into a boat that was set alight, drowned in the sea.
@@ -983,7 +983,7 @@ A shepherd Markos was, whom the sword slew,
 Shepherd of sheep, as Scripture’s Abel was.
 
 Heliodoros, Nikon, Neon too,
-Victories \[nikÃª\] new \[nea\] by sword against Christ’s foes.
+Victories \[nikê\] new \[nea\] by sword against Christ’s foes.
 
 Ten thousand children slain and women too,
 O God, and Child of woman, now receive.
@@ -1049,13 +1049,13 @@ Knowing the saying, Watch \[gregoreite\], of God the Word,
 You, Father, at God’s call, watchful \[gregoron\] appeared.
 Gregory died at the end of the month in Armenia Magna.
 
-On the same day, commemoration of the holy Ripsimia, GaÃ¯ani, and 32 other holy women Ascetics, Martyrs and Virgins.
+On the same day, commemoration of the holy Ripsimia, Gaïani, and 32 other holy women Ascetics, Martyrs and Virgins.
 
 **Verses**
 Ripsimia by blows was no way pained,
 Counting against them garlands numberless.
 
-Ascetic life crowned GaÃ¯ani once,
+Ascetic life crowned Gaïani once,
 The contest by the sword now crowns her too.
 
 Trinity, thrice ten Martyrs honour you,
@@ -1093,6 +1093,6 @@ At their holy intercessions, O God have mercy on us. Amen.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

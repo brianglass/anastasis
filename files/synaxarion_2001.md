@@ -9,19 +9,19 @@ The translations are free, in order to reproduce the Iambic Trimeters and Epic H
 <span style="font-size:18.0pt;mso-bidi-font-size:12.0pt">**9 APRIL**</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">On the 9th of the same month, Commemoration of the Holy Martyr EfpsÃ½chios of Caesarea.</span>
+mso-bidi-font-size:12.0pt">On the 9th of the same month, Commemoration of the Holy Martyr Efpsýchios of Caesarea.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-Against EfpsÃ½chios the sword came there,
-Where Christ to CaesareaÂ’s parts had come.
-And on the ninth of the month EfpsÃ½chiosÂ’ throat met the swordÂ’s blade.</span>
+Against Efpsýchios the sword came there,
+Where Christ to Caesarea’s parts had come.
+And on the ninth of the month Efpsýchios’ throat met the sword’s blade.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Venerable Archimandrite VadÃ­mos and his seven disciples.</span>
+mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Venerable Archimandrite Vadímos and his seven disciples.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-VadÃ­mos was with seven disciples slain,
+Vadímos was with seven disciples slain,
 But they reached heaven, where God has his throne.</span>
 
 <span style="font-size:14.0pt;
@@ -39,7 +39,7 @@ mso-bidi-font-size:12.0pt">On the same day, Commemoration of the newly revealed 
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 <span style="color:red">For Raphael and Nicolas</span>
 As a great light to us they were revealed,
-NicÃ³laos and Raphael, once concealed.</span>
+Nicólaos and Raphael, once concealed.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">For Irene</span><span style="font-size:14.0pt;mso-bidi-font-size:
@@ -52,11 +52,11 @@ In Karyes of old you fought the fight,
 Glory on high, O Martyrs, you attained.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt">On the same day, the Holy AvdiesÃºs died by the sword.</span>
+mso-bidi-font-size:12.0pt">On the same day, the Holy Avdiesús died by the sword.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-Being by chance a captive, AvdiesÃºs,
+Being by chance a captive, Avdiesús,
 Giving his life as ransom, was set free.</span>
 
 <span style="font-size:
@@ -76,7 +76,7 @@ Those that eye, ear or heart have not conceived.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">Let us behold the champions that were slain:
 Ten multiplied by four, and others too.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">And on the tenth of the month was TerenceÂ’s throat slashed right open.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">And on the tenth of the month was Terence’s throat slashed right open.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Prophetess Olda.</span>
@@ -84,7 +84,7 @@ Ten multiplied by four, and others too.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 Foreseeing spirit Olda yielded up,
-A Prophetess with GodÂ’s own Spirit filled.</span>
+A Prophetess with God’s own Spirit filled.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyrs, the Presbyter James and the Deacon Aza.</span>
@@ -92,13 +92,13 @@ A Prophetess with GodÂ’s own Spirit filled.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 <span style="color:red">For James</span>
-Of James who died a martyrÂ’s death I write,
-And of the crown received as deathÂ’s reward.</span>
+Of James who died a martyr’s death I write,
+And of the crown received as death’s reward.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">For Aza</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-ChristÂ’s Levite Aza with his head cut off,
-ChristÂ’s enemy Leviathan now shames.</span>
+Christ’s Levite Aza with his head cut off,
+Christ’s enemy Leviathan now shames.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">The Holy New Martyr Demos was martyred in Smyrna in 1363 and died by the sword.</span>
@@ -106,15 +106,15 @@ ChristÂ’s enemy Leviathan now shames.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 Demos, not fearing executioners \[<span style="color:blue">demios</span>\],
-New athlete with the athletesÂ’ ranks \[<span style="color:blue">demos</span>\] is joined.</span>
+New athlete with the athletes’ ranks \[<span style="color:blue">demos</span>\] is joined.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">On the same day of the same month, Commemoration of our father among the Saints, Gregory V, the new Hieromartyr, archbishop of Constantinople and Ecumenical Patriarch, who was martyred by hanging in 1821.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-Though, Patriarch, Â‘twas by the rope you died,
-In GodÂ’s own Eden you now live for aye.</span>
+Though, Patriarch, ‘twas by the rope you died,
+In God’s own Eden you now live for aye.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Others</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
@@ -132,16 +132,16 @@ color:red">11 APRIL</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-Martyr AntÃ­pas, with a bull you fought,
+Martyr Antípas, with a bull you fought,
 That to burn you, but not to gore, was able.
-Thrown in an ox made of bronze, the eleventh you perished, AntÃ­pas.</span>
+Thrown in an ox made of bronze, the eleventh you perished, Antípas.</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Venerable TrÃ½phaina of Kyzikos.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Venerable Trýphaina of Kyzikos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-TrÃ½phaina, parted from her flesh of clay,
+Trýphaina, parted from her flesh of clay,
 Thought of this clay of hers as rare delights \[<span style="color:blue">tryphe</span>\].</span>
 
 <span style="font-size:
@@ -183,14 +183,14 @@ Holy Anthousa fades \[<span style="color:blue">apanthei</span>\] from earth and 
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-ProtionÂ’s head was severed first \[<span style="color:blue">protos</span>\] of all,
-Then DÃ©meÂ’s by the executioner \[<span style="color:blue">demios</span>\].</span>
+Protion’s head was severed first \[<span style="color:blue">protos</span>\] of all,
+Then Déme’s by the executioner \[<span style="color:blue">demios</span>\].</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Hieromartyr ArtÃ©mon.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Hieromartyr Artémon.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-His head new severed \[artitmitos\], then ArtÃ©mon found
+His head new severed \[artitmitos\], then Artémon found
 Crowns that were fitting to a head cut off \[tetmimeni\].</span>
 
 <span style="font-size:
@@ -198,7 +198,7 @@ Crowns that were fitting to a head cut off \[tetmimeni\].</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-Three of GodÂ’s servants, who the passions slew,
+Three of God’s servants, who the passions slew,
 Manslayers slay with arrows shot from bows.</span>
 
 <span style="font-size:
@@ -238,7 +238,7 @@ Maximos, Dadas and Quintilian.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 To error Eleftherios was no slave,
-But free \[<span style="color:blue">eleftheros</span>\] he stood before the swordÂ’s bright blade.</span>
+But free \[<span style="color:blue">eleftheros</span>\] he stood before the sword’s bright blade.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the holy Martyr Theodosios.</span>
@@ -246,14 +246,14 @@ But free \[<span style="color:blue">eleftheros</span>\] he stood before the swor
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 To offer gifts \[<span style="color:blue">dosis</span>\] to gods \[<span style="color:blue">theoi</span>\] he would not yield,
-So Theodosios was broughtÂ—gift for the sword.</span>
+So Theodosios was brought—gift for the sword.</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyr ZÃ³Ã¯los.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyr Zóïlos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-Fixed to a tree, ZÃ³Ã¯los, by a dart,
+Fixed to a tree, Zóïlos, by a dart,
 Cause of corruption by a tree you wound.</span>
 
 <span style="font-size:
@@ -263,12 +263,12 @@ Cause of corruption by a tree you wound.</span>
 color:red">14 APRIL</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the 14th day of the same month, On the same day, Commemoration of the Holy Apostles of the Seventy, ArÃ­starchos, Poudes and TrÃ³phimos.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the 14th day of the same month, On the same day, Commemoration of the Holy Apostles of the Seventy, Arístarchos, Poudes and Tróphimos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 <span style="color:red">For Aristarchos</span>
-ArÃ­starchos I honour, great in valour \[<span style="color:blue">aristeus</span>\],
+Arístarchos I honour, great in valour \[<span style="color:blue">aristeus</span>\],
 Nobly valiant \[<span style="color:blue">aristeusas</span>\] even to the sword.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
@@ -280,25 +280,25 @@ Where then \[<span style="color:blue">pou de</span>\], if not to glory without e
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">For Trophimos</span><span style="font-size:14.0pt;mso-bidi-font-size:
 12.0pt">
-HeavenÂ’s delight \[<span style="color:blue">tryphe</span>\] TrÃ³phimos keenly craved;
+Heaven’s delight \[<span style="color:blue">tryphe</span>\] Tróphimos keenly craved;
 Was led as nourishment \[<span style="color:blue">trophos</span>\] for sharpened sword.
 While on the fourteenth day three disciples of Christ once departed.</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyr ArdalÃ­on the Actor.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyr Ardalíon the Actor.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 Now a true actor rather than of old,
-He acts the MartyrÂ’s part and loves the fire.</span>
+He acts the Martyr’s part and loves the fire.</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyr ThomaÃ¯s.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyr Thomaïs.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
-You took ThomaÃ¯s from this present age,
-Father, as Scripture says, of thÂ’age to come.</span>
+You took Thomaïs from this present age,
+Father, as Scripture says, of th’age to come.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">On the same day, the contest of the Holy New Martyr, Demetrios the Peloponnesian, from Ligoudiste of Triphylia, who died by the sword in Tripolis in 1803.</span>
@@ -306,7 +306,7 @@ Father, as Scripture says, of thÂ’age to come.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 Like a gazelle Demetrios once sped
-In Tripolis to win a martyrÂ’s prize.</span>
+In Tripolis to win a martyr’s prize.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">At the intercessions of your Saints, O God, have mercy on us.</span>
@@ -321,23 +321,23 @@ color:red">15 APRIL</span>
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 Marvel to see great Kresces mid the fire,
 Thinking the flame a meadow of delight.
-And on the fifteenth day died Kresces by the fireÂ’s fury.</span>
+And on the fifteenth day died Kresces by the fire’s fury.</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyrs VasÃ­lissa and Anastasia.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyrs Vasílissa and Anastasia.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 They slay two ewe lambs of the Lamb of God,
-AnastasÃ­a and VasÃ­lissa.</span>
+Anastasía and Vasílissa.</span>
 
 <span style="font-size:
-14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of our Father in among the Saints LeonÃ­das, Bishop of Athens.</span>
+14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of our Father in among the Saints Leonídas, Bishop of Athens.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 Darkness took hold of Athens all at once
-When LeonÃ­das, AthensÂ’ sun, had set.</span>
+When Leonídas, Athens’ sun, had set.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">On the same day, Commemoration of the Holy Martyrs Theodore the Presbyter and Pavsolypios.</span>
@@ -345,7 +345,7 @@ When LeonÃ­das, AthensÂ’ sun, had set.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt">
 The sword a gift that makes end of grief \[<span style="color:blue">pavsilypos</span>\]
-For PavsolÃ½pios and Theodore.</span>
+For Pavsolýpios and Theodore.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:12.0pt">At their holy intercessions, Christ God, have mercy on us.</span>
@@ -355,6 +355,6 @@ For PavsolÃ½pios and Theodore.</span>
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 09 September 2004**

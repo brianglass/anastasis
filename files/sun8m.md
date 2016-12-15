@@ -4,7 +4,7 @@ INTRODUCTION
 
 In this preliminary version of the texts for Matins and the Liturgy in Tone 8 I have included all the Irmi of the three canons. Those in square brackets are, of course, not normally sung, but are given here for convenience, since there are, as yet, no standard English incipits of such texts.
 
-The Greek text of the canons presents a number of problems. The four printed editions I have used differ quite seriously in a number of places among themselves. I have also compared them with the Slavonic. The most inaccurate is that published by *Phos*,  which in one place even prints *Despoina*, Â’MistressÂ’, where the reading should be *Despota,* Â’MasterÂ’.
+The Greek text of the canons presents a number of problems. The four printed editions I have used differ quite seriously in a number of places among themselves. I have also compared them with the Slavonic. The most inaccurate is that published by *Phos*,  which in one place even prints *Despoina*, ’Mistress’, where the reading should be *Despota,* ’Master’.
 
 I hope before long to include elsewhere on these pages a PDF version of these canons with annotation .
 
@@ -48,7 +48,7 @@ Verse:
 
 I will give you thanks, O Lord, with my whole heart: I will tell of all your wonders.
 
-The women who brought spices for the burial heard from the tomb an AngelÂ’s voice: Cease your tears, and bring joy instead of sorrow. Cry aloud in hymns that Christ the Lord has risen, who as God was well-pleased to save the human race.
+The women who brought spices for the burial heard from the tomb an Angel’s voice: Cease your tears, and bring joy instead of sorrow. Cry aloud in hymns that Christ the Lord has risen, who as God was well-pleased to save the human race.
 
 Glory. Both now.
 
@@ -58,7 +58,7 @@ Because of you, O Full of grace, all creation rejoices, the ranks of Angels and 
 
 ****
 
-After Psalm 118, the YpakoÃ¯
+After Psalm 118, the Ypakoï
 
 The myrrh-bearing women standing at the grave of the Giver of life were seeking the immortal Master among the dead; and when they received the good tidings of joy from the Angel they revealed to the Apostles that Christ had risen, granting the world his great mercy.
 
@@ -92,7 +92,7 @@ By the Holy Spirit everyone that is godly sees and foretells and works the great
 
 I have cried to you, Lord, give heed, bend your ear to me as I call and cleanse me before you take me from what is here.
 
-Each one who sinks back upon his mother earth will depart to receive torments or rewards for their lifeÂ’s actions.
+Each one who sinks back upon his mother earth will depart to receive torments or rewards for their life’s actions.
 
 Glory. Both now.
 
@@ -129,15 +129,15 @@ Let everything that has breath.
 Resurrection Canon.
 Ode 1. Tone 8. Irmos.
 
-MosesÂ’ wonderworking staff, striking and dividing the sea in the figure of a cross, once drowned Pharao the charioteer, while it saved Israel the fugitive as he marched on foot, singing a song to God.
+Moses’ wonderworking staff, striking and dividing the sea in the figure of a cross, once drowned Pharao the charioteer, while it saved Israel the fugitive as he marched on foot, singing a song to God.
 
 ****
 
 Troparia.
 
-How can we not marvel at ChristÂ’s all-powerful divinity? To the faithful it pours out dispassion from his passion, while from his holy side it sheds a fount of incorruption and from his tomb eternal life.
+How can we not marvel at Christ’s all-powerful divinity? To the faithful it pours out dispassion from his passion, while from his holy side it sheds a fount of incorruption and from his tomb eternal life.
 
-How glorious does the Angel now appear to the Women, wearing the bright symbols of innate and immaterial purity; while by his form he reveals the radiance of the Resurrection as he cries out, Â‘The Lord has been raised!Â’
+How glorious does the Angel now appear to the Women, wearing the bright symbols of innate and immaterial purity; while by his form he reveals the radiance of the Resurrection as he cries out, ‘The Lord has been raised!’
 
 ****
 
@@ -152,9 +152,9 @@ Irmos.
 
 \[Crossing the water as on dry land and fleeing the harsh misery of Egypt, the Israelite cried aloud, To our Redeemer and our God now let us sing!\]
 
-HellÂ’s gates of pain have been removed, its gatekeepers quailed in fear when they saw in the lowest depths the One who on high is beyond the nature of all things.
+Hell’s gates of pain have been removed, its gatekeepers quailed in fear when they saw in the lowest depths the One who on high is beyond the nature of all things.
 
-The ranks of Angels were amazed when they saw seated on the FatherÂ’s throne humanityÂ’s fallen nature that had been held fast in the lowest depths.
+The ranks of Angels were amazed when they saw seated on the Father’s throne humanity’s fallen nature that had been held fast in the lowest depths.
 
 ****
 
@@ -175,9 +175,9 @@ Troparia.
 
 Immaculate Mother of God, who gave birth beyond nature to the incarnate and eternal Word, we sing your praise.
 
-The Virgin gave you birth, O Christ, you the grape cluster from which drops the life-bearing sweetness of the whole worldÂ’s salvation.
+The Virgin gave you birth, O Christ, you the grape cluster from which drops the life-bearing sweetness of the whole world’s salvation.
 
-AdamÂ’s race, raised to blessedness beyond all thought, Mother of God, fittingly glorifies you.
+Adam’s race, raised to blessedness beyond all thought, Mother of God, fittingly glorifies you.
 
 ****
 
@@ -204,7 +204,7 @@ You were revealed as higher than the Cherubim and Seraphim, Mother of God, for y
 Another, of Cross and Resurrection.
 Irmos.
 
-\[Lord who constructed heavenÂ’s vault and builder of the Church, establish me in your love, the pinnacle of all desires, the firm foundation of the faithful, only lover of mankind.\]
+\[Lord who constructed heaven’s vault and builder of the Church, establish me in your love, the pinnacle of all desires, the firm foundation of the faithful, only lover of mankind.\]
 
 When of old I disobeyed your commandment, Lord, who made me, you made me a strange; having formed me and taught me obedience, reconciling me to yourself through the Crucifixion.
 
@@ -237,7 +237,7 @@ By your power give me life, O All-pure, who truly gave birth to God in the flesh
 
 Ode 4. Irmos.
 
-\[You, Lord, are my strength and you are my power, you are my God and you are my joy, who did not leave your FatherÂ’s bosom and visited our poverty. Therefore with the Prophet Avvakoum I cry to you, Â‘Glory to your power, O Lover of mankind!Â’\]
+\[You, Lord, are my strength and you are my power, you are my God and you are my joy, who did not leave your Father’s bosom and visited our poverty. Therefore with the Prophet Avvakoum I cry to you, ‘Glory to your power, O Lover of mankind!’\]
 
 ****
 
@@ -302,7 +302,7 @@ Rising out of the dust of death, O Christ, you rebuilt my fallen being and rende
 
 Theotokion.
 
-Having obtained a motherÂ’s freedom of speech before your Son, O All-pure, do not neglect your natural providence for us we beg, for you alone we Christians present to the Master as a kindly means of atonement.
+Having obtained a mother’s freedom of speech before your Son, O All-pure, do not neglect your natural providence for us we beg, for you alone we Christians present to the Master as a kindly means of atonement.
 
 ****
 
@@ -330,7 +330,7 @@ Mary, pure and revered, and who did not know wedlock, implore your Son and our G
 Another, of the Mother of God.
 Irmos.
 
-\[Rising at dawn, O Lord, we cry out to you, Â‘Save us! For you are our God, we know no other but youÂ’.\]
+\[Rising at dawn, O Lord, we cry out to you, ‘Save us! For you are our God, we know no other but you’.\]
 
 ****
 
@@ -346,7 +346,7 @@ Mary Mother of God without bridegroom, bring to naught the expectations of our f
 
 Ode 6. Irmos.
 
-Have mercy on me Saviour, for my iniquities are many; and bring me up, I beg, from the deep of evilsÂ—for to you have I criedÂ—and hear me, O God of my salvation.
+Have mercy on me Saviour, for my iniquities are many; and bring me up, I beg, from the deep of evils—for to you have I cried—and hear me, O God of my salvation.
 
 ****
 
@@ -367,7 +367,7 @@ May we be delivered from grievous faults at your entreaties, pure Mother of God,
 Another, of Cross and Resurrection.
 Irmos.
 
-\[I pour out my supplication to the Lord, and to him I declare my afflictions, for my soul has been filled with evils and my life has drawn near to hell. And like Jonas I beg, Â‘O God, bring me up from corruption!\]
+\[I pour out my supplication to the Lord, and to him I declare my afflictions, for my soul has been filled with evils and my life has drawn near to hell. And like Jonas I beg, ‘O God, bring me up from corruption!\]
 
 ****
 
@@ -411,15 +411,15 @@ When you had ransacked the palaces of Hell and raised the dead, O Longsuffering,
 
 Ode 7. Irmos.
 
-The fire in Babylon once stood in awe of GodÂ’s descent. And so the Youths in the furnace, dancing with joyful steps, as in a meadow, sang, Â‘Blessed is the God of our Fathers!Â’
+The fire in Babylon once stood in awe of God’s descent. And so the Youths in the furnace, dancing with joyful steps, as in a meadow, sang, ‘Blessed is the God of our Fathers!’
 
 ****
 
 Troparia.
 
-Your glorious self-emptying, the divine wealth of your poverty, O Christ, amazed the Angels when they saw you nailed to a Cross, to save those who with faith cry out, Â‘Blessed is the God of our Fathers!Â’
+Your glorious self-emptying, the divine wealth of your poverty, O Christ, amazed the Angels when they saw you nailed to a Cross, to save those who with faith cry out, ‘Blessed is the God of our Fathers!’
 
-At your divine descent the regions beneath the earth were filled with light, and the darkness, which before pursued, was driven out. Therefore the prisoners from every age arose, crying aloud, Â‘Blessed is the God of our Fathers!Â’
+At your divine descent the regions beneath the earth were filled with light, and the darkness, which before pursued, was driven out. Therefore the prisoners from every age arose, crying aloud, ‘Blessed is the God of our Fathers!’
 
 ****
 
@@ -432,43 +432,43 @@ Speaking of God with orthodox belief, we proclaim you Lord of all, Father of one
 Another, of Cross and Resurrection.
 Irmos.
 
-\[The Youths from Judea of old in Babylon having come to the faith of the Trinity, trampled down the flame of the furnace as they sang, Â‘God of our Fathers, blessed are you!Â’\]
+\[The Youths from Judea of old in Babylon having come to the faith of the Trinity, trampled down the flame of the furnace as they sang, ‘God of our Fathers, blessed are you!’\]
 
 ****
 
 Troparia.
 
-You have wrought salvation in the midst of the inhabited world, O God, as the Prophet said, for lifted up on a tree, you called back all those who cry to you with faith, Â‘God of our Fathers, blessed are you!Â’
+You have wrought salvation in the midst of the inhabited world, O God, as the Prophet said, for lifted up on a tree, you called back all those who cry to you with faith, ‘God of our Fathers, blessed are you!’
 
-Rising from the tomb as from sleep, compassionate Lord, you raised the world with you, while creation was persuaded through the Apostles when they preached your Rising. Â‘God of our Fathers, blessed are you!Â’
+Rising from the tomb as from sleep, compassionate Lord, you raised the world with you, while creation was persuaded through the Apostles when they preached your Rising. ‘God of our Fathers, blessed are you!’
 
 ****
 
 Theotokion.
 
-Equal in action with his Begetter, equal in power and co-eternal, the Word is fashioned in the womb of the Virgin by the good pleasure of the Father and the Spirit. Â‘God of our Fathers, blessed are you!Â’
+Equal in action with his Begetter, equal in power and co-eternal, the Word is fashioned in the womb of the Virgin by the good pleasure of the Father and the Spirit. ‘God of our Fathers, blessed are you!’
 
 ****
 
 Of the Mother of God. Same Irmos.
 
-You appeared incarnate from a virgin womb for our salvation, and therefore knowing your Mother to be the one who gave birth to God, with thanksgiving we cry, Â‘God of our Fathers, blessed are you!Â’
+You appeared incarnate from a virgin womb for our salvation, and therefore knowing your Mother to be the one who gave birth to God, with thanksgiving we cry, ‘God of our Fathers, blessed are you!’
 
-You are the all-blessed rod from JesseÂ’s root, O Virgin, and you blossomed with a saving fruit for those who with faith cry to your Son, Â‘God of our Fathers, blessed are you!Â’
+You are the all-blessed rod from Jesse’s root, O Virgin, and you blossomed with a saving fruit for those who with faith cry to your Son, ‘God of our Fathers, blessed are you!’
 
-Empersonned Wisdom of the Most High, through the Mother of God fill with wisdom and divine power all those who sing to you in faith, Â‘God of our Fathers, blessed are you!Â’
+Empersonned Wisdom of the Most High, through the Mother of God fill with wisdom and divine power all those who sing to you in faith, ‘God of our Fathers, blessed are you!’
 
 ****
 
 Ode 8. Irmos.
 
-The Chaldean Tyrant insanely made the furnace blaze seven times more fiercely for those who reverenced God; but when he saw they had been saved by a greater power he cried aloud to the Creator and Redeemer, Â‘O Youths, bless, you priests, praise, you people, highly exalt him to all the agesÂ’.
+The Chaldean Tyrant insanely made the furnace blaze seven times more fiercely for those who reverenced God; but when he saw they had been saved by a greater power he cried aloud to the Creator and Redeemer, ‘O Youths, bless, you priests, praise, you people, highly exalt him to all the ages’.
 
 ****
 
 Troparia.
 
-The supreme divine power of JesusÂ’ godhead has shone out in what is ours in a manner fitting God: for having tasted death on a Cross in the flesh for all, he abolished the strength of Hell. Without ceasing, O Youths, bless, you priests, praise, you people, highly exalt him to all the ages.
+The supreme divine power of Jesus’ godhead has shone out in what is ours in a manner fitting God: for having tasted death on a Cross in the flesh for all, he abolished the strength of Hell. Without ceasing, O Youths, bless, you priests, praise, you people, highly exalt him to all the ages.
 
 The Crucified has risen, the boastful has fallen, the fallen and crushed has been set upright, corruption has been banished and incorruption has blossomed; for mortality has been swallowed up by life. O Youths, bless, you priests, praise, you people, highly exalt him to all the ages!
 
@@ -482,7 +482,7 @@ Godhead of triple light, single radiance shining out from one three-personned na
 
 Of the Cross and Resurrection. Irmos.
 
-\[Victorious by your grace over tyrant and over flame, the Youths, firmly upholding your commandments, cried out, Â‘All you works of the Lord, bless the Lord, and highly exalt him to all the agesÂ’.\]
+\[Victorious by your grace over tyrant and over flame, the Youths, firmly upholding your commandments, cried out, ‘All you works of the Lord, bless the Lord, and highly exalt him to all the ages’.\]
 
 ****
 
@@ -566,7 +566,7 @@ Troparia.
 
 The thought of you is full of joy and gladness, overflowing with healings for those who approach you and devoutly proclaim you Mother of God.
 
-With psalms we sing your praise, O Full of grace, and never silent offer you our Â‘Hail!Â’; for you are a fount of rejoicing for all.
+With psalms we sing your praise, O Full of grace, and never silent offer you our ‘Hail!’; for you are a fount of rejoicing for all.
 
 Fair is your fruit, Mother of God, no cause of corruption for those who partake, but of life for those who magnify you with faith.
 
@@ -593,7 +593,7 @@ I worship, I glorify and I praise your Resurrection from the tomb, O Christ, thr
 
 Lawless men, watching over your grave, which had received life, sealed it; but you, as immortal and all-powerful God, rose on the third day.
 
-When you entered the gates of Hell, Lord, and smashed them, the prisoner cried out: Who is this, for he is not condemned to the lowest parts of the earth, but has torn down deathÂ’s prison-house like a tent? I received him as a mortal, and I tremble at him as God. All-powerful Saviour have mercy on us.
+When you entered the gates of Hell, Lord, and smashed them, the prisoner cried out: Who is this, for he is not condemned to the lowest parts of the earth, but has torn down death’s prison-house like a tent? I received him as a mortal, and I tremble at him as God. All-powerful Saviour have mercy on us.
 
 Glory.
 
@@ -621,9 +621,9 @@ Typika and Beatitudes
 
 **5. Today Christ has risen from the tomb, granting all the faithful incorruption, and renewing joy for the Myrrhbearers, after the Passion and the Resurrection.**
 
-**4. Hail, wise Myrrhbearing Women, first to see ChristÂ’s Resurrection and to announce to the Apostles the restoration of the whole world.**
+**4. Hail, wise Myrrhbearing Women, first to see Christ’s Resurrection and to announce to the Apostles the restoration of the whole world.**
 
-**3. Revealed as ChristÂ’s friends, O Apostles, who will be enthroned with him in glory, as his Disciples intercede that we may stand beside him with freedom to address him.**
+**3. Revealed as Christ’s friends, O Apostles, who will be enthroned with him in glory, as his Disciples intercede that we may stand beside him with freedom to address him.**
 
 Glory.
 
@@ -638,6 +638,6 @@ Both now.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

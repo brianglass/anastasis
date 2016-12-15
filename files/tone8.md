@@ -17,10 +17,10 @@ At the end of each of the eight Tones in the Paraklitiki there is a short set of
 As bearing in yourself all fairest sounds.
 You broaden out the ranges of the songs,
 The final flourish of the Tones, and end.
-As limit in both notes and voicesÂ’ pitch,
+As limit in both notes and voices’ pitch,
 Limit of sound I call you twice, and end.</span>
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©

@@ -13,7 +13,7 @@ Lord, I have cried, **Prosomia of the Lord.**
 
 Tone 4. As noblest of Martyrs.
 
-Come wretched soul, utterly profane, fall down before God and cry with fervent tears, Â‘I have sinnedÂ’. Make the Judge merciful before the end and cry out to him from the heart, Â‘My God, do not reject my groans, do not disregard the breaking of my heart, O Lord of infinite compassionÂ’.
+Come wretched soul, utterly profane, fall down before God and cry with fervent tears, ‘I have sinned’. Make the Judge merciful before the end and cry out to him from the heart, ‘My God, do not reject my groans, do not disregard the breaking of my heart, O Lord of infinite compassion’.
 
 By night and day the all-evil enemy makes war on me and does not stop ensnaring me. He drags me to destruction, to deep pits of wickedness; but as you alone are good, my Jesu, rescue me from his tyranny and from every constraint, and save me, O supremely good, from punishments of many kinds.
 
@@ -63,7 +63,7 @@ Glory. Both now.
 
 **Theotokion.**
 
-Hail Cloud of light, hail shining Lampstand, Jar of the Manna, hail AaronÂ’s Rod, hail Bush unburned, hail Lamp, hail Throne, hail holy Mountain, hail Paradise, hail divine Table, hail mystic Gate, hail hope of all!
+Hail Cloud of light, hail shining Lampstand, Jar of the Manna, hail Aaron’s Rod, hail Bush unburned, hail Lamp, hail Throne, hail holy Mountain, hail Paradise, hail divine Table, hail mystic Gate, hail hope of all!
 
 ON MONDAY EVENING
 
@@ -75,7 +75,7 @@ Lord, I have cried, **Stichera of Compunction, Prosomia to the Master.**
 
 Tone 4. Called from the Highest.
 
-Rivalling the woman of Canaan, my soul, from behind cling fast to Christ and cry again and again, Â‘Have mercy on me, Master. I have no child, but unruly flesh, tormented by demons. Drive out from it, I beg, the burning fever, calm its unruly surges and deaden it finally through fear of you, O Christ, at the supplications of the one who in purity conceived you and gave birth to you and of all your Saints, O Benefactor full of mercyÂ’.
+Rivalling the woman of Canaan, my soul, from behind cling fast to Christ and cry again and again, ‘Have mercy on me, Master. I have no child, but unruly flesh, tormented by demons. Drive out from it, I beg, the burning fever, calm its unruly surges and deaden it finally through fear of you, O Christ, at the supplications of the one who in purity conceived you and gave birth to you and of all your Saints, O Benefactor full of mercy’.
 
 You once sent Jonas out, O Christ, to preach to the sinful Ninevites. They repented and changed rage to pity, and were delivered from destroying wrath. Lover of humankind, send me also, your unworthy servant, your mighty help, that I may turn from my countless offences, be guided into paths of repentance and weep as I groan bitterly to be delivered from my many faults by your mercy.
 
@@ -95,7 +95,7 @@ Glory. Both now.
 
 **Theotokion. Same melody.**
 
-I have become a new Esau in every way, O Most Pure, subject to passions more than all, I alone appear wretched, I alone wholly bare of godly virtue. Who then will not weep for me? Who will not lament my loss? And so before the end I cry to you, Â‘I have sinned, Sovereign Lady, save me, as once your Son saved the ProdigalÂ’.
+I have become a new Esau in every way, O Most Pure, subject to passions more than all, I alone appear wretched, I alone wholly bare of godly virtue. Who then will not weep for me? Who will not lament my loss? And so before the end I cry to you, ‘I have sinned, Sovereign Lady, save me, as once your Son saved the Prodigal’.
 
 ****
 
@@ -109,7 +109,7 @@ Who is storm-tossed and takes refuge in this harbour and is not saved? Or who is
 
 Of the Martyrs.
 
-As you accepted the holy MartyrsÂ’ endurance, accept from us a song of praise, O Lover of mankind, and at their supplications grant us your great mercy.
+As you accepted the holy Martyrs’ endurance, accept from us a song of praise, O Lover of mankind, and at their supplications grant us your great mercy.
 
 Glory. Both now.
 
@@ -139,7 +139,7 @@ Of the Mother of God. The same.
 
 Wipe clean the stain of my wretched heart, All-praised Mother of God, and cleanse its wounds and the sores which come from sin, pure Virgin, and steady my unstable mind; that I, your wretched and unprofitable servant, may magnify your power and your great assistance.
 
-All-Blameless Virgin Mother, change the feebleness and slackness of my soul to strength and power, to carry out and perform with fear and love ChristÂ’s statutes, that I may flee from the unquenchable fire and through you receive the heavenly inheritance and life without end, and be always filled with joy.
+All-Blameless Virgin Mother, change the feebleness and slackness of my soul to strength and power, to carry out and perform with fear and love Christ’s statutes, that I may flee from the unquenchable fire and through you receive the heavenly inheritance and life without end, and be always filled with joy.
 
 The fearful gloom of death wears out my soul, O Bride of God, while the reckoning of the demons ever prepares to astound and make it tremble. Deliver me from them, loving Virgin, who did not know wedlock, and place me in the harbour of salvation and the light of the saints that knows no evening.
 
@@ -147,7 +147,7 @@ Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
-The all-pure Lady, as she watched Christ being put to death and putting the trickster to death, lamented and cried out bitterly to the One who had come from her womb. Marvelling at his long-suffering she was astounded, Â‘My child so dearly loved, do not forget your servant, do not prolong my distress, O Lover of humankindÂ’.
+The all-pure Lady, as she watched Christ being put to death and putting the trickster to death, lamented and cried out bitterly to the One who had come from her womb. Marvelling at his long-suffering she was astounded, ‘My child so dearly loved, do not forget your servant, do not prolong my distress, O Lover of humankind’.
 
 ****
 
@@ -169,7 +169,7 @@ Glory. Both now.
 
 As noblest of martyrs
 
-When the Ewe-lamb who bore you saw you, the Lamb and Shepherd, on the Tree she grieved and as a mother cried aloud to you, Â‘My Son so dearly loved, is this how the disobedient people who enjoyed your greatest wonders repays you? But glory to your ineffable and divine condescension, O Lover of mankind!Â’
+When the Ewe-lamb who bore you saw you, the Lamb and Shepherd, on the Tree she grieved and as a mother cried aloud to you, ‘My Son so dearly loved, is this how the disobedient people who enjoyed your greatest wonders repays you? But glory to your ineffable and divine condescension, O Lover of mankind!’
 
 WEDNESDAY EVENING.
 
@@ -217,7 +217,7 @@ Glory. Both now.
 
 **Theotokion.**
 
-Deliver us from our constraints, Mother of Christ our God, who bore the Maker of all things; that we may all cry to you, Â‘Hail only protection of our souls!Â’
+Deliver us from our constraints, Mother of Christ our God, who bore the Maker of all things; that we may all cry to you, ‘Hail only protection of our souls!’
 
 ON THURSDAY EVENING
 
@@ -299,13 +299,13 @@ Glory. Both now.
 
 **Theotokion.**
 
-The Prophet David, through you the ancestor of God, spoke of you in song beforehand to him who has done great things for you, Â‘The Queen stood at your right handÂ’. For he, the God who was well pleased without father to become man from you, declared you to be mother, source of life, that he might refashion his own image, corrupted by passions, and, having found the lost sheep wandering on the mountain and laid it on his shoulders, he might bring it to his Father; and by his own will unite it to the heavenly Powers and save the world, O Mother of God, Christ who has great and rich mercy.
+The Prophet David, through you the ancestor of God, spoke of you in song beforehand to him who has done great things for you, ‘The Queen stood at your right hand’. For he, the God who was well pleased without father to become man from you, declared you to be mother, source of life, that he might refashion his own image, corrupted by passions, and, having found the lost sheep wandering on the mountain and laid it on his shoulders, he might bring it to his Father; and by his own will unite it to the heavenly Powers and save the world, O Mother of God, Christ who has great and rich mercy.
 
 ****
 
 Aposticha of the Martyrs.
 
-You accepted the MartyrsÂ’ endurance, O Lover of mankind, accept too our hymn of praise, granting us at their intercessions your great mercy.
+You accepted the Martyrs’ endurance, O Lover of mankind, accept too our hymn of praise, granting us at their intercessions your great mercy.
 
 ****
 
@@ -342,6 +342,6 @@ As we have you as hope and protection, O Mother of God, we are not afraid of the
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

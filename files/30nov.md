@@ -854,6 +854,6 @@ Although the Orthodox rite does not have a liturgical season of Advent, from the
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

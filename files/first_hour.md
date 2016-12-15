@@ -25,7 +25,7 @@ Lord, you have been our refuge from one generation to another. Before the mounta
 
 Psalm 100.
 
-I will sing to you of mercy and judgement, O Lord, I will chant and think on a blameless way: when will you come to me? I have walked in the midst of my house in the innocence of my heart. I have set no lawless deed before my eyes; I have hated those who commit transgressions. No twisted heart has been attached to me; the evil man who avoids me I have not acknowledged. The man who secretly slanders his neighbour, him I have driven out. With a man of proud looks and insatiate heart, I have not eaten. My eyes are upon the faithful in the land, for them to dwell with me; the man who walks on a blameless way, he has ministered to me. The man who acts proudly has not dwelt in my house; the man who speaks calumnies has not prospered before me. Morning by morning I slew all the sinners in the land, to purge from the LordÂ’s city all workers of iniquity.
+I will sing to you of mercy and judgement, O Lord, I will chant and think on a blameless way: when will you come to me? I have walked in the midst of my house in the innocence of my heart. I have set no lawless deed before my eyes; I have hated those who commit transgressions. No twisted heart has been attached to me; the evil man who avoids me I have not acknowledged. The man who secretly slanders his neighbour, him I have driven out. With a man of proud looks and insatiate heart, I have not eaten. My eyes are upon the faithful in the land, for them to dwell with me; the man who walks on a blameless way, he has ministered to me. The man who acts proudly has not dwelt in my house; the man who speaks calumnies has not prospered before me. Morning by morning I slew all the sinners in the land, to purge from the Lord’s city all workers of iniquity.
 
 Glory. Both now. Alleluia (
 
@@ -93,7 +93,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**)
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -119,7 +119,7 @@ Before we are enslaved, speedily prevent the foes who blaspheme you and threaten
 
 But on Saturday, say this:
 
-As natureÂ’s first-fruits, O Lord, the whole world offers you, who planted creation, the god-bearing Martyrs; at their intercessions keep your Church in profound peace, through the Mother of God, O most merciful. ****
+As nature’s first-fruits, O Lord, the whole world offers you, who planted creation, the god-bearing Martyrs; at their intercessions keep your Church in profound peace, through the Mother of God, O most merciful. ****
 
 In the 4th week of Lent we say the Kontakion of the Cross.
 
@@ -172,6 +172,6 @@ This is the arrangement for Matins and the First Hour for the whole of holy Lent
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

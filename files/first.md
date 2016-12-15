@@ -391,6 +391,6 @@ Let my prayer, **the 3 after the Entrance of the Holy Gifts, and the 3 at** Bles
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

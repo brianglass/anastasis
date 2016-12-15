@@ -39,7 +39,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us **
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -60,11 +60,11 @@ Come, let us worship and fall down before Christ himself, the King, our God. ***
 
 Psalm 19
 
-May the Lord hear you in the day of trouble; may the name of the God of Jacob shield you. May he send you his help from the holy place, and support you from Sion. May he remember your every sacrifice, and accept with favour your whole burnt offering. May the Lord give you your heartÂ’s desire, and fulfil your every purpose. We shall rejoice in your salvation, and be magnified in the name of our the Lord our God. May the Lord fulfil all your petitions. Now I know that the Lord has saved his Christ. He will hear him from his holy heaven; in mighty acts is the salvation of his right hand. Some put their trust in chariots and some in horses, but we will call on the name of the Lord our God. They were fettered and fell, but we have risen and been set upright. Lord, save the king, and hear us on the day we call upon you. ****
+May the Lord hear you in the day of trouble; may the name of the God of Jacob shield you. May he send you his help from the holy place, and support you from Sion. May he remember your every sacrifice, and accept with favour your whole burnt offering. May the Lord give you your heart’s desire, and fulfil your every purpose. We shall rejoice in your salvation, and be magnified in the name of our the Lord our God. May the Lord fulfil all your petitions. Now I know that the Lord has saved his Christ. He will hear him from his holy heaven; in mighty acts is the salvation of his right hand. Some put their trust in chariots and some in horses, but we will call on the name of the Lord our God. They were fettered and fell, but we have risen and been set upright. Lord, save the king, and hear us on the day we call upon you. ****
 
 Psalm 20
 
-The king will rejoice in your power, O Lord, he will exult exceedingly in your salvation. You gave him his heartÂ’s desire; you did not deny him the request of his lips. For you came to meet him with blessings of goodness; you placed a crown of precious stones upon his head. He asked you for life, and you gave him length of days for age on age. Great is his glory because of your salvation; you will place on him glory and majesty. For you will give him blessing for age on age, and make him glad with the joy of your countenance. For the king puts his hope in the Lord, and through the mercy of the Most High he will not be shaken. May your hand light upon all your enemies, and your right hand find out all who hate you. You will make them like a blazing oven at the time of your presence. The Lord will confound them in his wrath and fire will devour them. You will destroy their offspring from the earth, and their seed from among the children of mankind. Because they intended evils against you, and devised plans by which they can in no way succeed. For you will put them to flight; among your remnants you will prepare their presence. Be exalted, Lord, in your power; we will sing and praise your mighty acts.
+The king will rejoice in your power, O Lord, he will exult exceedingly in your salvation. You gave him his heart’s desire; you did not deny him the request of his lips. For you came to meet him with blessings of goodness; you placed a crown of precious stones upon his head. He asked you for life, and you gave him length of days for age on age. Great is his glory because of your salvation; you will place on him glory and majesty. For you will give him blessing for age on age, and make him glad with the joy of your countenance. For the king puts his hope in the Lord, and through the mercy of the Most High he will not be shaken. May your hand light upon all your enemies, and your right hand find out all who hate you. You will make them like a blazing oven at the time of your presence. The Lord will confound them in his wrath and fire will devour them. You will destroy their offspring from the earth, and their seed from among the children of mankind. Because they intended evils against you, and devised plans by which they can in no way succeed. For you will put them to flight; among your remnants you will prepare their presence. Be exalted, Lord, in your power; we will sing and praise your mighty acts.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -74,7 +74,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us **
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -142,7 +142,7 @@ Lord, you will open my lips, and my mouth will declare your praise
 
 Psalm 3
 
-Lord, why have those who afflict me been multiplied? Many rise against me. Many say to my soul, Â‘There is no salvation for him in his GodÂ’. But you, Lord, are my helper, my glory, and the one who lifts up my head. With my voice, I cried to the Lord, and he heard me from his holy mountain. I lay down and slept; I awoke, because the Lord will assist me. I will not be afraid of tens of thousands of people who surround me. Rise, Lord, save me, my God; because you have struck all who are vainly my foes. You have smashed the teeth of sinners. Salvation is the LordÂ’s, and your blessing is upon your people. ****
+Lord, why have those who afflict me been multiplied? Many rise against me. Many say to my soul, ‘There is no salvation for him in his God’. But you, Lord, are my helper, my glory, and the one who lifts up my head. With my voice, I cried to the Lord, and he heard me from his holy mountain. I lay down and slept; I awoke, because the Lord will assist me. I will not be afraid of tens of thousands of people who surround me. Rise, Lord, save me, my God; because you have struck all who are vainly my foes. You have smashed the teeth of sinners. Salvation is the Lord’s, and your blessing is upon your people. ****
 
 And again:
 
@@ -195,7 +195,7 @@ Let my prayer come into your presence, and turn your ear to my supplication.
 
 Psalm 102
 
-Bless the Lord, O my soul, and all that is within me, bless his holy name. Bless the Lord, O my soul, and forget none of his benefits. He forgives all your iniquities; he heals all your diseases; he redeems your life from corruption and crowns you with mercy and compassion; he satisfies your desire with good things; your youth will be renewed like an eagleÂ’s. The Lord performs deeds of mercy and judgement for all who are oppressed. He made known his ways to Moses, his wishes to the children of Israel. The Lord is compassionate and merciful, long-suffering and full of mercy. He will not always be wrathful, nor will he be enraged for ever. He has not dealt with us according to our iniquities, nor rewarded us according to our sins. For, like the height of heaven above the earth, the Lord has made his mercy prevail over those that fear him. As far as the east is from the west, so far has he taken our sins from us. As a father takes pity on his children the Lord has taken pity on those who fear him. For he knows of what we are made; has remembered that we are but dust. As for man, his days are but as grass, he will blossom like a flower of the field; for when a wind has passed over it, it will be no more and will know its place no longer. But the mercy of the Lord is for ever and ever upon those who fear him; and his justice upon their childrenÂ’s children, upon those who keep his covenant and remember his commandments to do them. The Lord has prepared his throne in heaven and his kingdom rules over all. Bless the Lord, all you his Angels, powerful in strength, who perform his word, and listen to the voice of his words. Bless the Lord, all you his Powers, his Ministers who do his will. Bless the Lord, all you his works. In every place of his dominion, bless the Lord, O my soul! ****
+Bless the Lord, O my soul, and all that is within me, bless his holy name. Bless the Lord, O my soul, and forget none of his benefits. He forgives all your iniquities; he heals all your diseases; he redeems your life from corruption and crowns you with mercy and compassion; he satisfies your desire with good things; your youth will be renewed like an eagle’s. The Lord performs deeds of mercy and judgement for all who are oppressed. He made known his ways to Moses, his wishes to the children of Israel. The Lord is compassionate and merciful, long-suffering and full of mercy. He will not always be wrathful, nor will he be enraged for ever. He has not dealt with us according to our iniquities, nor rewarded us according to our sins. For, like the height of heaven above the earth, the Lord has made his mercy prevail over those that fear him. As far as the east is from the west, so far has he taken our sins from us. As a father takes pity on his children the Lord has taken pity on those who fear him. For he knows of what we are made; has remembered that we are but dust. As for man, his days are but as grass, he will blossom like a flower of the field; for when a wind has passed over it, it will be no more and will know its place no longer. But the mercy of the Lord is for ever and ever upon those who fear him; and his justice upon their children’s children, upon those who keep his covenant and remember his commandments to do them. The Lord has prepared his throne in heaven and his kingdom rules over all. Bless the Lord, all you his Angels, powerful in strength, who perform his word, and listen to the voice of his words. Bless the Lord, all you his Powers, his Ministers who do his will. Bless the Lord, all you his works. In every place of his dominion, bless the Lord, O my soul! ****
 
 And again.
 
@@ -205,7 +205,7 @@ In every place of his dominion, bless the Lord, O my soul!
 
 Psalm 142
 
-Lord, hear my prayer; in your truth give ear to my supplication, and in your justice hear me. Do not enter into judgement with your servant, for in your sight no one living can be justified. For the enemy pursued my soul; humbled my life to the ground; made me dwell in darkness, like those for ever dead. My spirit in me grew weary, and my heart was troubled within me. I remembered days of old; I meditated on all your works. I made the works of your hands my meditation. I stretched out my hands towards you; my soul thirsted for you like a waterless land. Hear me swiftly, O Lord; my spirit has failed. Do not turn your face from me, or I shall be like those who go down to the Pit. Make me hear of your mercy in the morning, for I have hoped in you. Make known to me the way in which I should walk, for to you I have lifted up my soul. Deliver me from my enemies, Lord; I have run to you for shelter. Teach me to do your will, for you are my God. Your good Spirit will guide me in an upright land. For your nameÂ’s sake, O Lord, you will give me life. In your justice you will bring my soul out of trouble; in your mercy slay my enemies, and destroy all those who afflict my soul, for I am your servant. ****
+Lord, hear my prayer; in your truth give ear to my supplication, and in your justice hear me. Do not enter into judgement with your servant, for in your sight no one living can be justified. For the enemy pursued my soul; humbled my life to the ground; made me dwell in darkness, like those for ever dead. My spirit in me grew weary, and my heart was troubled within me. I remembered days of old; I meditated on all your works. I made the works of your hands my meditation. I stretched out my hands towards you; my soul thirsted for you like a waterless land. Hear me swiftly, O Lord; my spirit has failed. Do not turn your face from me, or I shall be like those who go down to the Pit. Make me hear of your mercy in the morning, for I have hoped in you. Make known to me the way in which I should walk, for to you I have lifted up my soul. Deliver me from my enemies, Lord; I have run to you for shelter. Teach me to do your will, for you are my God. Your good Spirit will guide me in an upright land. For your name’s sake, O Lord, you will give me life. In your justice you will bring my soul out of trouble; in your mercy slay my enemies, and destroy all those who afflict my soul, for I am your servant. ****
 
 And again.
 
@@ -338,7 +338,7 @@ And we begin the Canons.
 
 RECITATION OF THE NINE ODES
 
-On MONDAYÂ— ODE 1
+On MONDAY— ODE 1
 
 ****
 
@@ -349,11 +349,11 @@ Let us sing to the Lord, for he is greatly glorified.
 
 Let us sing to the Lord, for he is greatly glorified: horse and rider he has cast into the sea.
 
-Helper and protector he has become for my salvation: he is my God and I will glorify him; my fatherÂ’s God and I will exalt him.
+Helper and protector he has become for my salvation: he is my God and I will glorify him; my father’s God and I will exalt him.
 
 The Lord shatters wars, the Lord is his name.
 
-PharaohÂ’s chariots and army he has cast into the sea; his chosen mounted captains he has drowned in the Red Sea.
+Pharaoh’s chariots and army he has cast into the sea; his chosen mounted captains he has drowned in the Red Sea.
 
 With the deep he covered them: they sank to the bottom like a stone.
 
@@ -395,13 +395,13 @@ The sanctuary which you have made, Lord: which your hands have prepared.
 
 For 4 verses.
 
-The Lord reigns over the ages and for ever and ever: for PharaohÂ’s horse went with the chariots and horsemen into the sea.
+The Lord reigns over the ages and for ever and ever: for Pharaoh’s horse went with the chariots and horsemen into the sea.
 
 But the children of Israel walked on dry land in the midst of the sea.
 
 Glory. Both now.
 
-On TUESDAYÂ— ODE 2
+On TUESDAY— ODE 2
 
 ****
 
@@ -433,7 +433,7 @@ Question your father, and he will tell you; your elders and they will speak to y
 
 When the Most High divided the nations, when he scattered the children of Adam, he set boundaries for the nations according to the number of the Angels of God.
 
-And his people Jacob became the LordÂ’s portion; Israel the line of his inheritance.
+And his people Jacob became the Lord’s portion; Israel the line of his inheritance.
 
 He sustained them in the desert, in thirst from heat in a waterless land; he encircled him and instructed him and guarded him as the apple of his eye.
 
@@ -465,7 +465,7 @@ Because fire has been kindled from my wrath, it will kindled as far as the lowes
 
 I shall gather evils against them, and exhaust my arrows against them.
 
-On WEDNESDAY Â— ODE 3
+On WEDNESDAY — ODE 3
 
 ****
 
@@ -518,7 +518,7 @@ He will give strength to our kings: and exalt the horn of his anointed ones.
 
 Glory. Both now.
 
-On THURSDAY Â— ODE 4
+On THURSDAY — ODE 4
 
 ****
 
@@ -591,13 +591,13 @@ And he puts me on high places: for me to conquer with his song.
 
 Glory. Both now.
 
-On FRIDAYÂ— ODE 5
+On FRIDAY— ODE 5
 
 ****
 
 Prayer of the Prophet Isaias. Chap. 26:9.
 
-IsaiasÂ’ prophecy, a perfect prayer.
+Isaias’ prophecy, a perfect prayer.
 Lord our God give us peace.
 
 From nightfall my spirit is awake for you, O God: for your commands are light upon the earth.
@@ -642,7 +642,7 @@ For the dew which comes from you is healing for them: but the land of the impiou
 
 Glory. Both now.
 
-On SATURDAYÂ— ODE 6
+On SATURDAY— ODE 6
 
 ****
 
@@ -685,7 +685,7 @@ But I shall sacrifice to you with a voice of praise and confession. I will pay y
 
 Glory. Both now.
 
-On SATURDAY Â— ODE 7
+On SATURDAY — ODE 7
 
 ****
 
@@ -708,7 +708,7 @@ And all that you have done to us, and all that you have brought upon us, you hav
 
 And now we cannot open our mouth; we have become a shame and disgrace to your servants, and to those who honour you.
 
-Do not hand us over for ever, for your holy nameÂ’s sake, and do not annul your testament, and do not withdraw your mercy from us, for the sake of Abraham your beloved, and Isaac your servant, and Israel your holy one.
+Do not hand us over for ever, for your holy name’s sake, and do not annul your testament, and do not withdraw your mercy from us, for the sake of Abraham your beloved, and Isaac your servant, and Israel your holy one.
 
 To whom you said that you would multiply their seed as the stars of heaven, and as the sand that is by the shore of the sea.
 
@@ -730,7 +730,7 @@ And let all who harm your servants be disgraced, and put to shame from all their
 
 And let them know that you alone are Lord God, and glorious in the whole inhabited world.
 
-And the kingÂ’s servants, who cast them in, did not cease stoking the furnace with naphtha, pitch, tow and brushwood.
+And the king’s servants, who cast them in, did not cease stoking the furnace with naphtha, pitch, tow and brushwood.
 
 And the flame poured out above the furnace forty nine cubits; and it spread out and burnt up those of the Chaldeans it found around the furnace.
 
@@ -768,13 +768,13 @@ Blessed are you in the firmament of heaven: to be praised and exalted above all 
 
 Glory. Both now.
 
-On ALL DAYS Â— ODE 8
+On ALL DAYS — ODE 8
 
 ****
 
 Hymn of the three holy Youths.
 
-Created nature, sing the MasterÂ’s praise.
+Created nature, sing the Master’s praise.
 Praise the Lord his works and exalt him above all for ever.
 
 Bless the Lord all you works of the Lord, praise the Lord, and exalt him above all for ever.
@@ -836,7 +836,7 @@ THE MAGNIFICAT
 Song of the Mother of God.
 
 A maiden mother hymns her Son and God:
-In hymns GodÂ’s Mother now we magnify.
+In hymns God’s Mother now we magnify.
 
 My soul magnifies the Lord, and my spirit has rejoiced in God my Saviour.
 
@@ -852,7 +852,7 @@ He has put down the mighty from their thrones and exalted the humble: he has fil
 
 He has helped Israel his servant in remembrance of his mercy, as he spoke to our fathers, Abraham and his seed for ever.
 
-On ALL DAYS Â— ODE 9
+On ALL DAYS — ODE 9
 
 ****
 
@@ -997,7 +997,7 @@ Tone 6
 
 Tone 7
 
-Rouse me, holy Lord, to sing your praise, and teach me to do your willÂ…
+Rouse me, holy Lord, to sing your praise, and teach me to do your will…
 
 ****
 
@@ -1250,6 +1250,6 @@ Come let us worship*,* **and the First Hour.**
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -17,6 +17,6 @@ This Kontakion is called *On Adam and Eve* by the French editor, but *On Fasting
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

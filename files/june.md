@@ -297,7 +297,7 @@ The change of his name occurs in Acts, when at Paphos in Cyprus he converted the
 
 Princes of the Apostles and Teachers of the world intercede with the Master of all to grant peace to the whole world and to our souls his great mercy.
 
-**After the 3rd Ode the YpakoÃ¯. Tone 8.**
+**After the 3rd Ode the Ypakoï. Tone 8.**
 
 What prison did not have you as prisoner? What Church does not have you as preacher? Damascus boasts in you Paul, for it saw you cast to earth by light, Rome received your blood and it too is filled with pride; but Tarsus rejoices more than all and with love honours your swaddling clothes. But Paul, Apostle and boast of the whole world, come, strengthen us.
 
@@ -326,6 +326,6 @@ To-day Christ the Rock radiantly glorifies the rock of the faith, the chief of t
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

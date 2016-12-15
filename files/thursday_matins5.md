@@ -106,7 +106,7 @@ Christ anointed you as High Priest of Myra, fragrant with the fragrance of wonde
 
 Theotokion.
 
-Of old the choir of Prophets called you GodÂ’s mountain and gate that none may pass, O Virgin. Therefore we implore you, Virgin Mother, open for us the gates of repentance.
+Of old the choir of Prophets called you God’s mountain and gate that none may pass, O Virgin. Therefore we implore you, Virgin Mother, open for us the gates of repentance.
 
 ****
 
@@ -120,9 +120,9 @@ Troparia
 
 The One, who by the abundance of goodness made flesh poor, enriched you who had become poor for him, glorious Apostles, as you enlighten the ends of the earth by divine and sacred knowledge.
 
-I was wounded by the poisoned bite of the serpent and I have gained a wounded heart. Therefore I cry out to you, O Christ, who was wounded for me, Â‘At the prayers of your Apostles, I pray, heal me and save me!Â’
+I was wounded by the poisoned bite of the serpent and I have gained a wounded heart. Therefore I cry out to you, O Christ, who was wounded for me, ‘At the prayers of your Apostles, I pray, heal me and save me!’
 
-In the net of your intercessions, All-blest Apostles, draw me up from the deep of the enemyÂ’s evil, the tempest of thoughts and soul-slaying passions, and bring me, saved, to the God of all things.
+In the net of your intercessions, All-blest Apostles, draw me up from the deep of the enemy’s evil, the tempest of thoughts and soul-slaying passions, and bring me, saved, to the God of all things.
 
 ****
 
@@ -138,7 +138,7 @@ You blunted the arrows of the evil one, Venerable Saint, by the resistance of yo
 
 but by your intercessions guard me from his wickedness and abuse, great and wise Nicolas.
 
-Having displayed an angelÂ’s life on earth, now with the Angels you stand in holiness before the throne of the Trinity asking for us release from our sins and temptations, Father and Hierarch Nicolas.
+Having displayed an angel’s life on earth, now with the Angels you stand in holiness before the throne of the Trinity asking for us release from our sins and temptations, Father and Hierarch Nicolas.
 
 Drive away the dark clouds of my mind by your light-bearing prayers, Father Nicolas; abate the tempest of the passions; pilot me, Father, to the harbour of dispassion, I implore, that I may glorify you in praise.
 
@@ -146,13 +146,13 @@ Drive away the dark clouds of my mind by your light-bearing prayers, Father Nico
 
 Theotokion.
 
-You stand at ChristÂ’s right hand as a Queen truly Â‘arrayed in tasselled goldÂ’, Maiden graced by God, by your prayers and mediation gaining for us the Kingdom of heaven.
+You stand at Christ’s right hand as a Queen truly ‘arrayed in tasselled gold’, Maiden graced by God, by your prayers and mediation gaining for us the Kingdom of heaven.
 
 ****
 
 Ode 4. Irmos.
 
-Avvakoum, prophetically foreseeing your divine self-emptying, O Christ, he cried out in awe, Â‘You have come for the salvation of your people, to save your anointed onesÂ’.
+Avvakoum, prophetically foreseeing your divine self-emptying, O Christ, he cried out in awe, ‘You have come for the salvation of your people, to save your anointed ones’.
 
 ****
 
@@ -174,7 +174,7 @@ Ark of the divine sanctification, sanctify my soul, lead my thought to light, by
 
 Of the Saint. The same Irmos.
 
-You took the things to come in exchange for those that pass. Make us too worthy of them by your prayers, rescuing us, Nicolas, from all lifeÂ’s trials.
+You took the things to come in exchange for those that pass. Make us too worthy of them by your prayers, rescuing us, Nicolas, from all life’s trials.
 
 Holy Nicolas, who once presided over Myra, make fragrant all the senses of my heart, by your prayers driving foul-smelling passions from it at every moment.
 
@@ -190,13 +190,13 @@ Holy Mother of God, help me, who am continually overwhelmed by the pleasures of 
 
 Ode 5. Irmos.
 
-To you, clothed with light as a garment, I rise early and cry out, Â‘Enlighten my darkened soul, O Christ, for you alone are compassionateÂ’
+To you, clothed with light as a garment, I rise early and cry out, ‘Enlighten my darkened soul, O Christ, for you alone are compassionate’
 
 . ****
 
 Troparia.
 
-The SpiritÂ’s orators, the wise Apostles, in the upper room received the holy Spirit in the form of fire when it came fearsomely upon them.
+The Spirit’s orators, the wise Apostles, in the upper room received the holy Spirit in the form of fire when it came fearsomely upon them.
 
 Christ sent you out as chosen arrows to smash the arrows of wickedness. Therefore heal me, who have been wounded by the arrows of the enemy.
 
@@ -252,7 +252,7 @@ Of the Saint. The same Irmos.
 
 By your prayers, Nicolas, make your Master merciful to all who honour you, that he may grant us release from faults.
 
-Deliver from diseases, lifeÂ’s stumbling blocks, trials and afflictions those who have gained you, Nicolas, as an intercessor with the Lord.
+Deliver from diseases, life’s stumbling blocks, trials and afflictions those who have gained you, Nicolas, as an intercessor with the Lord.
 
 Christ, our Master, revealed you as the best of physicians; therefore heal the diseases, Nicolas, of those who devoutly approach you.
 
@@ -266,31 +266,31 @@ Without husband, pure Mother of God, you bore a child; and so with faith I implo
 
 Ode 7. Irmos.
 
-The highly exalted Lord of our Fathers quenched the flame, refreshed the Youths with dew as they sang harmoniously, Â‘O God, blessed are you!Â’
+The highly exalted Lord of our Fathers quenched the flame, refreshed the Youths with dew as they sang harmoniously, ‘O God, blessed are you!’
 
 ****
 
 Troparia.
 
-The highly exalted Lord of our Fathers highly exalted you, Disciples of Christ who saw God, and broke in pieces the enemyÂ’s power.
+The highly exalted Lord of our Fathers highly exalted you, Disciples of Christ who saw God, and broke in pieces the enemy’s power.
 
-Wash away, Apostles, by your entreaties the stain of my wickedness with streams of compunction, teaching me to cry out, Â‘O God, blessed are you!Â’
+Wash away, Apostles, by your entreaties the stain of my wickedness with streams of compunction, teaching me to cry out, ‘O God, blessed are you!’
 
-With the fire of GodÂ’s Spirit you burned up the brushwood of every vanity; therefore, Disciples of GodÂ’s Word, rescue me from the flames of Gehenna.
+With the fire of God’s Spirit you burned up the brushwood of every vanity; therefore, Disciples of God’s Word, rescue me from the flames of Gehenna.
 
 ****
 
 Theotokion.
 
-Righting of AdamÂ’s fall, by your intercessions, O Virgin, and those of the godly Apostles, raise me who have fallen into pits of evil.
+Righting of Adam’s fall, by your intercessions, O Virgin, and those of the godly Apostles, raise me who have fallen into pits of evil.
 
 ****
 
 Of the Saint. Same Irmos.
 
-As you are wholly dedicated to God, Nicholas wise in God, save me wholly, who am daily wretchedly ensnared by lifeÂ’s passions.
+As you are wholly dedicated to God, Nicholas wise in God, save me wholly, who am daily wretchedly ensnared by life’s passions.
 
-Lantern shining with GodÂ’s radiance, make radiant my soul, ever darkened by the blackness of passions, and grant that I may journey honourably on the road of life.
+Lantern shining with God’s radiance, make radiant my soul, ever darkened by the blackness of passions, and grant that I may journey honourably on the road of life.
 
 By your prayers, Nicolas, block the most wicked mouth that is wide open against me, and deliver me from visible and invisible enemies.
 
@@ -304,7 +304,7 @@ From you, Mother of God, cloud all made of light, there shone for us the Sun tha
 
 Ode 8. Irmos.
 
-The Youths in the furnace, weaving a dance of all creation for you, the Maker of all, sang out, Â‘All you works of the Lord, praise the Lord, and highly exalt him to all the ages!Â’
+The Youths in the furnace, weaving a dance of all creation for you, the Maker of all, sang out, ‘All you works of the Lord, praise the Lord, and highly exalt him to all the ages!’
 
 ****
 
@@ -314,7 +314,7 @@ You unfurled the rational clouds of the Apostles, O Word, that rain down on us s
 
 You fairest pillars of the Church, who carry it on doctrines of faith, make firm the unstable house of my soul by your divine skill, Apostles who saw God.
 
-Groan, my soul, and draw from your whole heart channels of tears as you cry out, Â‘Only Compassionate, save, have pity on me at the acceptable prayers of your Disciples.
+Groan, my soul, and draw from your whole heart channels of tears as you cry out, ‘Only Compassionate, save, have pity on me at the acceptable prayers of your Disciples.
 
 ****
 
@@ -328,7 +328,7 @@ Of the Saint. The same Irmos.
 
 Having become chief Hierarch of Myra, Nicolas, make the senses of my soul fragrant, that I may flee the foul stench of the passions, and receive the grace of the Advocate.
 
-With the streams from your holy tongue you put a stop to the blasphemous streams of AriusÂ’ words; therefore I cry to you, Â‘Dry up the flow of my passions by your prayers, Nicolas all-blessed.
+With the streams from your holy tongue you put a stop to the blasphemous streams of Arius’ words; therefore I cry to you, ‘Dry up the flow of my passions by your prayers, Nicolas all-blessed.
 
 Rescue us by your prayers from sins, from the wickedness of demons, capture by enemies, the evil slanders of all, that we may praise you as our deliverer.
 
@@ -336,7 +336,7 @@ Rescue us by your prayers from sins, from the wickedness of demons, capture by e
 
 Triadikon.
 
-As with faith unceasingly glorify the one Godhead in Trinity, let us shout aloud, Â‘Father and Word and all-holy Spirit, we praise you to all the agesÂ’.
+As with faith unceasingly glorify the one Godhead in Trinity, let us shout aloud, ‘Father and Word and all-holy Spirit, we praise you to all the ages’.
 
 ****
 
@@ -370,13 +370,13 @@ Direct the ways of my soul to the paths of your unerring commandments, O Word of
 
 Of the Saint. Same Irmos.
 
-Called a Hierarch inspired by God, you kept all ChristÂ’s commandments, and so you have become a godly guardian for the faithful, Father Nicolas, protecting them from all abuse and oppression.
+Called a Hierarch inspired by God, you kept all Christ’s commandments, and so you have become a godly guardian for the faithful, Father Nicolas, protecting them from all abuse and oppression.
 
 As you once nourished your city when it lacked bread, as a good shepherd, venerable Father Nicolas, so too nourish with spiritual bread my soul, fortunate to have you as protector.
 
-Venerable Shepherd, we entreat you, the great sun of ChristÂ’s Church, that is fixed on high, with shining lamps of light banish the darkness of sin from our souls.
+Venerable Shepherd, we entreat you, the great sun of Christ’s Church, that is fixed on high, with shining lamps of light banish the darkness of sin from our souls.
 
-The glorious day of ChristÂ’s Coming is at hand, as it written. Sterile soul, cast off sloth and fervently cry out to Christ, Â‘Lord, save me at NicolasÂ’ entreaties!Â’
+The glorious day of Christ’s Coming is at hand, as it written. Sterile soul, cast off sloth and fervently cry out to Christ, ‘Lord, save me at Nicolas’ entreaties!’
 
 ****
 
@@ -388,7 +388,7 @@ The Prophet saw you as a shining lampstand, bearing Christ the spiritual lamp, t
 
 Aposticha of Lauds, of the Apostles.
 
-Disciples of the Saviour, when you had become eye-witnesses of mysteries you proclaimed the One who is not seen and who has no beginning, saying, Â‘In the beginning was the WordÂ’. You were not created before the Angels, you did not learn from men, but from the wisdom from on high. And so as you have freedom to speak, intercede on behalf of our souls.
+Disciples of the Saviour, when you had become eye-witnesses of mysteries you proclaimed the One who is not seen and who has no beginning, saying, ‘In the beginning was the Word’. You were not created before the Angels, you did not learn from men, but from the wisdom from on high. And so as you have freedom to speak, intercede on behalf of our souls.
 
 Let us praise harmoniously in songs the Apostles of the Lord; for clothed with the panoply of the Cross they destroyed the error of idols and were declared crowned victors; at their intercessions, O God, have mercy on us.
 
@@ -407,6 +407,6 @@ You who were chosen beforehand, hearken to our voice, and grant our souls our re
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

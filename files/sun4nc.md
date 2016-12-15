@@ -162,6 +162,6 @@ Save those who believe in you, Lord, and who proclaim one eternal Essence withou
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

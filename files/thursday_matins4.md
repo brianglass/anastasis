@@ -83,7 +83,7 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quo
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Ode 1. Tone 4. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Through the Red SeaÂ’s deep the Israel of old marched dryshod, and by MosesÂ’ hands, outstretched in the form of a cross, routed the power of Amalek in the wilderness.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Through the Red Sea’s deep the Israel of old marched dryshod, and by Moses’ hands, outstretched in the form of a cross, routed the power of Amalek in the wilderness.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Troparia.</span>
@@ -134,7 +134,7 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quo
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Theotokion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">As you have gained unsleeping intercession, O Pure One, put to sleep the passions of our soul by your sacred mediation, granting godly and saving awakening for the fulfilment of GodÂ’s will.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">As you have gained unsleeping intercession, O Pure One, put to sleep the passions of our soul by your sacred mediation, granting godly and saving awakening for the fulfilment of God’s will.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Ode 3. Irmos.</span>
@@ -251,7 +251,7 @@ mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Troparia.</span>
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Blossoming clusters of the Vine of life, the glorious Apostles have given all to drink the wine of spiritual joy.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Guide to the light of GodÂ’s commandments, O Apostles, those who foolishly<span style="mso-spacerun: yes">  </span>dwell in the darkness of spiritual sloth.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Guide to the light of God’s commandments, O Apostles, those who foolishly<span style="mso-spacerun: yes">  </span>dwell in the darkness of spiritual sloth.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Blest Apostles, free us from spiritual falls, from the coming judgement, from corruption and dangers.</span>
@@ -267,7 +267,7 @@ mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Of the Saint. Another I
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">\[</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-mso-bidi-font-weight:bold">The impious will not see your glory, O Christ, but we, who rise early in the dawn, sing your praise Only-begotten radiance of the FatherÂ’s Godhead, Lover of humankind.\]</span><span style="font-size:14.0pt;
+mso-bidi-font-weight:bold">The impious will not see your glory, O Christ, but we, who rise early in the dawn, sing your praise Only-begotten radiance of the Father’s Godhead, Lover of humankind.\]</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:
 &quot;MS Mincho&quot;"></span>
 
@@ -337,7 +337,7 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quo
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Theotokion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Your people and your city beg you, All-holy Lady, GodÂ’s Mother, rescue us from every constraint and from the eternal condemnation to come.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Your people and your city beg you, All-holy Lady, God’s Mother, rescue us from every constraint and from the eternal condemnation to come.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Ode 7. Irmos.</span>
@@ -368,7 +368,7 @@ mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Of the Saint. Another I
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">\[</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-mso-bidi-font-weight:bold">Three Youths in Babylon holding the tyrantÂ’s order to be nonsense, shouted in the midst of the flame, Â‘Blessed are you, God of our fathers!Â’\]</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+mso-bidi-font-weight:bold">Three Youths in Babylon holding the tyrant’s order to be nonsense, shouted in the midst of the flame, ‘Blessed are you, God of our fathers!’\]</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;"></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -403,13 +403,13 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quo
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Fair-toned trumpets of Christ, glorious Apostles, sound the trumpet round my dead soul and rouse it from the tomb of despair and harsh sloth, to sing: All you works, praise the Lord.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">By my mindÂ’s perversity I have trampled down your laws, O Christ; a prodigal I have slipped into the depths and by evil habit I remain ever a slave: at the prayers of your Disciples, do not despise me.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">By my mind’s perversity I have trampled down your laws, O Christ; a prodigal I have slipped into the depths and by evil habit I remain ever a slave: at the prayers of your Disciples, do not despise me.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Theotokion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">O Mary, Sovereign Lady of the universe, by your prayers free me whose lord is the serpent and who sin continually, and make me ChristÂ’s servant in a holy way of life,<span style="mso-spacerun: yes">  </span>that I may sing: All you works, praise the Lord.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">O Mary, Sovereign Lady of the universe, by your prayers free me whose lord is the serpent and who sin continually, and make me Christ’s servant in a holy way of life,<span style="mso-spacerun: yes">  </span>that I may sing: All you works, praise the Lord.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Of the Saint. Another Irmos.</span>
@@ -447,10 +447,10 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quo
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Ode 9. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Chosen stones of the Stone laid at the head of the corner, build up on the rock of the faith the hearts of all the faithful, O Apostles who overthrew the enemyÂ’s builders.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Chosen stones of the Stone laid at the head of the corner, build up on the rock of the faith the hearts of all the faithful, O Apostles who overthrew the enemy’s builders.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Having received from Christ the power to bind and loose, loose the bond of my evils and bind me to Christ, and make me a sharer in GodÂ’s Kingdom, O Apostles.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Having received from Christ the power to bind and loose, loose the bond of my evils and bind me to Christ, and make me a sharer in God’s Kingdom, O Apostles.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Godly clouds of the Master now water my heart, dried up by every evil deed, with glorious showers, and make me fruitful, O Apostles blessed by God.</span>
@@ -482,13 +482,13 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quo
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">As is your wont, O Nicholas, take pity on us who at every moment are dreadfully storm-tossed by the circumstances of life, the deceits of demons and the assaults of evil people, that we may call you blessed.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Remember, O my soul, the dread day and hour when the Master is going to bring you to judgement and to judge your hidden deeds, and cry to him: Save me, O Saviour, at NicholasÂ’ entreaties.</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Remember, O my soul, the dread day and hour when the Master is going to bring you to judgement and to judge your hidden deeds, and cry to him: Save me, O Saviour, at Nicholas’ entreaties.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Theotokion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Joyfully we bring you GabrielÂ’s greeting, and we cry: Hail Paradise, who ever keep in your midst the tree of life: all-glorious palace of the Word, hail all-spotless Virgin!</span>
+font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;MS Mincho&quot;">Joyfully we bring you Gabriel’s greeting, and we cry: Hail Paradise, who ever keep in your midst the tree of life: all-glorious palace of the Word, hail all-spotless Virgin!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-fareast-font-family:&quot;MS Mincho&quot;;color:red">Aposticha of Lauds. Of the Apostles.</span>
@@ -521,7 +521,7 @@ AT THE LITURGY
 color:red;mso-bidi-font-style:italic"></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">T</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">hrough a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his MasterÂ’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.</span>
+font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">T</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">hrough a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his Master’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">A</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">s spiritual sheep of the Shepherd and Lamb you were sent by him as wise lambs into the midst of wolves, by your preaching changing their savagery to the tameness of the Faith, as you cried with unswerving faith: Remember us also, Saviour, in your Kingdom.</span>
@@ -538,7 +538,7 @@ font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">B</span><span st
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">Glory.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
-font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">G</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">azing steadfastly and soberly with the mindÂ’s thought, let us say to the One who is seated in the highest with the Father together with the Spirit: Undivided Trinity, who of old established the universe by the word, and now enlighten all those who in faith cry to you with undoubting voice: Remember us also in your Kingdom.</span>
+font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">G</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">azing steadfastly and soberly with the mind’s thought, let us say to the One who is seated in the highest with the Father together with the Spirit: Undivided Trinity, who of old established the universe by the word, and now enlighten all those who in faith cry to you with undoubting voice: Remember us also in your Kingdom.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">Both now. <span style="color:red;mso-bidi-font-style:italic">Theotokion</span>*.*</span>
 
@@ -550,6 +550,6 @@ mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;;mso-fareast-font-
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

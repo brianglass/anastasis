@@ -46,4 +46,4 @@ REMINDER
 
 ------------------------------------------------------------------------
 
-Unless stated otherwise, all texts and translations on these pages are copyright Ã‚Â©. **
+Unless stated otherwise, all texts and translations on these pages are copyright Â©. **

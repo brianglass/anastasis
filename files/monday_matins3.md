@@ -18,7 +18,7 @@ Verse:
 
 ** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
-As I sail the sea of this present life I think on the abyss of my many evils, and as I have no thought as helmsman, I cry aloud to you in PeterÂ’s words. Save me, Christ God, save me as you love mankind!
+As I sail the sea of this present life I think on the abyss of my many evils, and as I have no thought as helmsman, I cry aloud to you in Peter’s words. Save me, Christ God, save me as you love mankind!
 
 Glory. Both now.
 
@@ -444,7 +444,7 @@ at the liturgy
 
 The Beatitudes
 
-Through a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his MasterÂ’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.
+Through a tree Adam became an exile from Paradise; but through the Tree of the Cross the Thief made Paradise his home. For the one through tasting set aside his Master’s commandment, while the other, crucified with him, confessed the hidden God, as he cried: Remember me in your Kingdom.
 
 More than all mortals on earth I have offended and I quail at the tribunal in the other world that cannot be deceived. Keep me then uncondemned at it, most loving Lord, rescue me from punishment, giving me repentance that washes me of stains of every kind, as you love mankind.
 
@@ -471,6 +471,6 @@ Pure Virgin, take pity on me, who am always sinning and am wholly in the grip of
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

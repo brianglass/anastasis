@@ -48,7 +48,7 @@ Glory. Both now.
 **Theotokion.
 Taking knowledge.**
 
-O pure and blessed, filled with GodÂ’s grace, together with the Powers on high, the Archangels and all the Bodiless ones, implore without ceasing him who through the compassion of his pity was born from you to grant us before the end amendment, pardon of sins and correction of life, that we may find mercy.
+O pure and blessed, filled with God’s grace, together with the Powers on high, the Archangels and all the Bodiless ones, implore without ceasing him who through the compassion of his pity was born from you to grant us before the end amendment, pardon of sins and correction of life, that we may find mercy.
 
 ****
 
@@ -72,13 +72,13 @@ Glory. Both now.
 **Theotokion.**
 \[**Model melody. By Romanos**\]
 
-Taking knowledge of the secret command, the bodiless Archangel came with haste to JosephÂ’s dwelling, and said to her who knew not wedlock, Â‘He who in his self-abasement bowed the heavens is housed wholly and unchanged in you. As I see him take the form of a servant in your womb I am amazed and cry to you: Hail, Bride without bridegroom!Â’
+Taking knowledge of the secret command, the bodiless Archangel came with haste to Joseph’s dwelling, and said to her who knew not wedlock, ‘He who in his self-abasement bowed the heavens is housed wholly and unchanged in you. As I see him take the form of a servant in your womb I am amazed and cry to you: Hail, Bride without bridegroom!’
 
 ****
 
 Ode 1. Tone 8. The Irmos.
 
-Crossing the water as on dry land and fleeing the harsh misery of Egypt, the Israelite cried aloud, Â‘To our Redeemer and our God now let us sing!Â’
+Crossing the water as on dry land and fleeing the harsh misery of Egypt, the Israelite cried aloud, ‘To our Redeemer and our God now let us sing!’
 
 ****
 
@@ -122,7 +122,7 @@ Be for me a refuge, a haven, a wall and a protector, Virgin Mother of God, who g
 
 Ode 3. The Irmos.
 
-Lord who constructed heavenÂ’s vault and builder of the Church, establish me in your love, the pinnacle of all desires, the firm foundation of the faithful, only lover of humankind.
+Lord who constructed heaven’s vault and builder of the Church, establish me in your love, the pinnacle of all desires, the firm foundation of the faithful, only lover of humankind.
 
 ****
 
@@ -138,7 +138,7 @@ Of the Martyrs.
 
 Rooted on the rock of the knowledge of God, Martyrs of Christ and Champions, with the sword of the faith you uprooted the thorns of ignorance and harvested the fruits of your contest.
 
-Now let the Martyrs be praised, the unshakeable towers of the true faith, the far-famed adornments of the Church, the fairest rams of ChristÂ’s flock, willingly sacrificed.
+Now let the Martyrs be praised, the unshakeable towers of the true faith, the far-famed adornments of the Church, the fairest rams of Christ’s flock, willingly sacrificed.
 
 ****
 
@@ -150,7 +150,7 @@ I have gained you as a guard in temptations, O All-holy, I have you as unsleepin
 
 Of the Bodiless Powers. The same Irmos.
 
-Revealed, Chief Captains, as Leaders of the angelic host, you are adorned with gifts of many kinds; guard ChristÂ’s Church safely by your protection.
+Revealed, Chief Captains, as Leaders of the angelic host, you are adorned with gifts of many kinds; guard Christ’s Church safely by your protection.
 
 Godlike Archangels, as far-famed sentinels of God, crowned with the beauty of orthodoxy, now deliver the fullness of the faithful with the weapon of his good pleasure.
 
@@ -240,7 +240,7 @@ Pure Maiden, slay the movements of my passions, who by your Offspring slew the l
 
 Of the Bodiless Powers. The same Irmos.
 
-Chief Captains, who stand encircling GodÂ’s throne, made radiant by the beams that pour from there, guard your flock.
+Chief Captains, who stand encircling God’s throne, made radiant by the beams that pour from there, guard your flock.
 
 Implore our Master and God to grant us redemption, as ministers of the redemption of all.
 
@@ -248,7 +248,7 @@ Implore our Master and God to grant us redemption, as ministers of the redemptio
 
 Theotokion.
 
-Mystically, All-pure Lady, we name you Â‘MyrrhÂ’, for you bore God in the flesh, who pours forth sweet-scented gifts of grace.
+Mystically, All-pure Lady, we name you ‘Myrrh’, for you bore God in the flesh, who pours forth sweet-scented gifts of grace.
 
 ****
 
@@ -260,7 +260,7 @@ Lord, you made Jonas dwell all alone in the whale; like him save me, who am shac
 
 Troparia.
 
-O Christ, giver of light, make the sunÂ’s light of repentance dawn for me in the darkness of sins, that I may hymn your goodness.
+O Christ, giver of light, make the sun’s light of repentance dawn for me in the darkness of sins, that I may hymn your goodness.
 
 Enslaved to my wretched habits, I do not cease from wicked deeds and ever dread your dread judgement seat; set me right, O Christ, that I may hymn your goodness.
 
@@ -282,7 +282,7 @@ That I may ever glorify you, All-blameless, with songs of thanksgiving, drive th
 
 Of the Bodiless Powers. Another Irmos.
 
-\[I pour out my supplication to the Lord, and to him I declare my afflictions, for my soul has been filled with evils and my life has drawn near to hell. And like Jonas I beg, Â‘O God, bring me up from corruption!\]
+\[I pour out my supplication to the Lord, and to him I declare my afflictions, for my soul has been filled with evils and my life has drawn near to hell. And like Jonas I beg, ‘O God, bring me up from corruption!\]
 
 As you now stand around the fearful throne, made worthy, Archangels, to gaze unflinchingly on God, and to be filled with the rays of the Holy Trinity, intercede that those who have recourse to you may be delivered from temptations and passions.
 
@@ -298,43 +298,43 @@ The living chamber of the Master, who shines out with the bright rays of virgini
 
 Ode 7. The Irmos.
 
-The Youths from Judea of old in Babylon having come to the faith of the Trinity, trampled down the flame of the furnace as they sang, Â‘God of our Fathers, blessed are you!Â’
+The Youths from Judea of old in Babylon having come to the faith of the Trinity, trampled down the flame of the furnace as they sang, ‘God of our Fathers, blessed are you!’
 
 ****
 
 Troparia.
 
-O Christ, grant me the gift of lamentation, as you did once to the Publican and the Harlot, washing away the sores of my wickedness with tears; have pity on me as I sing, Â‘God of our fathers, blessed are you!Â’
+O Christ, grant me the gift of lamentation, as you did once to the Publican and the Harlot, washing away the sores of my wickedness with tears; have pity on me as I sing, ‘God of our fathers, blessed are you!’
 
-O Saviour, heal me, who have fallen among soul-destroying thieves and am grievously wounded, with the oil of true repentance, and grant me compunction as I chant, Â‘God of our fathers, blessed are you!Â’
+O Saviour, heal me, who have fallen among soul-destroying thieves and am grievously wounded, with the oil of true repentance, and grant me compunction as I chant, ‘God of our fathers, blessed are you!’
 
 ****
 
 Of the Martyrs.
 
-Noble Champions, you became dead to the world and in no way did you deny Christ, who dead bears life, as you struggled and chanted, Â‘God of our fathers, blessed are you!Â’
+Noble Champions, you became dead to the world and in no way did you deny Christ, who dead bears life, as you struggled and chanted, ‘God of our fathers, blessed are you!’
 
-Wise Champions, by confessing one nature of the Trinity in three persons you abolished the deception of idols with its many gods, as you chanted, Â‘God of our fathers, blessed are you!Â’
+Wise Champions, by confessing one nature of the Trinity in three persons you abolished the deception of idols with its many gods, as you chanted, ‘God of our fathers, blessed are you!’
 
 ****
 
 Theotokion.
 
-God the Word of God dwelt in your womb, O full of GodÂ’s grace, and declares you to be the protection of all who are sinking and who cry, Â‘God of our fathers, blessed are you!Â’
+God the Word of God dwelt in your womb, O full of God’s grace, and declares you to be the protection of all who are sinking and who cry, ‘God of our fathers, blessed are you!’
 
 ****
 
 Of the Bodiless Powers. The same Irmos.
 
-Godlike Chief Captains, the Benefactor of all has granted you grace of many kinds; now save his Church as it sings, Â‘God of our fathers, blessed are you!Â’
+Godlike Chief Captains, the Benefactor of all has granted you grace of many kinds; now save his Church as it sings, ‘God of our fathers, blessed are you!’
 
-Given power by the strength of him who sees all, you clearly watch over all the ends of the earth and save all those who sing in faith, Â‘God of our fathers, blessed are you!Â’
+Given power by the strength of him who sees all, you clearly watch over all the ends of the earth and save all those who sing in faith, ‘God of our fathers, blessed are you!’
 
 ****
 
 Theotokion.
 
-Now that we have you, Virgin Mother of God, as a haven of salvation, we escape the dangers and storms of life as we cry out to your Son, Â‘God of our fathers, blessed are you!Â’
+Now that we have you, Virgin Mother of God, as a haven of salvation, we escape the dangers and storms of life as we cry out to your Son, ‘God of our fathers, blessed are you!’
 
 ****
 
@@ -348,7 +348,7 @@ Troparia.
 
 Subject to the sensual pleasures of the flesh, separated far from you, O Word, and grown like all the beasts, do not despise me, Saviour, but turn me back before the end and save me.
 
-In no way do I desist from offences, and though I cry, Â‘I have sinned, wretch that I amÂ’, I never do deeds of repentance. Take pity on me, Lord, and give compunction to my hardened soul.
+In no way do I desist from offences, and though I cry, ‘I have sinned, wretch that I am’, I never do deeds of repentance. Take pity on me, Lord, and give compunction to my hardened soul.
 
 ****
 
@@ -356,7 +356,7 @@ Of the Martyrs.
 
 The noble Champions of the Lord, baptised in streams of blood, were not defiled by any second stain; and therefore crowned as victors, they dance unceasingly among the Angels.
 
-Strengthened by the hopes of things to come, the noble Martyrs for true religion endured the heavy mass of tortures, and having died they stand unceasingly around the MasterÂ’s throne.
+Strengthened by the hopes of things to come, the noble Martyrs for true religion endured the heavy mass of tortures, and having died they stand unceasingly around the Master’s throne.
 
 ****
 
@@ -453,6 +453,6 @@ The heavenly beings hymn, Full of grace, Mother without bridegroom, and we glori
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

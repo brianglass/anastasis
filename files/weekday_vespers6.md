@@ -36,7 +36,7 @@ Glory. Both now*.*
 
 **Theotokion, same melody.**
 
-All nature born of earth cries aloud to you, Mother of God, Â‘HailÂ’, as to her who became cause of their salvation by your giving birth, O Mother of God.
+All nature born of earth cries aloud to you, Mother of God, ‘Hail’, as to her who became cause of their salvation by your giving birth, O Mother of God.
 
 ****
 
@@ -129,7 +129,7 @@ By the tree of the Cross you cured the bitterness of a tree, and opened Paradise
 Others, of the Mother of God.
 Same melody.
 
-Like the Angel, let us offer our Â‘HailÂ’ to the Mother of God, and let us cry out: Blessed, All-pure, glory to you.
+Like the Angel, let us offer our ‘Hail’ to the Mother of God, and let us cry out: Blessed, All-pure, glory to you.
 
 Virgin without bridegroom, Mother of the Lord, free your servants from all the arrows of the serpent.
 
@@ -337,6 +337,6 @@ Daniel saw you as a holy, divine mountain, honoured one, and wise Isaias proclai
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

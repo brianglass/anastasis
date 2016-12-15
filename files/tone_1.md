@@ -17,6 +17,6 @@ I hope, little by little, to publish annotated versions of these texts. As an ex
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

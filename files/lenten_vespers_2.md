@@ -11,15 +11,15 @@ INTRODUCTORY NOTE
 
 There are numerous small differences between the various Typica for the service of the Presanctified, particularly at the end of the Ninth Hour and end of the Typika. The arrangement given here represents, in the main, the use of the Holy Mountain, as given in the editions of the Holy Monastery of Simonos Petra, prepared with the assistance of Professor Phountoulis.
 
-Those who use non-Orthodox versions of Holy Scripture, that is most current versions, should note that the ChurchÂ‘s text of the prayer of the Thief in St LukeÂ‘s Gospel is Â‘Remember me, Lord, when you come in your kingdomÂ‘, not Â‘into your kingdomÂ‘. The reference is to the LordÂ‘s Second Coming Â‘in glory with the holy AngelsÂ‘. In the view of many non-Orthodox scholars this is the correct text.
+Those who use non-Orthodox versions of Holy Scripture, that is most current versions, should note that the Church‘s text of the prayer of the Thief in St Luke‘s Gospel is ‘Remember me, Lord, when you come in your kingdom‘, not ‘into your kingdom‘. The reference is to the Lord‘s Second Coming ‘in glory with the holy Angels‘. In the view of many non-Orthodox scholars this is the correct text.
 
-In the troparia following the Beatitudes I have put Â‘Lord SabaothÂ‘, not Â‘Lord of SabaothÂ‘, or Â‘Lord of hostsÂ‘, because the Fathers, among them St Basil the Great, although they know the meaning of the Hebrew, point out that this is one of the Hebrew words that the translators of the Septuagint did not translate, and regard it as a sacred title of God.
+In the troparia following the Beatitudes I have put ‘Lord Sabaoth‘, not ‘Lord of Sabaoth‘, or ‘Lord of hosts‘, because the Fathers, among them St Basil the Great, although they know the meaning of the Hebrew, point out that this is one of the Hebrew words that the translators of the Septuagint did not translate, and regard it as a sacred title of God.
 
-In the Litany for those to be Enlightened I follow Professor Phountoulis in reading the invitation to them as Â‘Draw nearÂ‘, in Greek *proselthete*, and not Â‘DepartÂ‘, in Greek *proelthete*; a difference of a single letter.
+In the Litany for those to be Enlightened I follow Professor Phountoulis in reading the invitation to them as ‘Draw near‘, in Greek *proselthete*, and not ‘Depart‘, in Greek *proelthete*; a difference of a single letter.
 
-The Triodion, in its long rubric after Monday of the First Week, describes the ritual for the Presanctified and it specifies Â‘Three metaniasÂ‘ at Â‘Blessed be the name of the LordÂ‘ after the prayer behind the Ambo. I have therefore included it here.
+The Triodion, in its long rubric after Monday of the First Week, describes the ritual for the Presanctified and it specifies ‘Three metanias‘ at ‘Blessed be the name of the Lord‘ after the prayer behind the Ambo. I have therefore included it here.
 
-It is also interesting to note that the same long rubric says, on the subject of the Litany for those preparing for Enlightenment, quite clearly, Â‘It is to be known that the Diakonika for those to be enlightened and the prayer are started from the Wednesday of the Mid-Fast and said until Great Wednesday, not only at the Presanctified, but also on Saturdays and Sundays at the Liturgies of Saint John Chrysostom and Saint BasilÂ‘. The Slavonic Triodion, on the other hand, in a rubric for the Wednesday of the Fourth Week, expressly excludes Saturdays and Sundays. The rubric in the Greek Triodion is likely to be the more ancient.
+It is also interesting to note that the same long rubric says, on the subject of the Litany for those preparing for Enlightenment, quite clearly, ‘It is to be known that the Diakonika for those to be enlightened and the prayer are started from the Wednesday of the Mid-Fast and said until Great Wednesday, not only at the Presanctified, but also on Saturdays and Sundays at the Liturgies of Saint John Chrysostom and Saint Basil‘. The Slavonic Triodion, on the other hand, in a rubric for the Wednesday of the Fourth Week, expressly excludes Saturdays and Sundays. The rubric in the Greek Triodion is likely to be the more ancient.
 
 ------------------------------------------------------------------------
 
@@ -45,7 +45,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -119,7 +119,7 @@ And immediately we read from The Ladder.
 
 And after the reading:
 
-For your holy nameÂ’s sake do not finally reject us, do not annul your covenant, do not take your mercy from us for the sake of Abraham, your beloved, and for the sake of Isaac, your servant, and Israel, your holy one.
+For your holy name’s sake do not finally reject us, do not annul your covenant, do not take your mercy from us for the sake of Abraham, your beloved, and for the sake of Isaac, your servant, and Israel, your holy one.
 
 ****
 
@@ -181,7 +181,7 @@ Blessed are the pure in heart, for they shall see God.
 
 Blessed are the peacemakers, for they shall be called the children of God.
 
-Blessed are those who are persecuted for justiceÂ’s sake, for theirs is the kingdom of heaven.
+Blessed are those who are persecuted for justice’s sake, for theirs is the kingdom of heaven.
 
 Blessed are you when men shall revile you and persecute you and say all manner of evil against you falsely for my sake.
 
@@ -267,7 +267,7 @@ You have taken, Lord, the sure, the God-inspired heralds, the high peak of your 
 
 And of Saint Nicholas. 3rd Tone.
 
-In Myra, holy one, you were proved a true priest, for you fulfilled, venerable Father, the gospel of Christ, you laid down your life for you people, you saved the innocent from death; therefore you have been hallowed as a great initiate of GodÂ’s grace.
+In Myra, holy one, you were proved a true priest, for you fulfilled, venerable Father, the gospel of Christ, you laid down your life for you people, you saved the innocent from death; therefore you have been hallowed as a great initiate of God’s grace.
 
 ****
 
@@ -275,7 +275,7 @@ Every day the Kontakion of the Church.
 
 Kontakion. 2nd Tone. Nor tomb, nor death.
 
-Let us sing the praise of GodÂ’s herald, whose name means Â‘courageÂ’, the First-called of the SaviourÂ’s disciples, the brother of Peter; because as to him of old, so now to us he cries, Â‘Come, we have found the one so longed forÂ’.
+Let us sing the praise of God’s herald, whose name means ‘courage’, the First-called of the Saviour’s disciples, the brother of Peter; because as to him of old, so now to us he cries, ‘Come, we have found the one so longed for’.
 
 ****
 
@@ -305,7 +305,7 @@ Lord, have mercy (
 
 Priest:
 
-May God take pity on usÂ… ****
+May God take pity on us… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
@@ -313,13 +313,13 @@ All-holy Trinity, Our Father. For yours. Lord, have mercy (**x12**) **and the Su
 
 Prayer of Saint Basil the Great
 
-Master, Lord Jesus Christ, our God, who have long endured our transgressions, and brought us to this hour in which hanging on the life-giving tree you showed the good Thief the way into Paradise and destroyed death by death, have mercy also on us sinners and your unworthy servants. For we have sinned and trespassed and are not worthy to raise our eyes and look on the height of heaven; because we have abandoned the way of your justice and walked in the will of our hearts. But we implore your unbounded goodness: spare us, O Lord, according to the multitude of your mercy, and save us for your holy nameÂ’s sake, for our days have been wasted in vanity. Rescue us from the hand of our opponent, forgive us our sins, slay our carnal will, that we, having put off the old man, may put on the new, and live for you, our Master and benefactor; and that thus following your precepts we may reach eternal rest, where those who rejoice have their dwelling. For you are the true joy and gladness of those who love you, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and always and to ages of ages. Amen.
+Master, Lord Jesus Christ, our God, who have long endured our transgressions, and brought us to this hour in which hanging on the life-giving tree you showed the good Thief the way into Paradise and destroyed death by death, have mercy also on us sinners and your unworthy servants. For we have sinned and trespassed and are not worthy to raise our eyes and look on the height of heaven; because we have abandoned the way of your justice and walked in the will of our hearts. But we implore your unbounded goodness: spare us, O Lord, according to the multitude of your mercy, and save us for your holy name’s sake, for our days have been wasted in vanity. Rescue us from the hand of our opponent, forgive us our sins, slay our carnal will, that we, having put off the old man, may put on the new, and live for you, our Master and benefactor; and that thus following your precepts we may reach eternal rest, where those who rejoice have their dwelling. For you are the true joy and gladness of those who love you, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and always and to ages of ages. Amen.
 
 ****
 
 Then the Lamplighter goes out and strikes the large simandron. After the Prayer of Saint Ephrem, Trisagion,
 
-** All-holy TrinityÂ…, Our Father, Lord, have mercy, (**x12**) **and this prayer:**
+** All-holy Trinity…, Our Father, Lord, have mercy, (**x12**) **and this prayer:**
 
 All-holy Trinity, consubstantial Might, indivisible Kingship, Cause of all blessings, be favourable even to me a sinner; strengthen and give understanding to my heart and rid me of every defilement; enlighten my mind, that I may ever glorify, praise, worship and say: One is Holy, one is Lord, Jesus Christ, to the glory of God the Father. Amen.
 
@@ -331,7 +331,7 @@ It is truly right to call you blessed, who gave birth to God, ever-blessed and m
 
 Priest:
 
-May God be take pity on usÂ…. Glory to you, Christ God our hope, glory to you. ****
+May God be take pity on us…. Glory to you, Christ God our hope, glory to you. ****
 
 Reader:
 
@@ -358,7 +358,7 @@ Come, let us worship and fall down before Christ himself, the King and our God.
 
 Psalm 103
 
-Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heronÂ’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth has been filled with your creation. Also this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. When you open your hand all things will be filled with goodness. But when you turn away your face they will be troubled. You will take away their spirit, and they will perish and return to their dust. You will send forth your spirit, and they will be created, and you will renew the face of the earth. May the glory of the Lord endure to the ages. The Lord will rejoice at his works. He looks upon the earth and makes it tremble. He touches the mountains, and they smoke. I will sing to the Lord while I live; I will praise my God while I exist. May my words be pleasing to him. While as for me, I shall rejoice in the Lord. O that sinners might perish from the earth, and the wicked, so that they are no more. Bless the Lord, my soul! ****
+Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heron’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth has been filled with your creation. Also this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. When you open your hand all things will be filled with goodness. But when you turn away your face they will be troubled. You will take away their spirit, and they will perish and return to their dust. You will send forth your spirit, and they will be created, and you will renew the face of the earth. May the glory of the Lord endure to the ages. The Lord will rejoice at his works. He looks upon the earth and makes it tremble. He touches the mountains, and they smoke. I will sing to the Lord while I live; I will praise my God while I exist. May my words be pleasing to him. While as for me, I shall rejoice in the Lord. O that sinners might perish from the earth, and the wicked, so that they are no more. Bless the Lord, my soul! ****
 
 And again
 
@@ -456,14 +456,14 @@ I have lifted up my eyes to the mountains. From where will my help come? My help
 Psalm 121
 A Song of Ascents.
 
-I rejoiced at those who said to me: we shall go to the house of the Lord. Our feet were standing in your courts, O Jerusalem. Jerusalem built as a city, shared by all together. For there the tribes went up, the tribes of the Lord, a testimony for Israel, to give thanks to the name of the Lord. For there thrones were set for judgement, thrones over the house of David. Ask then for the things which are for JerusalemÂ’s peace, and prosperity for those who love you. May there be peace then in your power and prosperity in your citadels. For the sake of my brethren and neighbours, I have spoken peace concerning you. For the sake of the house of the Lord our God, I have sought good things for you.
+I rejoiced at those who said to me: we shall go to the house of the Lord. Our feet were standing in your courts, O Jerusalem. Jerusalem built as a city, shared by all together. For there the tribes went up, the tribes of the Lord, a testimony for Israel, to give thanks to the name of the Lord. For there thrones were set for judgement, thrones over the house of David. Ask then for the things which are for Jerusalem’s peace, and prosperity for those who love you. May there be peace then in your power and prosperity in your citadels. For the sake of my brethren and neighbours, I have spoken peace concerning you. For the sake of the house of the Lord our God, I have sought good things for you.
 
 ****
 
 Psalm 122
 A Song of Ascents.
 
-I have lifted my eyes to you who dwell in heaven. Behold, as the eyes of servants look to their lordsÂ’ hands; as the eyes of a maid to her mistressÂ’s hands, so do our eyes to the Lord our God, until he take pity on us. Have mercy on us, Lord, have mercy on us, for we have had our fill of contempt, our soul has been filled to overflowing. Let reproach be for the prosperous, and contempt for the proud.
+I have lifted my eyes to you who dwell in heaven. Behold, as the eyes of servants look to their lords’ hands; as the eyes of a maid to her mistress’s hands, so do our eyes to the Lord our God, until he take pity on us. Have mercy on us, Lord, have mercy on us, for we have had our fill of contempt, our soul has been filled to overflowing. Let reproach be for the prosperous, and contempt for the proud.
 
 ****
 
@@ -540,21 +540,21 @@ When the Lord turned back the captivity of Sion, we became as those who are comf
 Psalm 126
 A Song of Ascents.
 
-Unless the Lord build the house, the builders have toiled for nothing. Unless the Lord guard the city, the watchman has kept vigil for nothing. Your getting up at dawn is for nothing, your rising after sitting, you who eat the bread of sorrow, when he gives sleep to his beloved; see, sons are the LordÂ’s inheritance , the reward of the fruit of the womb. As arrows in the hand of a powerful man, so are the sons of the rejected. Blessed the man who satisfies his desire with them; they will not be shamed when they speak with their enemies in the gates.
+Unless the Lord build the house, the builders have toiled for nothing. Unless the Lord guard the city, the watchman has kept vigil for nothing. Your getting up at dawn is for nothing, your rising after sitting, you who eat the bread of sorrow, when he gives sleep to his beloved; see, sons are the Lord’s inheritance , the reward of the fruit of the womb. As arrows in the hand of a powerful man, so are the sons of the rejected. Blessed the man who satisfies his desire with them; they will not be shamed when they speak with their enemies in the gates.
 
 ****
 
 Psalm 127
 A Song of Ascents
 
-Blessed are all who fear the Lord, who walk in his ways. You will eat the toils of your fruits; you are blest, and it will be well with you. Your wife like a luxuriant vine against the sides of your house. Your sons like new olive shoots around your table. See, that is how one who fears the Lord will be blessed. The Lord bless you from Sion, and may you see the good things of Jerusalem all the days of your life. And may you see your childrenÂ’s children. Peace upon Israel.
+Blessed are all who fear the Lord, who walk in his ways. You will eat the toils of your fruits; you are blest, and it will be well with you. Your wife like a luxuriant vine against the sides of your house. Your sons like new olive shoots around your table. See, that is how one who fears the Lord will be blessed. The Lord bless you from Sion, and may you see the good things of Jerusalem all the days of your life. And may you see your children’s children. Peace upon Israel.
 
 ****
 
 Psalm 128
 A Song of Ascents
 
-Many times they have made war on me since my youth, let Israel now say. Many times they have made war on me since my youth, and yet they have not prevailed over me. The sinners have wrought upon my back, they have prolonged their iniquity. The Lord is just, he has broken the sinnersÂ’ necks. Let all those who hate Sion be shamed and turned back. Let them become like grass on the housetops, which withers before it is uprooted: The reaper has not filled his hand with it, nor the one who gathers the sheaves his bosom. Nor have the passers-by said: The LordÂ’s blessing be on you. We have blessed you in the name of the Lord.
+Many times they have made war on me since my youth, let Israel now say. Many times they have made war on me since my youth, and yet they have not prevailed over me. The sinners have wrought upon my back, they have prolonged their iniquity. The Lord is just, he has broken the sinners’ necks. Let all those who hate Sion be shamed and turned back. Let them become like grass on the housetops, which withers before it is uprooted: The reaper has not filled his hand with it, nor the one who gathers the sheaves his bosom. Nor have the passers-by said: The Lord’s blessing be on you. We have blessed you in the name of the Lord.
 
 Glory to the Father and to the Son and to the Holy Spirit.
 
@@ -610,7 +610,7 @@ Amen. ****
 Psalm 129
 A Song of Ascents
 
-Out of the depths I have cried to you, O Lord; Lord, hear my voice; let your ears be attentive to the voice of my supplication. If you note our iniquities, Lord Lord, who will survive? Because forgiveness is with you. For your nameÂ’s sake I have waited for you, O Lord; my soul has waited for your word, my soul has hoped in the Lord. From the morning watch until night, from the morning watch, let Israel hope in the Lord. Because with the Lord there is mercy and with him abundant redemption; and he will redeem Israel from all his iniquities.
+Out of the depths I have cried to you, O Lord; Lord, hear my voice; let your ears be attentive to the voice of my supplication. If you note our iniquities, Lord Lord, who will survive? Because forgiveness is with you. For your name’s sake I have waited for you, O Lord; my soul has waited for your word, my soul has hoped in the Lord. From the morning watch until night, from the morning watch, let Israel hope in the Lord. Because with the Lord there is mercy and with him abundant redemption; and he will redeem Israel from all his iniquities.
 
 ****
 
@@ -624,14 +624,14 @@ Lord, my heart has not been exalted, nor have my eyes become lofty, I have neith
 Psalm131
 A Song of Ascents
 
-Lord remember David and all his meekness, how he swore to the Lord, made a vow to the God of Jacob, I shall not enter the shelter of my house, climb into my bed, give sleep to my eyes, slumber to my eyelids and rest to my temples, until I find a place for the Lord, a tabernacle for the God of Jacob. See, we heard of it in Ephrata, we found it in the woodland fields. We shall enter his tabernacles, we shall worship towards the place where his feet have stood. Arise, Lord, into your rest, you and the ark of your sanctification. Your priests clothe themselves with justice, and your holy ones will rejoice. For David, your servantÂ’s sake, do not turn away the face of your Christ. The Lord has sworn truth to David and he will not annul it, Â‘From the fruit of your womb I shall place on your throne. If your sons keep my covenant and these testimonies of mine which I shall teach them, their sons too will sit on your throne for ever. For the Lord has elected Sion, has chosen her as a dwelling for himself. Â‘This is my resting-place for age on age; here I shall dwell, for I have chosen her. Her door I shall bless abundantly, her poor I shall fill with bread. Her priests I shall clothe with salvation, and her holy ones will rejoice with great joy. There I shall make the horn of David flourish; I have prepared a lamp for my Christ. I shall clothe his enemies in shame, my sanctification will flower upon himÂ’.
+Lord remember David and all his meekness, how he swore to the Lord, made a vow to the God of Jacob, I shall not enter the shelter of my house, climb into my bed, give sleep to my eyes, slumber to my eyelids and rest to my temples, until I find a place for the Lord, a tabernacle for the God of Jacob. See, we heard of it in Ephrata, we found it in the woodland fields. We shall enter his tabernacles, we shall worship towards the place where his feet have stood. Arise, Lord, into your rest, you and the ark of your sanctification. Your priests clothe themselves with justice, and your holy ones will rejoice. For David, your servant’s sake, do not turn away the face of your Christ. The Lord has sworn truth to David and he will not annul it, ‘From the fruit of your womb I shall place on your throne. If your sons keep my covenant and these testimonies of mine which I shall teach them, their sons too will sit on your throne for ever. For the Lord has elected Sion, has chosen her as a dwelling for himself. ‘This is my resting-place for age on age; here I shall dwell, for I have chosen her. Her door I shall bless abundantly, her poor I shall fill with bread. Her priests I shall clothe with salvation, and her holy ones will rejoice with great joy. There I shall make the horn of David flourish; I have prepared a lamp for my Christ. I shall clothe his enemies in shame, my sanctification will flower upon him’.
 
 ****
 
 Psalm 132
 A Song of Ascents
 
-See how good and pleasant it is for brethren to dwell together. Like sweet ointment on the head which runs down upon the beard, AaronÂ’s beard, which runs down to the hem of his garment; like the dew from Hermon, which runs down upon the mountains of Sion; for there the Lord has commanded the blessing: life for ever more.
+See how good and pleasant it is for brethren to dwell together. Like sweet ointment on the head which runs down upon the beard, Aaron’s beard, which runs down to the hem of his garment; like the dew from Hermon, which runs down upon the mountains of Sion; for there the Lord has commanded the blessing: life for ever more.
 
 ****
 
@@ -763,7 +763,7 @@ Psalm 140
 
 \[
 
-**B**\] I cried to you, Lord, I said, Â‘You are my hope; my portion in the land of the living.Â’
+**B**\] I cried to you, Lord, I said, ‘You are my hope; my portion in the land of the living.’
 
 \[
 
@@ -805,7 +805,7 @@ O let your ears be attentive, to the voice of my supplication. ****
 
 2nd Prosomion from the Triodion.
 
-**5.** For your nameÂ’s sake I have waited for you, O Lord. My soul has waited on your word. My soul has hoped in the Lord. ****
+**5.** For your name’s sake I have waited for you, O Lord. My soul has waited on your word. My soul has hoped in the Lord. ****
 
 3rd Prosomion from the Triodion.
 
@@ -875,7 +875,7 @@ Priest:
 
 Reader:
 
-Prokeimenon. Tone Â… Psalm Â… \[**from the Triodion**\] ****
+Prokeimenon. Tone … Psalm … \[**from the Triodion**\] ****
 
 Priest:
 
@@ -897,7 +897,7 @@ Priest:
 
 Reader:
 
-** Prokeimenon. Tone Â…. Psalm Â… ****
+** Prokeimenon. Tone …. Psalm … ****
 
 After the Prokeimenon the Reader says in a loud voice:
 
@@ -967,7 +967,7 @@ Let my prayer be directed like incense before you; the lifting up of my hands be
 
 Priest:
 
-Let my prayer be directed like incense before you Â… ****
+Let my prayer be directed like incense before you … ****
 
 People:
 
@@ -1260,7 +1260,7 @@ To you, O Lord. ****
 
 The priest bows and says the following prayer after setting the Holy Gifts on the holy table.
 
-O God of ineffable and unseen mysteries, with whom are the hidden treasures of wisdom and knowledge, who have revealed to us the service of this ministry and through your great love for humankind appointed us sinners to offer you gifts and sacrifices for our own sins and those committed in ignorance by the people, do you, invisible king, who do great and unfathomable things, things glorious an extraordinary that are without number, look upon us, your unworthy servants, who stand before this your holy altar, as before the throne of the Cherubim, on which, though the dread mysteries here set forth, rests your Son and our God. And, having freed us and your faithful people from all uncleanness, sanctify the souls and bodies of us all with a sanctification that cannot be taken away, so that receiving communion of these divine and holy things with a pure conscience, a face unashamed, an enlightened heart and being given life them, we may be united to your Christ, our true God, who said, Â‘One who eats my flesh and drinks my blood abides in me and I in themÂ’. So that, with your Word, Lord, dwelling in us and living among us, we may become a temple of your holy and adorable Spirit, having been rescued from every wile of the devil effected by word or deed or in the mind; and that we may obtain the good things promised to us, with all your Saints, who have been well-pleasing to you since time began.
+O God of ineffable and unseen mysteries, with whom are the hidden treasures of wisdom and knowledge, who have revealed to us the service of this ministry and through your great love for humankind appointed us sinners to offer you gifts and sacrifices for our own sins and those committed in ignorance by the people, do you, invisible king, who do great and unfathomable things, things glorious an extraordinary that are without number, look upon us, your unworthy servants, who stand before this your holy altar, as before the throne of the Cherubim, on which, though the dread mysteries here set forth, rests your Son and our God. And, having freed us and your faithful people from all uncleanness, sanctify the souls and bodies of us all with a sanctification that cannot be taken away, so that receiving communion of these divine and holy things with a pure conscience, a face unashamed, an enlightened heart and being given life them, we may be united to your Christ, our true God, who said, ‘One who eats my flesh and drinks my blood abides in me and I in them’. So that, with your Word, Lord, dwelling in us and living among us, we may become a temple of your holy and adorable Spirit, having been rescued from every wile of the devil effected by word or deed or in the mind; and that we may obtain the good things promised to us, with all your Saints, who have been well-pleasing to you since time began.
 
 ****
 
@@ -1438,7 +1438,7 @@ Glory. Both now. ****
 
 Psalm 33
 
-I will bless the Lord continually, his praise will always be in my mouth. My soul will be praised in the Lord; let the meek hear it and rejoice. Magnify the Lord with me, let us exalt his name together. I sought the Lord and he heard me, and delivered me from all my afflictions. Come to him and be enlightened, and your faces will not be ashamed. This poor man cried, and the Lord heard him, and saved him from all his afflictions. The angel of the Lord will encamp round those who fear him, and deliver them. Taste and see that the Lord is good. Blessed the one who puts their hope in him! Fear the Lord, all you his saints, for those who fear him never want. The rich have become poor and gone hungry, but those who seek the Lord will not be deprived of any good. Come, children, listen to me, I will teach you the fear of the Lord. Who is there who wants life, loves to see good days? Keep your tongue from evil, and your lips from speaking deceit. Turn away from evil and do good, seek peace and pursue it. The eyes of the Lord are on the just, and his ears towards their supplication. The LordÂ’s face is set against those who do evil, to destroy their memory from the earth. The just cried and the Lord heard them, and delivered them from all their afflictions. The Lord is close to those who are broken-hearted, and will save the humble in spirit. The afflictions of the just are many, but the Lord will deliver them from them all. The Lord guards all their bones, not one of them will be broken. The death of sinners is evil, and those who hate the just will go astray. The Lord will rescue the souls of his servants, and no one of those who hope in him will go astray. ****
+I will bless the Lord continually, his praise will always be in my mouth. My soul will be praised in the Lord; let the meek hear it and rejoice. Magnify the Lord with me, let us exalt his name together. I sought the Lord and he heard me, and delivered me from all my afflictions. Come to him and be enlightened, and your faces will not be ashamed. This poor man cried, and the Lord heard him, and saved him from all his afflictions. The angel of the Lord will encamp round those who fear him, and deliver them. Taste and see that the Lord is good. Blessed the one who puts their hope in him! Fear the Lord, all you his saints, for those who fear him never want. The rich have become poor and gone hungry, but those who seek the Lord will not be deprived of any good. Come, children, listen to me, I will teach you the fear of the Lord. Who is there who wants life, loves to see good days? Keep your tongue from evil, and your lips from speaking deceit. Turn away from evil and do good, seek peace and pursue it. The eyes of the Lord are on the just, and his ears towards their supplication. The Lord’s face is set against those who do evil, to destroy their memory from the earth. The just cried and the Lord heard them, and delivered them from all their afflictions. The Lord is close to those who are broken-hearted, and will save the humble in spirit. The afflictions of the just are many, but the Lord will deliver them from them all. The Lord guards all their bones, not one of them will be broken. The death of sinners is evil, and those who hate the just will go astray. The Lord will rescue the souls of his servants, and no one of those who hope in him will go astray. ****
 
 Priest:
 
@@ -1499,6 +1499,6 @@ I will exalt you, my God, my King; and I will bless your name for ever and to ag
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

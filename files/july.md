@@ -73,15 +73,15 @@ The ranks of Angels were amazed at your life in the flesh, O all-famed, how you 
 
 Taking up the yoke of Christ and laying your cross upon your shoulders, Athanasios, you became an outstanding imitator of his sufferings and a companion of his glory, sharing in divine and unending delight.
 
-**6. Of our venerable father SisoÃ« the Great.**
+**6. Of our venerable father Sisoë the Great.**
 
 **Apolytikion. Tone 1.**
 
-Citizen of the desert and Angel embodied, and wonder-worker you have been declared, O God-bearing father SisoÃ«; by fasting and by vigil and by prayers, receiving gifts of grace from heaven, you heal the sick and the souls of those who have recourse to you in faith. Glory to him who gave you strength! Glory to him who crowned you! Glory to him who through you works healing for all!
+Citizen of the desert and Angel embodied, and wonder-worker you have been declared, O God-bearing father Sisoë; by fasting and by vigil and by prayers, receiving gifts of grace from heaven, you heal the sick and the souls of those who have recourse to you in faith. Glory to him who gave you strength! Glory to him who crowned you! Glory to him who through you works healing for all!
 
 **Kontakion. Tone 4.**
 
-You appeared on earth like an angel by your ascetic life, lighting the minds of the faithful with miracles at every moment ; therefore, venerable SisoÃ«, in faith we honour you.
+You appeared on earth like an angel by your ascetic life, lighting the minds of the faithful with miracles at every moment ; therefore, venerable Sisoë, in faith we honour you.
 
 **7. Of our venerable father Thomas of Malaion and of the holy great martyr Kyriaki.**
 
@@ -382,6 +382,6 @@ Your honoured memory has assembled us to-day at the godly casket of your sacred 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -52,7 +52,7 @@ After the 3rd reading, others.
 
 Let us believers praise.
 
-I tremble at the fearful judgement, and I shudder at the JudgeÂ’s righteous sentence; for my conscience ever questions me; but living with indifference I am at a loss and I quail. By your holy prayers, Archangels, who watch over believers, rescue me from the fire.
+I tremble at the fearful judgement, and I shudder at the Judge’s righteous sentence; for my conscience ever questions me; but living with indifference I am at a loss and I quail. By your holy prayers, Archangels, who watch over believers, rescue me from the fire.
 
 ****
 
@@ -70,7 +70,7 @@ Glory. Both now.
 
 Let us believers praise.
 
-Gabriel marvellously brought to you on earth heavenÂ’s Hail; for seeing the Maker of the Angels incarnate in you, he sang you the song of joy, O Honoured One; through it teaching mortals that you the only cause of joy have appeared to all mankind.
+Gabriel marvellously brought to you on earth heaven’s Hail; for seeing the Maker of the Angels incarnate in you, he sang you the song of joy, O Honoured One; through it teaching mortals that you the only cause of joy have appeared to all mankind.
 
 ****
 
@@ -144,7 +144,7 @@ Because I have sinned in knowledge and in ignorance, I come to you, Christ Lord,
 
 Of the Martyrs.
 
-That you might put to death the living sin and prove the foe was dead, you had no thought, blest Martyrs, for your bodiesÂ’ death.
+That you might put to death the living sin and prove the foe was dead, you had no thought, blest Martyrs, for your bodies’ death.
 
 Embellished with sufferings and adorned with robes dyed in blood, O Martyrs, bearing crowns you now stand before the King of all.
 
@@ -230,7 +230,7 @@ Of the Martyrs.
 
 Tempered by the coals of love, you were revealed, Champions, as swords wrought of heavenly bronze as you cut down serried ranks of adversaries.
 
-Being unenslaved to the foe, O Champions, you enslaved him and appeared as ChristÂ’s true friends.
+Being unenslaved to the foe, O Champions, you enslaved him and appeared as Christ’s true friends.
 
 ****
 
@@ -315,7 +315,7 @@ You gave the wise Champions strength to undergo countless forms of torment; at t
 
 Theotokion.
 
-Blessed are you, O God, who stole into a VirginÂ’s womb and saved mankind, highly praised and highly exalted.
+Blessed are you, O God, who stole into a Virgin’s womb and saved mankind, highly praised and highly exalted.
 
 ****
 
@@ -344,7 +344,7 @@ Troparia.
 
 Through transgressions I have become a corpse, give me life, Lord, that I may glorify you to all the ages.
 
-Make me shine by repentance, deliver me from sinÂ’s darkness, Lord, that I may glorify you to all the ages.
+Make me shine by repentance, deliver me from sin’s darkness, Lord, that I may glorify you to all the ages.
 
 ****
 
@@ -379,7 +379,7 @@ Gate of the Light, Maiden virgin-mother, make those who have recourse to you shi
 
 Ode 9. Irmos.
 
-O blessÃ©d among women and blessed by God, with hymns we, the human race, magnify you.
+O blesséd among women and blessed by God, with hymns we, the human race, magnify you.
 
 ****
 
@@ -443,6 +443,6 @@ Make an end to the toil of my soul with its many groans, All-holy Virgin-mother,
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -34,13 +34,13 @@ Have mercy on us, O Lord, have mercy upon us: for we have our fill of derision; 
 
 Of the Martyrs.
 
-The Champions, who did not long for enjoyment on earth, were found worthy of heavenÂ’s good things and have become fellow citizens of Angels. Lord, at their intercessions have mercy and save us.
+The Champions, who did not long for enjoyment on earth, were found worthy of heaven’s good things and have become fellow citizens of Angels. Lord, at their intercessions have mercy and save us.
 
 Glory. Both now*.*
 
 **Cross-Theotokion. When from the Tree.**
 
-Pure Virgin, when you saw the ripe Grape Cluster that you had carried in your womb unhusbanded hanging on the Tree, lamenting you bewailed him and cried out, Â‘My Child, drop down sweetness, through which may all the drunkenness of the passions be abolished, O Benefactor, by divine supplications through me who gave you birth, for you are compassionateÂ’.
+Pure Virgin, when you saw the ripe Grape Cluster that you had carried in your womb unhusbanded hanging on the Tree, lamenting you bewailed him and cried out, ‘My Child, drop down sweetness, through which may all the drunkenness of the passions be abolished, O Benefactor, by divine supplications through me who gave you birth, for you are compassionate’.
 
 ****
 
@@ -51,6 +51,6 @@ And the rest as on Tuesday.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

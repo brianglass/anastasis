@@ -5,8 +5,8 @@ THE LORD
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-fareast-font-family: Times New Roman; mso-bidi-font-family: Times New Roman; mso-ansi-language: EN-GB; mso-fareast-language: EN-US; mso-bidi-language: AR-SA"></span>
 
-Â‘
---
+‘
+-
 
 S PRAYER
 --------
@@ -18,8 +18,8 @@ S PRAYER
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-fareast-font-family: Times New Roman; mso-bidi-font-family: Times New Roman; mso-ansi-language: EN-GB; mso-fareast-language: EN-US; mso-bidi-language: AR-SA"></span>
 
-[Â‘s Prayer](LP04.pdf)
-----------------------
+[‘s Prayer](LP04.pdf)
+---------------------
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; &lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
 &lt;p&gt;&lt;font size=">The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.</span>
@@ -33,6 +33,6 @@ Liturgy&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

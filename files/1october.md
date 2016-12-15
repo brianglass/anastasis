@@ -722,6 +722,6 @@ You are the Protection of Orthodox Christians, O Virgin, protecting all the fait
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

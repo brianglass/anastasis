@@ -109,7 +109,7 @@ First hymn of Theophanes for the Angels. ****
 
 Irmos. Your triumphant right hand.
 
-As you stand in splendour by the MasterÂ’s throne, all-holy Angels, implore the One who with his Father is without beginning and the Angel of his great counsel to inspire my word as I sing your praise.
+As you stand in splendour by the Master’s throne, all-holy Angels, implore the One who with his Father is without beginning and the Angel of his great counsel to inspire my word as I sing your praise.
 
 The divine Mind, first taking thought, established the ranks of the Angels as mirrors that reflect the light whose source is God and all the radiance of the lamp with triple sun, as far as in them lies.
 
@@ -155,7 +155,7 @@ Holy, pure Bride of God, in holiness you bore the Son and Word, who rests among 
 font-family:&quot;Book Antiqua&quot;">The Seraphim, drawing near immediately to the deifying Light, and wholly filled by it, are radiant with the primal brilliance that is first bestowed, and as second lights by their position they are made divine.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Aiming to hymn with zeal the AngelsÂ‘ radiance, let us believers, with purity of mind and unpolluted mouths, through them ask for help from God, and may we attain their brilliance.</span>
+font-family:&quot;Book Antiqua&quot;">Aiming to hymn with zeal the Angels‘ radiance, let us believers, with purity of mind and unpolluted mouths, through them ask for help from God, and may we attain their brilliance.</span>
 
 ****
 
@@ -164,7 +164,7 @@ font-style:normal">Theotokion</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;ClassGarmnd BT&quot;;
 mso-fareast-font-family:&quot;Times New Roman&quot;;mso-bidi-font-family:&quot;Times New Roman&quot;;
-mso-ansi-language:EN-GB;mso-fareast-language:EN-US;mso-bidi-language:AR-SA">Found worthy as is right to see the Mind beyond all being, Gabriel brought to you, Virgin all-blameless, a message full of the joy, openly declaring to you the WordÂ‘s conception, and proclaiming your ineffable giving birth.</span> ****
+mso-ansi-language:EN-GB;mso-fareast-language:EN-US;mso-bidi-language:AR-SA">Found worthy as is right to see the Mind beyond all being, Gabriel brought to you, Virgin all-blameless, a message full of the joy, openly declaring to you the Word‘s conception, and proclaiming your ineffable giving birth.</span> ****
 
 Ode 4. Irmos.
 
@@ -196,7 +196,7 @@ The Son, who of old was born of the Father who is unbegotten, had his birth in t
 
 Of The Bodiless Powers. Same Irmos.
 
-The Thrones, who fill the first order, the Cherubim and Seraphim shine unceasingly with the rays of the Godhead, while ranked with divine Hierarchies, they now sing, Â‘Glory to your power, O Lord!Â’
+The Thrones, who fill the first order, the Cherubim and Seraphim shine unceasingly with the rays of the Godhead, while ranked with divine Hierarchies, they now sing, ‘Glory to your power, O Lord!’
 
 The Seraphim sing the praise of the threefold unity of the Godhead with thrice-holy hymns and never-silent voices, making clear the most pure mystery of theology and teaching the orthodox Faith.
 
@@ -452,7 +452,7 @@ Do not reject me, held fast by sloth, my Saviour. Rouse my thought to repentance
 
 Of the Martyrs.
 
-Come, all you peoples, and let us honour with hymns and spirituals songs ChristÂ’s Champions, the beacons of the world and heralds of the Faith, the ever-flowing source from which healings spring up for the faithful. At their intercessions, Christ our God, grant peace to your world and to our souls your great mercy.
+Come, all you peoples, and let us honour with hymns and spirituals songs Christ’s Champions, the beacons of the world and heralds of the Faith, the ever-flowing source from which healings spring up for the faithful. At their intercessions, Christ our God, grant peace to your world and to our souls your great mercy.
 
 Glory. Both now.
 
@@ -467,6 +467,6 @@ More holy than all the holy Powers, more honourable than all creation, Mother of
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

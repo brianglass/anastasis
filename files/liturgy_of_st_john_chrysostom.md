@@ -4,13 +4,13 @@ THE DIVINE LITURGY OF OUR FATHER AMONG THE SAINTS
 JOHN CHRYSOSTOM
 -------------------------------------------------
 
-The following translation of the Liturgy of St John Chrysostom is that officially issued by His Eminence Archbishop Gregorios of Thyateira and Great Britain, with the blessing of His All-Holiness the ÂŒcumenical Patriarch Bartholomew for use in the Archdiocese and elsewhere.
+The following translation of the Liturgy of St John Chrysostom is that officially issued by His Eminence Archbishop Gregorios of Thyateira and Great Britain, with the blessing of His All-Holiness the Œcumenical Patriarch Bartholomew for use in the Archdiocese and elsewhere.
 
 In his Patriarchal Letter of Commendation to the translation His All-Holiness declares,
 
 **Through it the whole body of the Most Holy Church that dwells in English-speaking countries and
-that does not know at all, or not adequately, the original language of the sacred liturgical texts of our Orthodox Church will be able to comprehend easily and to take part Â‘in spirit and in truthÂ’ and understanding in what is being celebrated and, in the words of the divine Apostle, to answer Â’AmenÂ’
-to the ChurchÂ’s thanksgiving.**
+that does not know at all, or not adequately, the original language of the sacred liturgical texts of our Orthodox Church will be able to comprehend easily and to take part ‘in spirit and in truth’ and understanding in what is being celebrated and, in the words of the divine Apostle, to answer ’Amen’
+to the Church’s thanksgiving.**
 
 It is in PDF format, for which Adobe Acrobat Reader is required. This may be downloaded freely by following the hyperlink below:
 
@@ -21,11 +21,11 @@ It is in PDF format, for which Adobe Acrobat Reader is required. This may be dow
 [LITURGY OF ST JOHN CHRYSOSTOM](LIT-ENGF%20WWW.pdf)
 ---------------------------------------------------
 
-This translation is copyright to the Archdiocese of Thyateira and Great Britain Â©
+This translation is copyright to the Archdiocese of Thyateira and Great Britain ©
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

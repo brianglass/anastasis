@@ -5,7 +5,7 @@
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 \[ [Back](sat8e.md) \] \[ [Home](./) \] \[ [Up](tone8.md) \] \[ [Next](sun8m.md) \]
 

@@ -45,7 +45,7 @@ You are highly blessed, Virgin Mother of God, for through him who was incarnate 
 
 ****
 
-After Psalm 118, the YpakoÃ¯.
+After Psalm 118, the Ypakoï.
 
 The women coming to your grave after the Passion to anoint your body, Christ God, saw Angels in the tomb and were amazed, for they heard a message from them message, ‘The Lord has risen, granting the world his great mercy’.
 
@@ -508,6 +508,6 @@ Both now. **Theotokion.**
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

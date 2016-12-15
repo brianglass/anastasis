@@ -32,7 +32,7 @@ It is fitting to hymn the glorious **Agapios** of Vatopedi, because he heard the
 
 I praise the radiance of **Athanasios**, the fair palm tree of the Monastery of Esphigmenou, the dazzling struggles of **Akakios** the New and **Akakios** the Martyr, boast of the Skete of Iveron.
 
-The famed **Gerontios** was revealed as the glory of the famous Skete of the Foremother of God, with him let us bless the ascetic life of Saint **Gabriel** of Iveron, who took the wonder-working PortaÃ¯tissa from the sea.
+The famed **Gerontios** was revealed as the glory of the famous Skete of the Foremother of God, with him let us bless the ascetic life of Saint **Gabriel** of Iveron, who took the wonder-working Portaïtissa from the sea.
 
 How shall I not honour revered **Gennadios**, who saw the oil that gushed up from the Mother of God in Vatopedi? How again shall I pass over in silence God-bearing **George**, founder of Iveron?
 
@@ -209,6 +209,6 @@ All we who dwell on the Mountain offer you songs of thanksgiving, Mother of God,
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -88,7 +88,7 @@ To the Son begotten of the Father without change before the ages, and in the las
 
 ****
 
-The YpakoÃ¯. Tone 8.
+The Ypakoï. Tone 8.
 
 An Angel turned the furnace of the Youths to dew, while now he halts the women’s lamentation, saying: Why do you bring sweet spices here? Whom do you seek in a tomb? Christ God has risen, for he is the life and salvation of the human race.
 
@@ -728,6 +728,6 @@ Before the First Hour, the Eothinon.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

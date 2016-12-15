@@ -245,7 +245,7 @@ At your conceiving without seed, O Mother of God, Joseph was struck with wonder 
 
 ****
 
-After Psalm 118, the Evlogitaria, the YpakoÃ¯. Tone 4.
+After Psalm 118, the Evlogitaria, the Ypakoï. Tone 4.
 
 The Myrrh-bearers proclaimed to the Apostles the news of your wondrous Rising, O Christ: that as God you had risen, granting the world your great mercy.
 
@@ -1017,6 +1017,6 @@ Lo, darkness and early dawn. And why, Mary, are you standing by the grave, your 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

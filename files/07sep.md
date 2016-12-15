@@ -243,7 +243,7 @@ Verses
 Eupsychios, courageous \[**eupsychos**\] at the sword,
 Offers his Fashioner his soul with joy.
 
-On the same day is celebrated the dormition of the Venerable LoukÃ¡s of the Eparchy of Lykaonia, third Superior of the Monastery of the Saviour, called ‘Of the Deep Torrent’.
+On the same day is celebrated the dormition of the Venerable Loukás of the Eparchy of Lykaonia, third Superior of the Monastery of the Saviour, called ‘Of the Deep Torrent’.
 
 At the intercessions of your Saints, O God, have mercy on us. Amen.
 
@@ -369,6 +369,6 @@ And the rest as usual, and Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

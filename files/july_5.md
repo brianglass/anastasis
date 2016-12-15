@@ -378,6 +378,6 @@ Mother of God, you are the true vine who gave bud to the fruit of life; we implo
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

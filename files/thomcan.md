@@ -111,6 +111,6 @@ You, O Christ, who arose from the tomb as God, we who see not with our eyes, but
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

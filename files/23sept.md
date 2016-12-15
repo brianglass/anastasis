@@ -190,10 +190,10 @@ Slaughtered the foe and with him error too.
 Peter and Antony like solid rocks \[petrai\]
 Stoutly endured their rending limb from limb.
 
-On the same day, Commemoration of the holy Virgin Martyr RaÃ¯s.
+On the same day, Commemoration of the holy Virgin Martyr Raïs.
 
 **Verses***
-*Longing to see God’s beauty RaÃ¯s gave
+*Longing to see God’s beauty Raïs gave
 The beauty of her flesh up to the sword.
 
 On the same day, Commemoration of the Venerable women Xanthippe and Polyxena, sisters by blood.
@@ -279,6 +279,6 @@ The just will be held in eternal memory.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

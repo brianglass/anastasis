@@ -36,7 +36,7 @@ You are highly glorified, Virgin Mother of God, and we sing your praise, for thr
 
 ****
 
-After Psalm 118, the Evlogitaria and the YpakoÃ¯. Tone 2.
+After Psalm 118, the Evlogitaria and the Ypakoï. Tone 2.
 
 The women coming to your grave after the Passion to anoint your body, Christ our God, saw Angels in the tomb and were amazed, for they heard from them the message, ‘The Lord has risen, granting the world his great mercy’.
 
@@ -710,6 +710,6 @@ It is the day of Resurrection; let us be radiant for the festival, and let us em
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

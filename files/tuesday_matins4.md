@@ -31,7 +31,7 @@ Root which budded with the divine flower, Ark and Lampstand and all-golden Jar, 
 
 After the 2nd Reading, others.
 
-Lament your sloth, my soul, will to turn back moreover before the end, withdraw from lifeÂ’s hubbubs, stick fast to the good God; and he will save, for he loves mankind.
+Lament your sloth, my soul, will to turn back moreover before the end, withdraw from life’s hubbubs, stick fast to the good God; and he will save, for he loves mankind.
 
 ****
 
@@ -53,7 +53,7 @@ The amazing wonder of your conceiving and the inexpressible manner of the child-
 
 After the 3rd Reading, others. Same melody.
 
-Elizabeth has been freed from sterility, while the Virgin, remained once more a Virgin, when at GabrielÂ’s voice she conceived in the womb. But the Forerunner John leaps in the womb having recognised the one in the virgin womb to be God and Master, incarnate for our salvation.
+Elizabeth has been freed from sterility, while the Virgin, remained once more a Virgin, when at Gabriel’s voice she conceived in the womb. But the Forerunner John leaps in the womb having recognised the one in the virgin womb to be God and Master, incarnate for our salvation.
 
 ****
 
@@ -95,7 +95,7 @@ The rheum with which I have covered the eyes of my soul prevents me from seeing 
 
 Of the Martyrs.
 
-You became unsleeping guardians of ChristÂ’s commandments and put to sleep all the wickedness of the foe, blest Athletes. Therefore I beg you, rouse me also who am weighed down by the sleep of sins to the godly awakening of repentance.
+You became unsleeping guardians of Christ’s commandments and put to sleep all the wickedness of the foe, blest Athletes. Therefore I beg you, rouse me also who am weighed down by the sleep of sins to the godly awakening of repentance.
 
 Grappling in flesh with the warlike foe, O Martyrs, you wounded him with the weapon of the Cross and drowned him in streams of blood; and you have received the crowns of victory from God, as you sing and chant a hymn of victory.
 
@@ -117,7 +117,7 @@ Irmos. Christ who brings wars.
 
 You displayed in a material body, O Prophet, a hallowed way of living and an immaterial life; and so we beseech you make those you with faith call you blessed you imitators.
 
-You plunged Christ the deep of compassion in the riverÂ’s streams; implore him, Forerunner, I beg, to dry up the deep of my evils and to enlighten my understanding.
+You plunged Christ the deep of compassion in the river’s streams; implore him, Forerunner, I beg, to dry up the deep of my evils and to enlighten my understanding.
 
 Forerunner of the Saviour, entreat the Lover of mankind, I implore you that I may be given compunction which is cause of the stirrings of repentance and which washes me of the filth of sins.
 
@@ -295,7 +295,7 @@ Calm the raging sea.
 
 Shining with ineffable radiance, Forerunner of Christ, by your active intercession enlighten the hearts of those who devoutly sing your praise.
 
-Rouse me, who am held fast by the sleep of sloth, Forerunner of Christ, enlightening me with grace, fervently to do GodÂ’s wishes.
+Rouse me, who am held fast by the sleep of sloth, Forerunner of Christ, enlightening me with grace, fervently to do God’s wishes.
 
 From every hostile affliction rescue us, who have been enriched with you as godlike champion and intercessor before the Master, blest Saint.
 
@@ -338,7 +338,7 @@ You have been revealed to all, pure Virgin, as a haven of salvation, calming the
 Of the Forerunner. Another Irmos.
 The highly exalted.
 
-With words we beseech you, Forerunner of the Word, as you unloosed your fatherÂ’s voice when you were born, so the halters of our sins.
+With words we beseech you, Forerunner of the Word, as you unloosed your father’s voice when you were born, so the halters of our sins.
 
 O sun of many lights, illumine me with the radiance of salvation and free me from the darkness of the passions which trouble my sombre heart.
 
@@ -471,6 +471,6 @@ Hope of the hopeless, life of the despairing, assistance of those who have recou
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

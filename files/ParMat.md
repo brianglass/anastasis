@@ -35,7 +35,7 @@ All things in heaven rejoiced with longing, all those on earth stood amazed with
 
 After Psalm 118, the Evlogitaria.
 
-Then the YpakoÃ¯. Tone 3.
+Then the Ypakoï. Tone 3.
 
 Terrifying them by his appearance, calming them by his words, the dazzling Angel said to the Myrrh-bearing women: ‘Why do you seek the living in the grave? Know that the Changer of corruption is the Unchangeable; say to God: How fearful are your works! For you have saved the human race.’
 
@@ -612,7 +612,7 @@ Katavasia.
 
 Holy is the Lord our God
 
-**(Â´ 3).**
+**(´ 3).**
 
 Exapostilarion of Easter.
 
@@ -703,6 +703,6 @@ Note that the office of the Paralysed Man is sung for three days: on Sunday, Mon
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

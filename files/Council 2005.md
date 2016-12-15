@@ -34,6 +34,6 @@ Paraschos Anastasiades, Administrator,**
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 25 January 2007**

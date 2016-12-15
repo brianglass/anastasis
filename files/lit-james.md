@@ -77,7 +77,7 @@ Prayer of the Incense at the Entrance
 
 Priest, aloud:
 
-O God, who accepted the gifts of Abel, the sacrifices of NoÃ« and Abraham, the incense of Aaron and Zachary, accept from the hands of us sinners this incense for a sweet fragrance and forgiveness of our sins and those of all your people. For you are blessed and to you belongs glory, to the Father with your only-begotten Son and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages.
+O God, who accepted the gifts of Abel, the sacrifices of Noë and Abraham, the incense of Aaron and Zachary, accept from the hands of us sinners this incense for a sweet fragrance and forgiveness of our sins and those of all your people. For you are blessed and to you belongs glory, to the Father with your only-begotten Son and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages.
 
 ****
 
@@ -425,7 +425,7 @@ God, our God, who sent forth the heavenly Bread, the food of the whole world, ou
 
 He censes the holy Gifts, saying:
 
-Master almighty, King of glory, the God who knows all things before they come to be, be present with us as we call upon you at this holy time, and redeem us from the shame of transgressions. Cleanse our mind and our thoughts from foul desires, worldly deception and every operation of the devil, and accept from the hand of us sinners this incense for an odour of sweet fragrance, as you accepted the offering of Abel and NoÃ«, Aaron and Samuel and all your holy ones, delivering us from every evil deed, and keeping us safe to be always well pleasing to you, and to worship and glorify you, our Father, and your only-begotten Son and your all-holy Spirit, now and for ever, and to the ages of ages. Amen.
+Master almighty, King of glory, the God who knows all things before they come to be, be present with us as we call upon you at this holy time, and redeem us from the shame of transgressions. Cleanse our mind and our thoughts from foul desires, worldly deception and every operation of the devil, and accept from the hand of us sinners this incense for an odour of sweet fragrance, as you accepted the offering of Abel and Noë, Aaron and Samuel and all your holy ones, delivering us from every evil deed, and keeping us safe to be always well pleasing to you, and to worship and glorify you, our Father, and your only-begotten Son and your all-holy Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -1226,6 +1226,6 @@ Blessed is God, who blesses and sanctifies, protects and gives peace, and preser
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

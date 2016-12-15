@@ -11,6 +11,6 @@ Brethren and Fathers, already the Manifestation of God is near and the day of jo
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

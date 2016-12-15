@@ -17,7 +17,7 @@ Lord, I have cried, **we insert 6 Stichera and sing Prosomia, doubling them.**
 
 Tone 4. As noblest of Martyrs.
 
-Revealed as a brightly shining attendant of the three-sunned Godhead, Michael, Chief Captain of the Powers on high, you cry aloud with joy, Â‘Holy are you, O Father, Holy, O Son like him without beginning, Holy also, O Holy Spirit; one glory, one kingship, one nature, one Godhead and powerÂ’.
+Revealed as a brightly shining attendant of the three-sunned Godhead, Michael, Chief Captain of the Powers on high, you cry aloud with joy, ‘Holy are you, O Father, Holy, O Son like him without beginning, Holy also, O Holy Spirit; one glory, one kingship, one nature, one Godhead and power’.
 
 Your form is of fire and your beauty wondrous, Michael, first of the Angels, for with your immaterial nature you pass through the ends of the earth fulfilling the commands of the Maker of all things, acknowledged as powerful in your strength and making your church, honoured with your name, a source of healings.
 
@@ -27,13 +27,13 @@ Glory.
 
 **Tone 6. By Vyzantios.**
 
-Rejoice with us, all you leaders of the Angels, for your commander and our champion, the great Chief Captain, hallows this present day as he appears in his holy place. Therefore as is fitting we sing his praises as we cry out, Â‘Shelter us in the shelter of your wings, great Archangel MichaelÂ’.
+Rejoice with us, all you leaders of the Angels, for your commander and our champion, the great Chief Captain, hallows this present day as he appears in his holy place. Therefore as is fitting we sing his praises as we cry out, ‘Shelter us in the shelter of your wings, great Archangel Michael’.
 
 Both now.
 
 **Theotokion.**
 
-Rejoice with us, all you choirs of Virgins, for our defence and intercessor, protection and great refuge by her revered and godlike concern brings comfort on this present day to the afflicted. Therefore as is fitting we sing her praises as we cry out, Â‘Shelter us by your godlike protection, all-pure Lady, Mother of GodÂ’.
+Rejoice with us, all you choirs of Virgins, for our defence and intercessor, protection and great refuge by her revered and godlike concern brings comfort on this present day to the afflicted. Therefore as is fitting we sing her praises as we cry out, ‘Shelter us by your godlike protection, all-pure Lady, Mother of God’.
 
 ****
 
@@ -83,7 +83,7 @@ AT MATINS
 After the 1st Reading from the Psalter, Kathisma.
 Tone 4. Lifted up on the Cross.
 
-As we frequent your revered temple and in it devoutly magnify you as leader of the immaterial hosts, with faith we beseech you, godlike Chief Captain, Â‘Rescue us all from the tyranny of enemies, and deliver us from the future threat and from Gehenna by your entreatiesÂ’.
+As we frequent your revered temple and in it devoutly magnify you as leader of the immaterial hosts, with faith we beseech you, godlike Chief Captain, ‘Rescue us all from the tyranny of enemies, and deliver us from the future threat and from Gehenna by your entreaties’.
 
 Glory. Both now.
 
@@ -96,7 +96,7 @@ May we, the unworthy, never cease to speak of your acts of power, O Mother of Go
 After the 2nd Reading from the Psalter, Kathisma.
 Tone 4. Lifted up on the Cross.
 
-Chief Captain of the bodiless ministers, you stand in GodÂ’s presence and shine with the radiance that comes from there; make bright and sanctify those who faithfully sing your praise, deliver them from every tyranny of the foe and ask for a peaceful life for the Rulers and for all the ends of the earth.
+Chief Captain of the bodiless ministers, you stand in God’s presence and shine with the radiance that comes from there; make bright and sanctify those who faithfully sing your praise, deliver them from every tyranny of the foe and ask for a peaceful life for the Rulers and for all the ends of the earth.
 
 Glory. Both now.
 
@@ -141,7 +141,7 @@ Lord, who made the Angels a flame of fire as they mightily fulfil your all-holy 
 
 Let us all sing the praise of the loving Lord who has given us as a wall invincible to foes and an immovable support holy Michael who always savings us from dangers.
 
-By your godlike care you ever render your godlike house a place of propitiation for sinners, a refuge for the wronged and a place that puts all diseases to flight, O first of GodÂ’s angels.
+By your godlike care you ever render your godlike house a place of propitiation for sinners, a refuge for the wronged and a place that puts all diseases to flight, O first of God’s angels.
 
 Crush the children of Hagar without ceasing who are roused against us, glorious one, and rescue us from their expectation and oppression, that we may always honour you as our loving protector.
 
@@ -149,7 +149,7 @@ Crush the children of Hagar without ceasing who are roused against us, glorious 
 
 Theotokion.
 
-It is a wonder beyond understanding how God the incomprehensible has been made one with mortals by being born hypostatically from you in the flesh, O Virgin who knew not wedlock, saving me who had been made subject to corruption by the serpentÂ’s fraud.
+It is a wonder beyond understanding how God the incomprehensible has been made one with mortals by being born hypostatically from you in the flesh, O Virgin who knew not wedlock, saving me who had been made subject to corruption by the serpent’s fraud.
 
 ****
 
@@ -191,7 +191,7 @@ Daniel describes you as a great mountain, O Immaculate, while Avvakoum as a moun
 
 Kathisma. Tone 8. The Wisdom and Word.
 
-Having by the CreatorÂ’s command become the leader of the heavenly hosts and minister of the divine glory, you are a saving mediator for Christians, taking them from dangers by you immaterial glory; therefore as it fitting we all praise you as we hymn your godlike festival, Michael, Chief Captain. Intercede with Christ God to grant forgiveness of faults to those who celebrate with love your godlike wonders.
+Having by the Creator’s command become the leader of the heavenly hosts and minister of the divine glory, you are a saving mediator for Christians, taking them from dangers by you immaterial glory; therefore as it fitting we all praise you as we hymn your godlike festival, Michael, Chief Captain. Intercede with Christ God to grant forgiveness of faults to those who celebrate with love your godlike wonders.
 
 Glory. Both now.
 
@@ -219,7 +219,7 @@ Of old the Revealer of sacred mysteries was initiated in mind into the strange m
 
 Another.
 
-As of old you put to flight the horde of SennachirimÂ’s people by your godlike ordinance, so smash the children of Hagar who war and descend on the faithful people, Michael Chief Captain.
+As of old you put to flight the horde of Sennachirim’s people by your godlike ordinance, so smash the children of Hagar who war and descend on the faithful people, Michael Chief Captain.
 
 How fearsome is your form, how truly wondrous your beauty, Michael, how resplendent your glory, which, as you accomplish unnumbered marvels, you reveal to all who love you.
 
@@ -233,7 +233,7 @@ You appeared as a pillar of fire to godly minded Archippos, when a lawless peopl
 
 Theotokion.
 
-Gabriel came bringing you the Â‘HailÂ’ from on high, O All-pure; with him therefore we cry aloud: Hail Gate, through which Christ alone has passed, the God who saves humanity.
+Gabriel came bringing you the ‘Hail’ from on high, O All-pure; with him therefore we cry aloud: Hail Gate, through which Christ alone has passed, the God who saves humanity.
 
 ****
 
@@ -291,7 +291,7 @@ Blessed the people who ever calls you blessed, O blessed one you gave birth to t
 
 Another.
 
-Those who of old wished to obliterate by a riverÂ’s streams the water of blessing which you, Archangel, had granted, you rendered ineffectual by your fearsome visitation.
+Those who of old wished to obliterate by a river’s streams the water of blessing which you, Archangel, had granted, you rendered ineffectual by your fearsome visitation.
 
 Of old Moses struck a rock and waters gushed out; while now, when you struck a rock, the streams of rivers were swallowed up, witnessing still to the marvel, godlike Archangel.
 
@@ -311,7 +311,7 @@ The Prophet foresaw you as a volume in which the Word was written by the finger 
 
 Kontakion. Tone 2. Model melody.
 
-Chief Captain of God, Minister of divine glory, guide of mankind and Prince of the Bodiless Powers, ask for what is for our good and for GodÂ’s great mercy, as Chief Captain of the Bodiless Powers.
+Chief Captain of God, Minister of divine glory, guide of mankind and Prince of the Bodiless Powers, ask for what is for our good and for God’s great mercy, as Chief Captain of the Bodiless Powers.
 
 ****
 
@@ -329,8 +329,8 @@ On the 6th of the month the Commemoration of the amazing wonder that took place 
 
 Verses.
 
-New NoÃ« to your church, Michael, you came,
-At Chonae made an end to riverÂ’s flood.
+New Noë to your church, Michael, you came,
+At Chonae made an end to river’s flood.
 Michael, Chief Captain of the Angel hosts,
 Once on the sixth of the month the flow of the river he funnelled \[chonevse\].
 
@@ -386,10 +386,10 @@ andriki\] Andropelagia went
 To execution, as did Thekla too.
 
 Seaman Theoktistos, his head struck off,
-Steers his soulÂ’s vessel to the vault above.
+Steers his soul’s vessel to the vault above.
 
 Kyriakos a commoner, but by the sword
-A fellow banqueter of MartyrsÂ’ choir.
+A fellow banqueter of Martyrs’ choir.
 
 On the same day there coincided the dedication of the most holy Mother of God at the Second in the house of St Irene.
 
@@ -445,7 +445,7 @@ As skilled pilots, O Archangels, guide safely to the haven of the divine will th
 
 Theotokion.
 
-As bridal escort the godlike Archangel came and addressed with his Â‘Hail!Â’, O Bride of God without bridegroom, the glory of the Angels and the protection and wall of defence of humans.
+As bridal escort the godlike Archangel came and addressed with his ‘Hail!’, O Bride of God without bridegroom, the glory of the Angels and the protection and wall of defence of humans.
 
 ****
 
@@ -513,7 +513,7 @@ All humanity, assemble together and see; contemplate the strange wonder that has
 
 Theotokion. Same melody.
 
-Alas, wretch that I am, through my incontinence of old I was thrust from the greater image in which I shared by GodÂ’s action. But you, O Christ, in your compassion, ineffably became my fellow and shared that which worse, renewing me, O Saviour, from virgin blood.
+Alas, wretch that I am, through my incontinence of old I was thrust from the greater image in which I shared by God’s action. But you, O Christ, in your compassion, ineffably became my fellow and shared that which worse, renewing me, O Saviour, from virgin blood.
 
 ****
 
@@ -547,6 +547,6 @@ Great Doxology and Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

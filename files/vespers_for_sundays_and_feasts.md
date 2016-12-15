@@ -8,15 +8,15 @@ This translation of the Office of Vespers for Sundays and Feasts is intended as 
 
 The underlying Typikon is that of the Holy Mountain of Athos and in most parishes some curtailment may be called for, such as the omission of the reading of the First Kathisma of the Psalter. On the other hand, the common practice of omitting most of the verses of the Lamp-lighting Psalms is most regrettable and should be avoided if possible.
 
-There are a number of differences in Russian use, but these are mostly minor. For example, before the Prokeimenon the Priest greets the People, as at the Liturgy, and the Prokeimenon itself is a dialogue between the Deacon and Choir, and not between the Canonarch or Reader and the Singers, as in Athonite use. *O Joyful Light* and *Now, Master* are usually sung by the Choir rather than being recited by the Superior. Other differences have more to do with the fact that most Russian churches celebrate a highly abbreviated Â‘All-night VigilÂ’ on Saturday evenings, rather than Vespers only.
+There are a number of differences in Russian use, but these are mostly minor. For example, before the Prokeimenon the Priest greets the People, as at the Liturgy, and the Prokeimenon itself is a dialogue between the Deacon and Choir, and not between the Canonarch or Reader and the Singers, as in Athonite use. *O Joyful Light* and *Now, Master* are usually sung by the Choir rather than being recited by the Superior. Other differences have more to do with the fact that most Russian churches celebrate a highly abbreviated ‘All-night Vigil’ on Saturday evenings, rather than Vespers only.
 
 Technical jargon has been kept to a minimum, but a few words are explained in a short Glossary at the end. In the text these are underlined. There is as yet no generally agreed practice as to which technical terms should be anglicised and which left in their Greek or Slav dress. As in Church Slavonic, no doubt some words will be retained in their Greek form, e.g. *Kathisma*, while others will in the end be anglicised, e.g. *prostration* for a full *metania.*
 
-The Psalms have been translated from the Septuagint because this has been the ChurchÂ’s Psalter for nearly two thousand years and the prayers and hymns of the Church are frequently little more than a mosaic of words and phrases from it. The use of any other Psalter obscures or destroys many of these intentional echoes and cross references. Since this is a practical edition scriptural and other references have not been given in footnotes. In the future it may be possible to provide an edition with these, together with a brief commentary.
+The Psalms have been translated from the Septuagint because this has been the Church’s Psalter for nearly two thousand years and the prayers and hymns of the Church are frequently little more than a mosaic of words and phrases from it. The use of any other Psalter obscures or destroys many of these intentional echoes and cross references. Since this is a practical edition scriptural and other references have not been given in footnotes. In the future it may be possible to provide an edition with these, together with a brief commentary.
 
 For completeness, we have included the text of the Ninth Hour, which should immediately precede Vespers.
 
-In an Appendix we note the differences for the celebration of Daily Vespers, since these are not numerous. Another Appendix gives the ending of Vespers on Sundays in Lent. The details of Daily Vespers in Lent can be found  by clicking the following hyperlink [Lenten Offices](lenten_offices.md). As it is easy with modern equipment to produce this separately, we believe it is preferable to do so, rather than have a book where every other paragraph begins Â‘But if it isÂ…Â’.
+In an Appendix we note the differences for the celebration of Daily Vespers, since these are not numerous. Another Appendix gives the ending of Vespers on Sundays in Lent. The details of Daily Vespers in Lent can be found  by clicking the following hyperlink [Lenten Offices](lenten_offices.md). As it is easy with modern equipment to produce this separately, we believe it is preferable to do so, rather than have a book where every other paragraph begins ‘But if it is…’.
 
 The text of the Litanies and other hymns and prayers which occur in the Divine Liturgy are taken from the bilingual edition of the Liturgy published with the blessing of the Archbishop of Thyateira and Great Britain.
 
@@ -26,7 +26,7 @@ FOR SUNDAYS AND FEASTS
 
 ****
 
-After the Dismissal of the Ninth Hour the Priest and Deacon, having made a metania to the BishopÂ’s stall, venerated the icons and bowed to the two Choirs, enter the Sanctuary by the side doors. They make three bows to the Holy Table and the Priest kisses the Holy Table and the Gospel.
+After the Dismissal of the Ninth Hour the Priest and Deacon, having made a metania to the Bishop’s stall, venerated the icons and bowed to the two Choirs, enter the Sanctuary by the side doors. They make three bows to the Holy Table and the Priest kisses the Holy Table and the Gospel.
 
 Then, vested in the Epitrachelion, he opens the curtain of the Holy Doors and, standing uncovered in front of the Holy Table, gives the blessing as follows:
 
@@ -34,7 +34,7 @@ Blessed is our God, always, now and for ever, and to the ages of ages.
 
 ****
 
-Then the Superior, or the appointed person, reads the Opening Psalm, one of the Â‘GerontikaÂ’, as follows:
+Then the Superior, or the appointed person, reads the Opening Psalm, one of the ‘Gerontika’, as follows:
 
 Amen.
 
@@ -46,7 +46,7 @@ Come, let us worship and fall down before Christ himself, the King and our God.
 
 Psalm 103
 
-Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains will rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heronÂ’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth was filled with your creation. See, this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. ****
+Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains will rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heron’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth was filled with your creation. See, this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. ****
 
 If the Anixantaria are to be sung, the Reader only reads as far as this.
 
@@ -68,7 +68,7 @@ Alleluia, Alleluia, Alleluia. Glory to you, O God.
 
 **(x3)**
 
-While the Opening Psalm is being read the Priest, bareheaded and standing in front of the Holy Table, says quietly the following Prayers at the Lighting of the Lamps, having first blessed the DeaconÂ’s Sticharion and Orarion as usual.
+While the Opening Psalm is being read the Priest, bareheaded and standing in front of the Holy Table, says quietly the following Prayers at the Lighting of the Lamps, having first blessed the Deacon’s Sticharion and Orarion as usual.
 
 1st Prayer
 
@@ -198,7 +198,7 @@ A Psalm of David.
 
 ****
 
-Why were the nations insolent and why did the peoples meditate vain things? The kings of the earth stood up and the rulers were assembled together against the Lord and against his Christ. Â‘Let us break through their bonds and cast away their yoke from us.Â’ He that dwells in heaven will laugh them to scorn and the Lord will mock them. Then he will speak to them in his anger and panic them in his fury. But I was established as king by him, on Sion his holy mountain announcing the LordÂ’s decree: The Lord said to me, Â‘You are my Son. Today I have begotten you. Ask me, and I shall give you nations as your inheritance, and the ends of the earth as your possession. You will shepherd them with an iron rod; like a potterÂ’s vessels you will smash them.Â’ And now, kings, understand; be corrected, all who judge the earth. Serve the Lord in fear and rejoice in him with trembling. Accept correction, lest the Lord be angry, and you perish from the right way whenever his fury is suddenly kindled. Blessed are all who have put their trust in him.
+Why were the nations insolent and why did the peoples meditate vain things? The kings of the earth stood up and the rulers were assembled together against the Lord and against his Christ. ‘Let us break through their bonds and cast away their yoke from us.’ He that dwells in heaven will laugh them to scorn and the Lord will mock them. Then he will speak to them in his anger and panic them in his fury. But I was established as king by him, on Sion his holy mountain announcing the Lord’s decree: The Lord said to me, ‘You are my Son. Today I have begotten you. Ask me, and I shall give you nations as your inheritance, and the ends of the earth as your possession. You will shepherd them with an iron rod; like a potter’s vessels you will smash them.’ And now, kings, understand; be corrected, all who judge the earth. Serve the Lord in fear and rejoice in him with trembling. Accept correction, lest the Lord be angry, and you perish from the right way whenever his fury is suddenly kindled. Blessed are all who have put their trust in him.
 
 ****
 
@@ -208,7 +208,7 @@ when he fled from his son Absalom in the wilderness.
 
 ****
 
-Lord, why have those who afflict me been multiplied? Many rise up against me. Many say to my soul, Â‘There is no salvation for him in his God.Â’ But you, Lord, are my protector, my glory, and the one who lifts up my head. I cried to the Lord with my voice and he heard me from his holy mountain. I lay down and slept; I have been roused, because the Lord will protect me. I shall not be afraid of tens of thousands of people who attack me from every side. Arise, Lord; save me, my God, because you have struck all who are vainly my foes, you have smashed the teeth of sinners. Salvation is the LordÂ’s, and your blessing is upon your people.
+Lord, why have those who afflict me been multiplied? Many rise up against me. Many say to my soul, ‘There is no salvation for him in his God.’ But you, Lord, are my protector, my glory, and the one who lifts up my head. I cried to the Lord with my voice and he heard me from his holy mountain. I lay down and slept; I have been roused, because the Lord will protect me. I shall not be afraid of tens of thousands of people who attack me from every side. Arise, Lord; save me, my God, because you have struck all who are vainly my foes, you have smashed the teeth of sinners. Salvation is the Lord’s, and your blessing is upon your people.
 
 Glory to the Father and to the Son and to the Holy Spirit.
 
@@ -257,7 +257,7 @@ To the end. In hymns, for the eighth. A Psalm of David.
 
 ****
 
-O Lord, do not rebuke me in your anger, nor chastise me in your wrath. Have mercy on me, Lord, for I am weak; heal me for my bones have been troubled and my soul exceedingly troubled; but you, Lord, how long? Turn back, O Lord, deliver my soul; save me for your mercyÂ’s sake. For in death no one remembers you, and in Hell who will confess you? I have toiled in my groaning, every night I shall wash my bed and drench my couch with my tears. My eye has been troubled through anger, I have grown old among all my foes. Depart from me all you evil doers, for the Lord has heard the voice of my weeping. The Lord has heard my supplication, the Lord has accepted my prayer. Let all my enemies be ashamed and greatly troubled, let them be turned back and speedily be utterly ashamed.
+O Lord, do not rebuke me in your anger, nor chastise me in your wrath. Have mercy on me, Lord, for I am weak; heal me for my bones have been troubled and my soul exceedingly troubled; but you, Lord, how long? Turn back, O Lord, deliver my soul; save me for your mercy’s sake. For in death no one remembers you, and in Hell who will confess you? I have toiled in my groaning, every night I shall wash my bed and drench my couch with my tears. My eye has been troubled through anger, I have grown old among all my foes. Depart from me all you evil doers, for the Lord has heard the voice of my weeping. The Lord has heard my supplication, the Lord has accepted my prayer. Let all my enemies be ashamed and greatly troubled, let them be turned back and speedily be utterly ashamed.
 
 Glory to the Father and to the Son and to the Holy Spirit.
 
@@ -423,7 +423,7 @@ Escape is gone from me, and there is none who seeks for my soul. ****
 
 \[B\]
 
-I cried to you, Lord, I said, Â‘You are my hope; my portion in the land of the living.Â’ ****
+I cried to you, Lord, I said, ‘You are my hope; my portion in the land of the living.’ ****
 
 \[A\]
 
@@ -460,7 +460,7 @@ For 6 Verses.
 
 **6.** **** If you, Lord, should mark iniquities, Lord, who will stand? But there is forgiveness with you. ****
 
-**5.** **** For your nameÂ’s sake I have waited for you, O Lord. My soul has waited on your word. My soul has hoped in the Lord. ****
+**5.** **** For your name’s sake I have waited for you, O Lord. My soul has waited on your word. My soul has hoped in the Lord. ****
 
 For 4 Verses.
 
@@ -476,7 +476,7 @@ Psalm 116
 
 **1.** **** For his mercy has been mighty towards us, and the truth of the Lord endures to the ages.
 
-GloryÂ… Both nowÂ…
+Glory… Both now…
 
 ****
 
@@ -979,7 +979,7 @@ Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ev
 
 ****
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -1043,7 +1043,7 @@ Both now.
 
 O Good one, born of a Virgin for our sakes and who endured crucifixion, who despoiled death by death and as God revealed resurrection, do not despise those whom you fashioned with your own hand; show your love for mankind, O Merciful; accept the Mother of God who bore you, as she intercedes for us, and save, O Saviour, a people in despair.
 
-For your holy nameÂ’s sake do not finally reject us, do not annul your covenant, do not take your mercy from us for the sake of Abraham, your beloved, and for the sake of Isaac, your servant, and Israel, your holy one.
+For your holy name’s sake do not finally reject us, do not annul your covenant, do not take your mercy from us for the sake of Abraham, your beloved, and for the sake of Isaac, your servant, and Israel, your holy one.
 
 Holy God, Holy Strong, Holy Immortal, have mercy on us.
 
@@ -1051,7 +1051,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -1087,7 +1087,7 @@ Then the Superior says this
 
 Prayer of Saint Basil the Great
 
-Master, Lord Jesus Christ, our God, who have long endured our transgressions, and brought us to this hour in which, hanging on the life-giving tree, you showed the good Thief the way into Paradise and destroyed death by death, have mercy also on us sinners and your unworthy servants. For we have sinned and transgressed, and are not worthy to raise our eyes and look on the height of heaven, because we have abandoned the way of your justice and walked in the will of our hearts. But we implore your unbounded goodness: spare us, O Lord, according to the multitude of your mercy, and save us for your holy nameÂ’s sake, for our days have been wasted in vanity. Rescue us from the hand of our opponent, forgive us our sins, slay our carnal will, so that we, having put off the old man, may put on the new, and live for you, our Master and Benefactor; and that thus following your precepts we may reach eternal rest, where those who rejoice have their dwelling. For you are the true joy and gladness of those who love you, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
+Master, Lord Jesus Christ, our God, who have long endured our transgressions, and brought us to this hour in which, hanging on the life-giving tree, you showed the good Thief the way into Paradise and destroyed death by death, have mercy also on us sinners and your unworthy servants. For we have sinned and transgressed, and are not worthy to raise our eyes and look on the height of heaven, because we have abandoned the way of your justice and walked in the will of our hearts. But we implore your unbounded goodness: spare us, O Lord, according to the multitude of your mercy, and save us for your holy name’s sake, for our days have been wasted in vanity. Rescue us from the hand of our opponent, forgive us our sins, slay our carnal will, so that we, having put off the old man, may put on the new, and live for you, our Master and Benefactor; and that thus following your precepts we may reach eternal rest, where those who rejoice have their dwelling. For you are the true joy and gladness of those who love you, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -1119,13 +1119,13 @@ On ordinary weekdays Vespers is celebrated as follows:
 
 The Priest reads the seven prayers **outside** the Sanctuary and remains there for the Litany of Peace. He should remain outside the Sanctuary for the whole service, except for the censing of the church.
 
-He enters the Sanctuary at Â‘Lord, I have criedÂ’ for the censing of the Church. This is done as usual, but the Priest vests only in the Epitrachelion.
+He enters the Sanctuary at ‘Lord, I have cried’ for the censing of the Church. This is done as usual, but the Priest vests only in the Epitrachelion.
 
-Only six stichera are sung at Â‘Lord, I have criedÂ’. Normally 3 from the Paraklitiki and 3 from the Menaion. In this case it is the custom in many places to sing 2 from the first set in the Paraklitiki and 1 from the second. If the Saint of the day has a Doxastikon, then 6 Stichera are sung from the Menaion, the 3 appointed being doubled. In this case the Theotokion is the one from the Menaion.
+Only six stichera are sung at ‘Lord, I have cried’. Normally 3 from the Paraklitiki and 3 from the Menaion. In this case it is the custom in many places to sing 2 from the first set in the Paraklitiki and 1 from the second. If the Saint of the day has a Doxastikon, then 6 Stichera are sung from the Menaion, the 3 appointed being doubled. In this case the Theotokion is the one from the Menaion.
 
-There is no Entrance, but immediately after the hymn Â‘O Joyful LightÂ’ the Priest announces Â‘Prokeimenon of the eveningÂ’.
+There is no Entrance, but immediately after the hymn ‘O Joyful Light’ the Priest announces ‘Prokeimenon of the evening’.
 
-The Prokeimenon is followed at once by the prayer Â‘Grant, LordÂ’ and the Litany is displaced until later.
+The Prokeimenon is followed at once by the prayer ‘Grant, Lord’ and the Litany is displaced until later.
 
 The verses for the Aposticha are the following:
 
@@ -1193,7 +1193,7 @@ May Christ our true God, at the prayers of his most pure and holy Mother; of the
 
 NOTE ON THE DISMISSAL
 
-According to the strict Typikon only Saints who are Â‘feastedÂ’, that is those who have at least one doxastikon at Vespers, should be mentioned in the Dismissal. It is
+According to the strict Typikon only Saints who are ‘feasted’, that is those who have at least one doxastikon at Vespers, should be mentioned in the Dismissal. It is
 
 **not** the moment to read out all the small print from the Synaxarion. There is much variety in the details of the Dismissal in the various books and traditions. ****
 
@@ -1201,7 +1201,7 @@ GENERAL NOTE ON THE CELEBRATION OF VESPERS
 
 The liturgical books assume that the offices are sung by two choirs, that face each other across the church. Choir A, the right-hand choir, stands on the north side of the church and Choir B, the left -hand choir, on the south. Choir A is that of chief singer, or *Protopsaltes*, and Choir B that of the second singer, or *Lampadarios*. Choir A normally takes the lead. The letters
 
-**\[A\]** and **\[B\]** at Â‘Lord, I have criedÂ’ indicate this. This means that Choir A sings Â‘GloryÂ’ and the first Doxastikon and Choir B Â‘Both nowÂ’ and the first Theotokion. If there is no special Doxastikon, as will frequently be the case on Saturday evening, Choir A sings Â‘GloryÂ’, Choir B Â‘Both nowÂ’ and Choir A the actual Doxastikon/Theotokion.
+**\[A\]** and **\[B\]** at ‘Lord, I have cried’ indicate this. This means that Choir A sings ‘Glory’ and the first Doxastikon and Choir B ‘Both now’ and the first Theotokion. If there is no special Doxastikon, as will frequently be the case on Saturday evening, Choir A sings ‘Glory’, Choir B ‘Both now’ and Choir A the actual Doxastikon/Theotokion.
 
 For the singing of the Stichera, it is usual for the chief singer in each choir to take the first Sticheron for their side. Normally the senior person on each side is then asked to sing the second and the third may be offered to a visiting priest or distinguished visitor or singer. Any remaining Stichera are then shared among the other people in each choir.
 
@@ -1209,15 +1209,15 @@ At the Aposticha, Choir
 
 **B** sings the Doxastikon. This means that on Saturday evening Choir **B** **** should start the Aposticha, since there are 4 stichera. On Weekdays there are only 3, and so Choir **A** starts the Aposticha. In this way each Choir sings one of the two Doxastika.
 
-In some monasteries the Â‘leadingÂ’ choir changes at Vespers each Saturday, the cycle beginning at the Matins of Pascha.
+In some monasteries the ‘leading’ choir changes at Vespers each Saturday, the cycle beginning at the Matins of Pascha.
 
 The Apolytikia are should be sung in the same way by the two Choirs.
 
-On Sundays and Feasts, the Â‘ResurrectionÂ’ Theotokion of the Apolytikion is always sung in the Tone of the
+On Sundays and Feasts, the ‘Resurrection’ Theotokion of the Apolytikion is always sung in the Tone of the
 
 **immediately preceding** **** Apolytikion. This means that on Saturday evening the Theotokion may not be the one in the Tone of the week.
 
-In the monasteries of the Holy Mountain it is customary for the following dialogue to be added at the end of the Dismissal, before the final Â‘Through the prayersÂ…Â’:
+In the monasteries of the Holy Mountain it is customary for the following dialogue to be added at the end of the Dismissal, before the final ‘Through the prayers…’:
 
 ****
 
@@ -1255,15 +1255,15 @@ GLOSSARY
 
 Anixantaria.
 
-On major feasts, and especially at All-night Vigils, the closing verses of the Opening Psalm are often sung to a solemn and protracted melody. The verses are Â‘farcedÂ’ with short hymns of praise, such as Â‘Glory to you, Holy One. Glory to you, Lord. Glory to you, heavenly King. Glory to you, O God. AlleluiaÂ’. The singers take up the Psalm from the verse that begins Â‘When you openÂ’, in Greek *Anixantos sou*, hence the name *Anixantaria.* ****
+On major feasts, and especially at All-night Vigils, the closing verses of the Opening Psalm are often sung to a solemn and protracted melody. The verses are ‘farced’ with short hymns of praise, such as ‘Glory to you, Holy One. Glory to you, Lord. Glory to you, heavenly King. Glory to you, O God. Alleluia’. The singers take up the Psalm from the verse that begins ‘When you open’, in Greek *Anixantos sou*, hence the name *Anixantaria.* ****
 
 Apolytikion.
 
-The hymn that precedes the Dismissal (Greek *Apolysis*)*.* It is the characteristic hymn of the day or the feast, and is often referred to simply as Â‘the Troparion of the DayÂ’. It is used at all the offices and at the Liturgy. ****
+The hymn that precedes the Dismissal (Greek *Apolysis*)*.* It is the characteristic hymn of the day or the feast, and is often referred to simply as ‘the Troparion of the Day’. It is used at all the offices and at the Liturgy. ****
 
 Aposticha.
 
-The series of hymns and alternating Psalm verses which are sung towards the end of Vespers and daily Matins. In Greek *stichos* means Â‘verseÂ’. ****
+The series of hymns and alternating Psalm verses which are sung towards the end of Vespers and daily Matins. In Greek *stichos* means ‘verse’. ****
 
 Artoklasia.
 
@@ -1275,7 +1275,7 @@ Canonarch.
 
 Doxastikon.
 
-A hymn sung after the short doxology Â‘Glory (Greek Â‘doxaÂ’) to the Father and to the Son and to the Holy SpiritÂ’. It is normally sung to a slower and more elaborate melody than the preceding hymns. ****
+A hymn sung after the short doxology ‘Glory (Greek ‘doxa’) to the Father and to the Son and to the Holy Spirit’. It is normally sung to a slower and more elaborate melody than the preceding hymns. ****
 
 Epitrachelion.
 
@@ -1291,7 +1291,7 @@ One of the twenty sections into which the Psalter is divided for liturgical purp
 
 Menaion.
 
-From the Greek word for Â‘monthlyÂ’. The book containing the services for days of the Month. There are thus twelve volumes of the *Menaia*. For places without a full set of *Menaia* there exists in both Greek and Slavonic a volume containing general offices for each category of Saint called the *General Menaion.* The contents of the Greek and Slavonic *General Menaia* are not quite the same, the Slavonic containing more offices, and texts for a full Vigil for each category of Saint including the Lord and the Mother of God. ****
+From the Greek word for ‘monthly’. The book containing the services for days of the Month. There are thus twelve volumes of the *Menaia*. For places without a full set of *Menaia* there exists in both Greek and Slavonic a volume containing general offices for each category of Saint called the *General Menaion.* The contents of the Greek and Slavonic *General Menaia* are not quite the same, the Slavonic containing more offices, and texts for a full Vigil for each category of Saint including the Lord and the Mother of God. ****
 
 Metania.
 
@@ -1299,11 +1299,11 @@ Metania.
 
 Orarion.
 
-** The DeaconÂ’s stole. It is worn on the left shoulder and sometimes taken across diagonally under the right arm and again over the left shoulder. It is also worn crossed on the back by readers and sub-deacons. ****
+** The Deacon’s stole. It is worn on the left shoulder and sometimes taken across diagonally under the right arm and again over the left shoulder. It is also worn crossed on the back by readers and sub-deacons. ****
 
 Phelonion.
 
-The Eastern equivalent of the Western *chasuble.* The rubrics direct that the priest is to *lower the phelonion*, that is to let it fall over his hands, at the moment of the Dismissal. This indicates that the work of the service is over, rather like rolling down oneÂ’s sleeves. Russian *phelonia* often have a row of buttons across the chest so that the front of the vestment can be raised or lowered. ****
+The Eastern equivalent of the Western *chasuble.* The rubrics direct that the priest is to *lower the phelonion*, that is to let it fall over his hands, at the moment of the Dismissal. This indicates that the work of the service is over, rather like rolling down one’s sleeves. Russian *phelonia* often have a row of buttons across the chest so that the front of the vestment can be raised or lowered. ****
 
 Prokeimenon.
 
@@ -1315,11 +1315,11 @@ A tunic-like vestment, resembling the Western *dalmatic*, when worn by servers, 
 
 Sticheron.
 
-A hymn that precedes or follows a verse, in Greek *stichos*, from the Psalms. At Â‘Lord, I have criedÂ’ at Vespers and Â‘Let everything that has breathÂ’ ** at Lauds the *stichera* follow the Psalm verses; at the *Aposticha* they precede them. ****
+A hymn that precedes or follows a verse, in Greek *stichos*, from the Psalms. At ‘Lord, I have cried’ at Vespers and ‘Let everything that has breath’ ** at Lauds the *stichera* follow the Psalm verses; at the *Aposticha* they precede them. ****
 
 Theotokion
 
-*.* Most series of hymns end with one to the Mother of God, the Theotokos, and so a *Theotokion* commonly follows the second part of the short doxology, Â‘Both now and for ever, and to the ages of ages. AmenÂ’*,* and is normally sung in the same Tone as the preceding Doxastikon*.* On Saturday evening, however, the *Theotokion* at the Entrance is always that of the Tone of the week, regardless of the Tone of the Doxastikon. It is also sung again at Vespers sung on the following Friday. In Russian usage this *Theotokion* is called the *Dogmatic*, whereas in Greek the latter name is used for the corresponding *Theotokion* at Small Vespers. ****
+*.* Most series of hymns end with one to the Mother of God, the Theotokos, and so a *Theotokion* commonly follows the second part of the short doxology, ‘Both now and for ever, and to the ages of ages. Amen’*,* and is normally sung in the same Tone as the preceding Doxastikon*.* On Saturday evening, however, the *Theotokion* at the Entrance is always that of the Tone of the week, regardless of the Tone of the Doxastikon. It is also sung again at Vespers sung on the following Friday. In Russian usage this *Theotokion* is called the *Dogmatic*, whereas in Greek the latter name is used for the corresponding *Theotokion* at Small Vespers. ****
 
 Typikon:
 
@@ -1332,6 +1332,6 @@ Any hymn may be called a Troparion, but the word more commonly indicates the *Ap
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

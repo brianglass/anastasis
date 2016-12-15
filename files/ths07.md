@@ -4,9 +4,9 @@
 
 The feast seems to have fallen in the second half of May in the year that St Theodore gave this instruction, since he refers to the recent celebration of St Pachomius, whose feast falls on 15 May.
 
-The quotation from 1 Timothy 3,16 is one of the key quotations in the liturgical texts for the feast. All the texts in the New Testament speak of ChristÂ’s being Â‘taken upÂ’, and this language has been preserved in the hymns of the Church. The Greek name of the feast means Â‘AssumptionÂ’, not Â‘AscensionÂ’, which comes from the Latin name for the feast.
+The quotation from 1 Timothy 3,16 is one of the key quotations in the liturgical texts for the feast. All the texts in the New Testament speak of Christ’s being ‘taken up’, and this language has been preserved in the hymns of the Church. The Greek name of the feast means ‘Assumption’, not ‘Ascension’, which comes from the Latin name for the feast.
 
-Apart from the necessary change of person in the verb, the whole clause Â‘he descended into the lowest parts of the earthÂ’ is the opening of the Irmos of the 6th Ode of St John of DamascusÂ’s Easter Canon, which St Theodore would have known.
+Apart from the necessary change of person in the verb, the whole clause ‘he descended into the lowest parts of the earth’ is the opening of the Irmos of the 6th Ode of St John of Damascus’s Easter Canon, which St Theodore would have known.
 
 ------------------------------------------------------------------------
 
@@ -26,6 +26,6 @@ But we, brethren, let us hold fast to the confession *in which we stand, and let
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

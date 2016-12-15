@@ -203,7 +203,7 @@ Because of you, O Full of grace, all creation rejoices, the ranks of Angels and 
 
 ****
 
-After Psalm 118, the Evlogitaria and the YpakoÃ¯. Tone 8.
+After Psalm 118, the Evlogitaria and the Ypakoï. Tone 8.
 
 The myrrh-bearing women standing at the grave of the Giver of life were seeking the immortal Master among the dead; and when they received the good tidings of joy from the Angel they revealed to the Apostles that Christ had risen, granting the world his great mercy.
 
@@ -534,6 +534,6 @@ Great Doxology and Resurrection Troparion.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

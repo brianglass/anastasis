@@ -44,7 +44,7 @@ Verse 1.
 
 To you I lift up my eyes, to you who are enthroned in the heavens. As the eyes of servants look to the hand of their master: or as the eyes of a maid toward the hand of her mistress, so our eyes look to the Lord our God: until he show us his mercy.
 
-At your dread coming, O Christ, do not let us hear, Â‘I do not know youÂ’; for we have put our hope in you, the Saviour, even though we have not done your commands through our indifference: but spare our souls we beg.
+At your dread coming, O Christ, do not let us hear, ‘I do not know you’; for we have put our hope in you, the Saviour, even though we have not done your commands through our indifference: but spare our souls we beg.
 
 ****
 
@@ -86,13 +86,13 @@ Condemned by my life of a wastrel, I fall down before you, who are glorified bey
 
 Wholly condemned by wickedness, wholly drowned by despair, I am utterly evil and dark. I am wholly and utterly marked by unseemly pleasures; wholly and terribly ruined and ill-treated. I fall at your footprints, blessed John. Do not cast me away, but save me, friend and Forerunner of the Lord.
 
-Deliver my soul from the bitter death of sin and faults, O Forerunner, and make me lives by the godly works of ChristÂ’s commandments by the power of your intercessions. Put an end to wars that are invisibly waged against me, and guide my by the straight paths of saving and eternal rest by your entreaties to God.
+Deliver my soul from the bitter death of sin and faults, O Forerunner, and make me lives by the godly works of Christ’s commandments by the power of your intercessions. Put an end to wars that are invisibly waged against me, and guide my by the straight paths of saving and eternal rest by your entreaties to God.
 
 Glory. Both now.
 
 **Theotokion. Having placed all your hope.**
 
-Remembrance of wrongs is a sign of anger and temper is a manifestation of anger. Through them absurdities of insults shamelessly leap up from the wretched mouth, making the one who is activated by them liable to GehennaÂ’s fire, as it written. Therefore, soul, keep watch, flee bitter temper, anger, wrath and insolence and every foul-smelling excess, as you cry out to the Mother of God, Â‘My Lady, save me!Â’
+Remembrance of wrongs is a sign of anger and temper is a manifestation of anger. Through them absurdities of insults shamelessly leap up from the wretched mouth, making the one who is activated by them liable to Gehenna’s fire, as it written. Therefore, soul, keep watch, flee bitter temper, anger, wrath and insolence and every foul-smelling excess, as you cry out to the Mother of God, ‘My Lady, save me!’
 
 ****
 
@@ -100,7 +100,7 @@ Aposticha of Compunction.
 
 I have not gained repentance, nor again tears, therefore I implore you, O Saviour, before the end to turn me back and give me compunction, that I may be delivered from punishment.
 
-At your dread Coming, O Christ, may we not hear, Â‘I do not know youÂ’, for we have put our hope in you, our Saviour, though we do not carry out your commands through our indifference. But spare our souls, we beg.
+At your dread Coming, O Christ, may we not hear, ‘I do not know you’, for we have put our hope in you, our Saviour, though we do not carry out your commands through our indifference. But spare our souls, we beg.
 
 ****
 
@@ -128,13 +128,13 @@ God, who wish that should be saved, look upon and see my prayer, and do no rejec
 
 In your love for mankind, O Compassionate, raise me up, who have been swallowed down by sins and torn in pieces by love of pleasures. Do not let me become an object of malignant joy to demons. Do not dismiss me as unworthy of your dread mysteries. But accept me as you are merciful before the groans and tears of my departure, and free from the passions.
 
-Lament, my soul, before your departure; fall down before the Creator in repentance; offer tears from your whole heart; cry out to Christ in compunction, Â‘I have sinned against you, O Word, do not despise me, do not reject me, just Judge, nor send me away to fire, O Long-suffering, through your great mercy.Â’
+Lament, my soul, before your departure; fall down before the Creator in repentance; offer tears from your whole heart; cry out to Christ in compunction, ‘I have sinned against you, O Word, do not despise me, do not reject me, just Judge, nor send me away to fire, O Long-suffering, through your great mercy.’
 
 ****
 
 Others, of the Mother of God. Having placed all your hope.
 
-Â‘The marriage of the heavenly Bridegroom has been preparedÂ’, cry the heralds. Why do you willingly delay, my black soul? Truly everything about is filthy, your garments are those of sensuality, and so how, wretch, are you going to enter? Come, fall down, crying out before the end to her who did not know wedlock, Â‘Sprinkle me with the hyssop of your intercessions, pure Virgin, cleanse me and make me worthy of the bridal chamber, that I may magnify you.
+‘The marriage of the heavenly Bridegroom has been prepared’, cry the heralds. Why do you willingly delay, my black soul? Truly everything about is filthy, your garments are those of sensuality, and so how, wretch, are you going to enter? Come, fall down, crying out before the end to her who did not know wedlock, ‘Sprinkle me with the hyssop of your intercessions, pure Virgin, cleanse me and make me worthy of the bridal chamber, that I may magnify you.
 
 With purity of mind, O holy, all-pure Virgin, Isaias foretold that you would give birth to the Maker of all creation. For you appeared from eternity as alone all-blameless. Therefore I beg you, purify my defiled heart, and make me a partaker in the divine radiance of your Son, O Maiden, and of a place at his right hand, when, as it is written, he takes his throne to judge the whole world.
 
@@ -144,7 +144,7 @@ Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
-Â‘The judges of Israel condemned you to a judgement that carried death with it, my Son, standing you, Saviour, who judge the dead and the living, before a tribunal as one to be judged; and they set you before Pilate and condemned you trial. Ah, the lawless ones! And as I see it, I am wounded and condemned with you, O Lord. Therefore I judge that to die is better than to liveÂ’ cried the Mother of God with groans, O only Merciful.
+‘The judges of Israel condemned you to a judgement that carried death with it, my Son, standing you, Saviour, who judge the dead and the living, before a tribunal as one to be judged; and they set you before Pilate and condemned you trial. Ah, the lawless ones! And as I see it, I am wounded and condemned with you, O Lord. Therefore I judge that to die is better than to live’ cried the Mother of God with groans, O only Merciful.
 
 ****
 
@@ -164,7 +164,7 @@ Glory. Both now.
 
 **Cross-Theotokion.**
 
-When she saw you crucified, O Christ, she who bore you cried out, Â‘What is the strange mystery I see, my Son? How are you, the giver of life, hanged in the flesh, dying on a Tree?
+When she saw you crucified, O Christ, she who bore you cried out, ‘What is the strange mystery I see, my Son? How are you, the giver of life, hanged in the flesh, dying on a Tree?
 
 <span style="text-transform: uppercase">on Wednesday evening</span>
 
@@ -176,7 +176,7 @@ Lord, I have cried **Stichera of the Apostles.**
 
 Tone 6. Having placed all your hope.
 
-Having received the heavenly power of the Paraclete, ChristÂ’s Apostles routed the regiments of the foe. They rebuked kings, put the wise to shame, simple and unlettered, naked and unarmed they were drawn up in accordance with the Gospel. While they worked deeds of wonder by the word of grace. And so, making the nations obedient to Christ, they intercede with boldness on behalf of our souls.
+Having received the heavenly power of the Paraclete, Christ’s Apostles routed the regiments of the foe. They rebuked kings, put the wise to shame, simple and unlettered, naked and unarmed they were drawn up in accordance with the Gospel. While they worked deeds of wonder by the word of grace. And so, making the nations obedient to Christ, they intercede with boldness on behalf of our souls.
 
 Your glorious Disciples, yearning after you and denying themselves, fervently followed you. Taking up the Cross behind you, in obedience to your command, they left the earth behind and obtained heaven as their portion, turning the nations to the true knowledge of you. And now, having become your subjects through all things, they ever intercede with boldness on behalf of our souls.
 
@@ -196,13 +196,13 @@ Glory. Both now.
 
 **Theotokion. The same melody.**
 
-The VirginÂ’s giving birth without travail has clearly become for us the greatest of gifts, for God makes new again our nature that was corrupted and refashions what is human.
+The Virgin’s giving birth without travail has clearly become for us the greatest of gifts, for God makes new again our nature that was corrupted and refashions what is human.
 
 ****
 
 Aposticha of the Apostles.
 
-When your Disciples were storm-tossed in the boat, O Christ, they shouted out, Â‘Teacher, save us, we are perishing!Â’ And now we cry aloud, Â‘Saviour who love mankind, deliver us from our constraints, we beg.Â’
+When your Disciples were storm-tossed in the boat, O Christ, they shouted out, ‘Teacher, save us, we are perishing!’ And now we cry aloud, ‘Saviour who love mankind, deliver us from our constraints, we beg.’
 
 Lord, the Apostles once grasped the depth of the sea through nets, later the height of the Kingdom through teachings. By their skill they searched the depth that cannot be grasped, while by their faith they reached your bosom that cannot be circumscribed, and they proclaimed to the world your Son who is beyond time. At their intercessions and those all the Saints, have mercy on us.
 
@@ -216,7 +216,7 @@ Glory. Both now.
 
 **Theotokion.**
 
-Mother of God, you are the true vine who gave bud to the fruit of life. We implore you, Â‘Intercede, Sovereign Lady, with the Apostles and all the Saints, that he have mercy on our soulsÂ’.
+Mother of God, you are the true vine who gave bud to the fruit of life. We implore you, ‘Intercede, Sovereign Lady, with the Apostles and all the Saints, that he have mercy on our souls’.
 
 <span style="text-transform: uppercase">on thursday evening</span>
 
@@ -232,13 +232,13 @@ My God, long-suffering, loving mankind, full of mercy and pitying, how did you e
 
 You endured blows, crucifixion and abuse, O long-suffering and only Giver of life, wishing to redeem all from the hand of the deceiver, and you bear all things, O supremely Good.
 
-As Shepherd you ascended the Cross and stretched out your hands, crying out, Â‘Come to me and be enlightened, mortals darkened by deception. For I am lightÂ’. Glory to you, only Giver of light.
+As Shepherd you ascended the Cross and stretched out your hands, crying out, ‘Come to me and be enlightened, mortals darkened by deception. For I am light’. Glory to you, only Giver of light.
 
 ****
 
 Others, of the Mother of God. Ἡ ἀπεγνωσμένη.
 
-O Virgin, set upright my soul, bowed down and bent double by the heavy and unbearable weight of offences. For with your motherÂ’s boldness you can easily persuade the Saviour who sets upright those who are broken down. And by your mediation tear up the record of my sins through your great mercy.
+O Virgin, set upright my soul, bowed down and bent double by the heavy and unbearable weight of offences. For with your mother’s boldness you can easily persuade the Saviour who sets upright those who are broken down. And by your mediation tear up the record of my sins through your great mercy.
 
 See one who is condemned by sins, ruined by iniquities and who has despised the commands of God, and do not cast me from your presence. For you, Mother of God, are my hope and defence. Therefore by your intercessions attend to me, cleanse me of every stain through your great mercy.
 
@@ -248,7 +248,7 @@ Glory. Both now.
 
 **Cross-Theotokion. You rose on the third day.**
 
-The all-pure Virgin, seeing you nailed to the Tree, cried aloud, Â‘My Son and God, what is this strange and marvellous report of you that you endure through your great pity?Â’
+The all-pure Virgin, seeing you nailed to the Tree, cried aloud, ‘My Son and God, what is this strange and marvellous report of you that you endure through your great pity?’
 
 ****
 
@@ -268,7 +268,7 @@ Glory. Both now.
 
 **Cross-Theotokion. Τριήμερος ἀνέστης Χριστέ.**
 
-The Virgin once stood with the virgin Disciple by the Tree at the time of the crucifixion and weeping she cried out, Â‘Alas, how you suffer all things, O Christ who are dispassion!Â’
+The Virgin once stood with the virgin Disciple by the Tree at the time of the crucifixion and weeping she cried out, ‘Alas, how you suffer all things, O Christ who are dispassion!’
 
 ON FRIDAY EVENING
 
@@ -282,7 +282,7 @@ Tone 6. Ἡ ἀπεγνωσμένη.
 
 Deliver me from Gehenna that awaits me, Judge most just, take me, who am condemned, from the everlasting fire, show me, O Word, to be impregnable to the hostile tempest. Wretch that I am, I tremble when I consider the multitude of my faults, and I fall before you with tears and a broken heart as I ask your mercy.
 
-Who would not weep for me, who have transgressed my MasterÂ’s commandment through lack of self-mastery; who dwell in Hades instead of Paradise? Food that seemed to me sweet was turned to gall. I have been shown to be a stranger to your glory, O Compassionate, and to the Angels. But make me repentant, as you are a Lord who is merciful and compassionate because of your great mercy.
+Who would not weep for me, who have transgressed my Master’s commandment through lack of self-mastery; who dwell in Hades instead of Paradise? Food that seemed to me sweet was turned to gall. I have been shown to be a stranger to your glory, O Compassionate, and to the Angels. But make me repentant, as you are a Lord who is merciful and compassionate because of your great mercy.
 
 Giver of life, set all those who have fallen asleep in faith in the land of the living, in places of repose, in eternal dwellings, where the light of your face shines out ungrudgingly, where the delight and joy and peace of the Righteous are found, overlooking all their faults in deed, word and thought, Master, through your great goodness.
 
@@ -324,7 +324,7 @@ Verse:
 
 Their souls shall dwell among good things.
 
-Tasting of the tree in Eden of old decreed pain for Adam, when a serpent vomited poison, for through it death entered and devoured the whole human race. But the Master came, destroyed the dragon and granted us resurrection. To him let us cry, Â‘Saviour, spare too those whom you have taken, and give them rest with the JustÂ’.
+Tasting of the tree in Eden of old decreed pain for Adam, when a serpent vomited poison, for through it death entered and devoured the whole human race. But the Master came, destroyed the dragon and granted us resurrection. To him let us cry, ‘Saviour, spare too those whom you have taken, and give them rest with the Just’.
 
 Glory. Both now.
 
@@ -335,6 +335,6 @@ At the prayers of her who gave you birth, O Christ, those of your Martyrs, Apost
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

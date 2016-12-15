@@ -69,13 +69,13 @@ Lord, save your people**,** and bless your inheritance, granting to faithful Chr
 If there is no Vigil, those of the Resurrection, the Cross
 and the Theotokion.
 
-When Gabriel addressed you, O Virgin, with his Â‘HailÂ’, as he spoke the Master of all things became incarnate in you the holy Ark, as righteous David sang. You were proclaimed wider than the heavens, for you carried your Creator. Glory to him who dwelt in you, glory to him who came forth from you, glory to him who has set us free through your bearing child.
+When Gabriel addressed you, O Virgin, with his ‘Hail’, as he spoke the Master of all things became incarnate in you the holy Ark, as righteous David sang. You were proclaimed wider than the heavens, for you carried your Creator. Glory to him who dwelt in you, glory to him who came forth from you, glory to him who has set us free through your bearing child.
 
  
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

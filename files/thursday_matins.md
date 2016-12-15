@@ -72,7 +72,7 @@ color:red">Ode 1. Tone 2. Irmos.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”The overwhelming might once laid low in the deep all PharaohÂ’s host; but the incarnate Word, the glorious Lord, has wiped out malignant sin: for he has been greatly glorifiedÂ”.</span>
+font-family:&quot;Book Antiqua&quot;">”The overwhelming might once laid low in the deep all Pharaoh’s host; but the incarnate Word, the glorious Lord, has wiped out malignant sin: for he has been greatly glorified”.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Troparia.</span>
@@ -101,7 +101,7 @@ color:red">Another Canon, to St Nicolas, of which the Acrostic is:
 color:red">The same Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Standing at ChristÂ’s tribunal, all-wise Nicolas, with the hosts of Angels, wearing a crown of victory, grant me illumination to enlighten the darkness of my soul, that with joy I may praise your memorial, O All-blessed.</span>
+font-family:&quot;Book Antiqua&quot;">Standing at Christ’s tribunal, all-wise Nicolas, with the hosts of Angels, wearing a crown of victory, grant me illumination to enlighten the darkness of my soul, that with joy I may praise your memorial, O All-blessed.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The Lord who glorifies all who glorify him has given you as a refuge for the faithful, delivering from temptations those who have recourse to your protection, Nicolas All-revered, and who call on you with faith and love.</span>
@@ -110,13 +110,13 @@ font-family:&quot;Book Antiqua&quot;">The Lord who glorifies all who glorify him
 color:red">Theotokion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">The all wicked serpent by planting in me the longing to be made equal with the Creator took me prisoner. Through you, O All-pure, I have been recalled and most truly made divine, for you, GodÂ’s Mother, gave birth to the One who deified me.</span>
+font-family:&quot;Book Antiqua&quot;">The all wicked serpent by planting in me the longing to be made equal with the Creator took me prisoner. Through you, O All-pure, I have been recalled and most truly made divine, for you, God’s Mother, gave birth to the One who deified me.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Ode 3. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”The desert, the barren Church of the nations, flowered like a lily at your coming, Lord, by which my heart has been establishedÂ”.</span>
+font-family:&quot;Book Antiqua&quot;">”The desert, the barren Church of the nations, flowered like a lily at your coming, Lord, by which my heart has been established”.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Troparia.</span>
@@ -155,7 +155,7 @@ font-family:&quot;Book Antiqua&quot;">Lull the tumult of my passions, and govern
 color:red">Ode 4. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”You came from a Virgin, not an ambassador, not an Angel, but the Lord himself incarnate, and saved me, humanity, entirely; therefore I cry to you: Glory to your power, O Lord!Â” </span>
+font-family:&quot;Book Antiqua&quot;">”You came from a Virgin, not an ambassador, not an Angel, but the Lord himself incarnate, and saved me, humanity, entirely; therefore I cry to you: Glory to your power, O Lord!” </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Troparia.</span>
@@ -197,7 +197,7 @@ font-family:&quot;Book Antiqua&quot;">The Master of creation came upon you when 
 color:red">Ode 5. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”O Christ you have become the Mediator between God and men, for through you, Master, from the night of ignorance we have access to your Father, the source of light.Â”</span>
+font-family:&quot;Book Antiqua&quot;">”O Christ you have become the Mediator between God and men, for through you, Master, from the night of ignorance we have access to your Father, the source of light.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Troparia.</span>
@@ -231,7 +231,7 @@ font-family:&quot;Book Antiqua&quot;">To seek out your Image, demolished by unnu
 **Ode 6. Irmos.**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”Surrounded by a depth of offences, I call upon the unsearchable depth of your compassion: O God, lead me up from corruption.Â”</span>
+font-family:&quot;Book Antiqua&quot;">”Surrounded by a depth of offences, I call upon the unsearchable depth of your compassion: O God, lead me up from corruption.”</span>
 
 **Troparia.**
 
@@ -265,7 +265,7 @@ font-family:&quot;Book Antiqua&quot;">I have laid my hopes of salvation on you, 
 **Ode 7. Irmos**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”The godless order of a lawless tyrant fanned the soaring flame; but Christ let fall the dew of the Spirit upon the God-fearing Youths. He is blessed and highly exalted.Â”</span>
+font-family:&quot;Book Antiqua&quot;">”The godless order of a lawless tyrant fanned the soaring flame; but Christ let fall the dew of the Spirit upon the God-fearing Youths. He is blessed and highly exalted.”</span>
 
 **Troparia.**
 
@@ -300,7 +300,7 @@ font-family:&quot;Book Antiqua&quot;">Implore Christ your Son and God, Mother of
 **Ode 8. Irmos.**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”A furnace once in Babylon, by divine decree, divided its action, burning up the Chaldeans but refreshing the faithful who sang: All you works of the Lord, bless the LordÂ”.</span>
+font-family:&quot;Book Antiqua&quot;">”A furnace once in Babylon, by divine decree, divided its action, burning up the Chaldeans but refreshing the faithful who sang: All you works of the Lord, bless the Lord”.</span>
 
 **Troparia.**
 
@@ -335,7 +335,7 @@ font-family:&quot;Book Antiqua&quot;">My mind is now enfeebled, having fallen in
 **Ode 9. Irmos.**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â”The Son of the Father without beginning, God and Word, incarnate of a Virgin, has appeared to us, to give light to what is darkened, to gather what is scattered; therefore we magnify the all-praised Mother of GodÂ”.</span>
+font-family:&quot;Book Antiqua&quot;">”The Son of the Father without beginning, God and Word, incarnate of a Virgin, has appeared to us, to give light to what is darkened, to gather what is scattered; therefore we magnify the all-praised Mother of God”.</span>
 
 **Troparia.**
 
@@ -420,6 +420,6 @@ font-family:&quot;Book Antiqua&quot;">Pure Virgin, you are the boast of Apostles
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

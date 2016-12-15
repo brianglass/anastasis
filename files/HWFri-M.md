@@ -1841,6 +1841,6 @@ We do not add the 1st Hour now, but say it at about the 2nd hour of the day.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

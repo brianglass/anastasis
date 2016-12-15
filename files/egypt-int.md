@@ -16,6 +16,6 @@ For this series of fifty *Exhortations* see DS iv (1960) col. 812. They were kno
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -3,7 +3,7 @@
 INTRODUCTION
 ------------
 
-The ceremony of the Washing of the Feet on Holy Thursday is very ancient, and is common to both East and West. In English it is the origin of the name Â’Maundy ThursdayÂ’, from the Latin Â’mandatumÂ’, Â’commandmentÂ’, which is used in the Vulgate of Saint JohnÂ’s Gospel, Â’mandatum nouum do uobisÂ’, Â’a new commandment I give youÂ’. In the Latin the ceremony still forms part of the regular Holy Weeks services and in England, in a survival of pre-reformation Catholicism, the monarch still distributes specially purses of minted Â’Maundy MoneyÂ’ on this day, though there is no longer any washing of actual feet. In the fourth century the Â’PedilauiumÂ’, Â’FootwashingÂ’ formed part of the rite of Baptism at Milan, where it followed the Chrismation. Saint Ambrose remarks that the ceremony, as part of Baptism, was unknown in Rome. In the East it is still performed on Holy Thursday in the Armenian Church, but in the Byzantine Rite it is nowadays confined to some cathedrals and monasteries. On Patmos the monks of the great monastery perform the ceremony in the open air in the middle of the village.
+The ceremony of the Washing of the Feet on Holy Thursday is very ancient, and is common to both East and West. In English it is the origin of the name ’Maundy Thursday’, from the Latin ’mandatum’, ’commandment’, which is used in the Vulgate of Saint John’s Gospel, ’mandatum nouum do uobis’, ’a new commandment I give you’. In the Latin the ceremony still forms part of the regular Holy Weeks services and in England, in a survival of pre-reformation Catholicism, the monarch still distributes specially purses of minted ’Maundy Money’ on this day, though there is no longer any washing of actual feet. In the fourth century the ’Pedilauium’, ’Footwashing’ formed part of the rite of Baptism at Milan, where it followed the Chrismation. Saint Ambrose remarks that the ceremony, as part of Baptism, was unknown in Rome. In the East it is still performed on Holy Thursday in the Armenian Church, but in the Byzantine Rite it is nowadays confined to some cathedrals and monasteries. On Patmos the monks of the great monastery perform the ceremony in the open air in the middle of the village.
 
 This provisional version has been made from the text in the Greek Mega Euchologion, since the rite is no longer included in the printed Triodia in either Greek or Slavonic. In the French version published by P. Denis Guillaume the first Gospel is set out in dramatic form, with the Abbot speaking the words of Christ and the Bursar those of Saint Peter. Without at least a Deacon to read the Gospel while the Priest does the actual washing, it is difficult to perform the ceremony correctly, which may be one reason why it has fallen into desuetude.
 
@@ -18,7 +18,7 @@ After the prayer behind the ambo, the Priest comes out, changed as he is, with l
 
 Ode 5. Irmos
 
-Â‘Bound with the bond of love, the Apostles offered themselves to Christ the Master of all things; when their beautiful feet had been washed clean they bring good tidings of peace to all.Â’
+‘Bound with the bond of love, the Apostles offered themselves to Christ the Master of all things; when their beautiful feet had been washed clean they bring good tidings of peace to all.’
 
 ****
 
@@ -32,7 +32,7 @@ The Master shows his Disciples a model of humility; he who wraps the sky in clou
 
 Then are sung the Idiomels of the Washing. Tone 1.
 
-As you girded yourself with a towel and washed your DisciplesÂ’ feet, washing away the filth from our souls and gird us round with a spiritual bond, to do your commands and sing the praise of your goodness.
+As you girded yourself with a towel and washed your Disciples’ feet, washing away the filth from our souls and gird us round with a spiritual bond, to do your commands and sing the praise of your goodness.
 
 ****
 
@@ -44,13 +44,13 @@ About to enjoy a great grace, let us the faithful devoutly run together to the h
 
 Same Tone.
 
-Peter was loathe for his feet to be washed by the spotless hands by which Adam had been fashioned. But when he heard, Â‘Unless I wash you, you have no part with meÂ’, seized with great fear, he cried to you, O Lord, Â‘Do not wash only my feet, but also my hands and my headÂ’. O how great are the MasterÂ’s gifts! He makes his own Disciples sharers in grace and promises that to have a part with them in ineffable glory, as he also said over the mystic cup, that he would drink it new with them in the Kingdom of heaven. Make us worthy of it too, as you are merciful and love humankind.
+Peter was loathe for his feet to be washed by the spotless hands by which Adam had been fashioned. But when he heard, ‘Unless I wash you, you have no part with me’, seized with great fear, he cried to you, O Lord, ‘Do not wash only my feet, but also my hands and my head’. O how great are the Master’s gifts! He makes his own Disciples sharers in grace and promises that to have a part with them in ineffable glory, as he also said over the mystic cup, that he would drink it new with them in the Kingdom of heaven. Make us worthy of it too, as you are merciful and love humankind.
 
 ****
 
 Tone 8.
 
-Today the one who is by nature unapproachable took up the work of a slave. He who wraps the heavens with clouds, girded himself with a towel. He who divided the Red Sea, poured water for a washing; and bending his knees, he began to wash the feet of the Disciples and to dry them with the towel with which he had been girded. Then, having washed the DisciplesÂ’ feet, he said to them, Â‘You are clean, but not allÂ’, meaning the one who was betraying him.
+Today the one who is by nature unapproachable took up the work of a slave. He who wraps the heavens with clouds, girded himself with a towel. He who divided the Red Sea, poured water for a washing; and bending his knees, he began to wash the feet of the Disciples and to dry them with the towel with which he had been girded. Then, having washed the Disciples’ feet, he said to them, ‘You are clean, but not all’, meaning the one who was betraying him.
 
 ****
 
@@ -166,7 +166,7 @@ Amen. ****
 
 After the Ekphonesis, when the Priest says,
 
-And that he would count us worthy*,* **those whose feet are be washed take their places on the benches provided. And as the Priest begins to read the 1st Gospel for the Washing, the Superior stands and does as the Gospel directs. When it says,** He laid aside his garments*,* **he takes off the mandyas. At,** ** Taking a towel, he girded himself*,* **he takes the apron and girds himself. At,** ** He poured water for the washing*,* **he too pours warm water. And again at,** ** He began to wash his DisciplesÂ’ feet*,* **he too begins to wash the feet of the 12 persons, starting with the Porter and ending with the Bursar and the Ecclesiarch, and to dry the feet of each of those whose feet have been washed and to kiss them. When he reaches the Bursar, the Priest reads the rest of the Gospel,** He comes then to Simon Peter, who says to him. **And then he completes what follows of the same Gospel, beginning,** And that he would count us worthy, **etc.**
+And that he would count us worthy*,* **those whose feet are be washed take their places on the benches provided. And as the Priest begins to read the 1st Gospel for the Washing, the Superior stands and does as the Gospel directs. When it says,** He laid aside his garments*,* **he takes off the mandyas. At,** ** Taking a towel, he girded himself*,* **he takes the apron and girds himself. At,** ** He poured water for the washing*,* **he too pours warm water. And again at,** ** He began to wash his Disciples’ feet*,* **he too begins to wash the feet of the 12 persons, starting with the Porter and ending with the Bursar and the Ecclesiarch, and to dry the feet of each of those whose feet have been washed and to kiss them. When he reaches the Bursar, the Priest reads the rest of the Gospel,** He comes then to Simon Peter, who says to him. **And then he completes what follows of the same Gospel, beginning,** And that he would count us worthy, **etc.**
 
 Priest:
 
@@ -200,7 +200,7 @@ Priest:
 
 **John 13: 3-11**\]
 
-At that time, Jesus, knowing that the Father had given all things into his hands and that he had come forth from God and was going back to God, rises from supper and lays aside his outer garments; and taking a towel he ties it round his waist. Then he puts water in the basin and began to wash the disciplesÂ’ feet and wipe them with the towel which was tied round his waist. He comes to Simon Peter, who says to him, Â‘Lord, are you going to wash my feet?Â’ Jesus answered and said to him, Â‘What I am doing you do not understand now, but you will understand later.Â’ Peter says to him, Â‘You shall never wash my feet.Â’ Jesus answered him, Â‘Unless I wash you, you have no part in me.Â’ Peter says to him, Â‘Lord, not only my feet, but my hands and my head also.Â’ Jesus says to him, Â‘One who has washed has no need except to wash their feet, but they are wholly clean. And you are clean, but not all of you.Â’ For he knew the one who would betray him; that is why he said, Â‘You are not all clean.Â’
+At that time, Jesus, knowing that the Father had given all things into his hands and that he had come forth from God and was going back to God, rises from supper and lays aside his outer garments; and taking a towel he ties it round his waist. Then he puts water in the basin and began to wash the disciples’ feet and wipe them with the towel which was tied round his waist. He comes to Simon Peter, who says to him, ‘Lord, are you going to wash my feet?’ Jesus answered and said to him, ‘What I am doing you do not understand now, but you will understand later.’ Peter says to him, ‘You shall never wash my feet.’ Jesus answered him, ‘Unless I wash you, you have no part in me.’ Peter says to him, ‘Lord, not only my feet, but my hands and my head also.’ Jesus says to him, ‘One who has washed has no need except to wash their feet, but they are wholly clean. And you are clean, but not all of you.’ For he knew the one who would betray him; that is why he said, ‘You are not all clean.’
 
 ****
 
@@ -238,7 +238,7 @@ Let us attend.
 
 **John 13: 12-17**\]
 
-At that time, when Jesus had washed the feet of his Disciples, he put on his outer garments, sat down again and said to them, Â‘Do you know what I have done to you? You call me “Teacher” and “Lord”, and you do well, for I am. So if I, your Lord and Teacher, have washed your feet, you too should wash one anotherÂ’s feet. For I have given you an example, that as I have done to you, you should do also. Amen, amen, I say to you, a slave is not greater than his lord, nor one who is sent greater than the one who sent him. If you know all this, blessed are you, if you do it.Â’
+At that time, when Jesus had washed the feet of his Disciples, he put on his outer garments, sat down again and said to them, ‘Do you know what I have done to you? You call me “Teacher” and “Lord”, and you do well, for I am. So if I, your Lord and Teacher, have washed your feet, you too should wash one another’s feet. For I have given you an example, that as I have done to you, you should do also. Amen, amen, I say to you, a slave is not greater than his lord, nor one who is sent greater than the one who sent him. If you know all this, blessed are you, if you do it.’
 
 ****
 
@@ -250,7 +250,7 @@ After the Gospel, the Priest says this prayer.
 
 Let us pray to the Lord.
 
-Lord our God, who in accordance with your great mercy emptied yourself, took the form of a slave, and at the moment of your saving, life-giving and voluntary Passion were pleased to sup with your holy Disciples and Apostles, and after this to gird yourself with a towel and wash the feet of your holy Disciples, giving them an example of humility and love for one another, and saying, Â‘As I have done to you, so do likewise yourselves to one another, do you yourself, Master, being in the midst of your unworthy servants, who have followed your example, now wipe away too every spot and stain from our souls, so that we, having washed away the dust that was sticking to us from our offences, and having dried it with the towel of love, we may be able to be well-pleasing to you all the days of our life, and to find grace before you.
+Lord our God, who in accordance with your great mercy emptied yourself, took the form of a slave, and at the moment of your saving, life-giving and voluntary Passion were pleased to sup with your holy Disciples and Apostles, and after this to gird yourself with a towel and wash the feet of your holy Disciples, giving them an example of humility and love for one another, and saying, ‘As I have done to you, so do likewise yourselves to one another, do you yourself, Master, being in the midst of your unworthy servants, who have followed your example, now wipe away too every spot and stain from our souls, so that we, having washed away the dust that was sticking to us from our offences, and having dried it with the towel of love, we may be able to be well-pleasing to you all the days of our life, and to find grace before you.
 
 ****
 
@@ -279,6 +279,6 @@ Then the Antidoron is given out and the Dismissal follows. As we enter the Refec
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

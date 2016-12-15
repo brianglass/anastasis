@@ -186,7 +186,7 @@ Bless them, Lord our God, as you blessed Jacob and all the Patriarchs.
 Bless them, Lord our God, as you blessed Joseph and Aseneth. Bless them, Lord our God, as you blessed Moses and Sepphora. Bless them, Lord our God, as you blessed Joachim and Anna.
 Bless them, Lord our God, as you blessed Zachary and Elisabeth.
 
-Preserve them, Lord our God, as you preserved NoÃ« in the Ark. Preserve them, Lord our God, as you preserved Jonas in the belly of the whale.
+Preserve them, Lord our God, as you preserved Noë in the Ark. Preserve them, Lord our God, as you preserved Jonas in the belly of the whale.
 Preserve them, Lord our God, as you preserved the three holy Youths from the fire, by sending down on them dew from heaven.
 
 And let the joy come upon them that the blessed Helen had when she found the precious Cross.
@@ -974,6 +974,6 @@ Amen. ****
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

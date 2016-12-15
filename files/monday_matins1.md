@@ -87,7 +87,7 @@ Give me showers of tears, O Word of God. Joseph.</span>
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 1. Tone 2. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“Come, you peoples, let us sing a song to Christ God, who parted the sea and guided the people that he had brought up from the slavery of the Egyptians, for he has been glorified.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“Come, you peoples, let us sing a song to Christ God, who parted the sea and guided the people that he had brought up from the slavery of the Egyptians, for he has been glorified.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia.</span>
@@ -139,7 +139,7 @@ font-family:&quot;Book Antiqua&quot;">The ranks of Angels, honoured Virgin, serv
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 3. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“Establish us in you, O Lord, who put sin to death by a Tree, and plant you fear in the hearts of us who sing your praise.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“Establish us in you, O Lord, who put sin to death by a Tree, and plant you fear in the hearts of us who sing your praise.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -157,7 +157,7 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Of the Martyrs</span>
 font-family:&quot;Book Antiqua&quot;">Walled about with the Cross, the invincible warriors and Martyrs of the Saviour, bravely cast down like walls the ramparts of error.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Bracing your weakness by divine power, noble Champions, you handed over to utter destruction the adversaryÂ’s strength.</span>
+font-family:&quot;Book Antiqua&quot;">Bracing your weakness by divine power, noble Champions, you handed over to utter destruction the adversary’s strength.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion</span>
@@ -169,7 +169,7 @@ font-family:&quot;Book Antiqua&quot;">Mary, censer of gold, drive away the foul 
 color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“The bow of the powerful was smashed by your might, O Christ, and the weak girded themselves with you, their power.Â”<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a></span>
+font-family:&quot;Book Antiqua&quot;">“The bow of the powerful was smashed by your might, O Christ, and the weak girded themselves with you, their power.”<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -190,7 +190,7 @@ font-family:&quot;Book Antiqua&quot;">The creator of all times, Ever-Virgin Moth
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 4. Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“I sing your praise, for I heard your report, Lord, and I was amazed, for you came as far as me, seeking one who had gone astray. And so, O Most Merciful, I glorify you for your great condescension towards me.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“I sing your praise, for I heard your report, Lord, and I was amazed, for you came as far as me, seeking one who had gone astray. And so, O Most Merciful, I glorify you for your great condescension towards me.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -208,7 +208,7 @@ font-family:&quot;Book Antiqua&quot;">The time of life has become for me a labou
 color:red;font-style:normal;mso-bidi-font-style:italic">Of the Martyrs</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">The lawless one, being willingly the inventor of wickedness, tried to compel ChristÂ’s Martyrs to offer worship to lifeless gods, but he was worsted, for they knew only God the creator.</span>
+font-family:&quot;Book Antiqua&quot;">The lawless one, being willingly the inventor of wickedness, tried to compel Christ’s Martyrs to offer worship to lifeless gods, but he was worsted, for they knew only God the creator.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Reverencing a Unity in Essence and a Trinity in persons, uncreated Godhead, you gave no reverence at all to creatures, Martyrs of Christ; and therefore you endured all manner of punishments.</span>
@@ -242,7 +242,7 @@ font-family:&quot;Book Antiqua&quot;">Contemplating you, O Virgin, from afar car
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 5. Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“O Lord, the giver of light and maker of the ages, guide us by the light of commands, for we know no other but you.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“O Lord, the giver of light and maker of the ages, guide us by the light of commands, for we know no other but you.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -289,7 +289,7 @@ font-family:&quot;Book Antiqua&quot;">The holy Archangel Gabriel came down from 
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 6. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“Surrounded by an abyss of faults, I call upon the unfathomable abyss of your compassion: O God, bring me up from corruption.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“Surrounded by an abyss of faults, I call upon the unfathomable abyss of your compassion: O God, bring me up from corruption.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -298,7 +298,7 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
 font-family:&quot;Book Antiqua&quot;">I was thrown down by the wickedness of the serpent and I lie on a bed of despair. Raise me up, O Christ, who set the paralytic upright with a word.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Buffeted by the blasts of the dragonÂ’s breath and tossed about from every side by the waves of sin, save me as you saved Peter, O Lord, Lover of mankind.</span>
+font-family:&quot;Book Antiqua&quot;">Buffeted by the blasts of the dragon’s breath and tossed about from every side by the waves of sin, save me as you saved Peter, O Lord, Lover of mankind.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Of the Martyrs</span>
@@ -319,7 +319,7 @@ font-family:&quot;Book Antiqua&quot;">From all generations the Maker chose you, 
 color:red;font-style:normal;mso-bidi-font-style:italic">Another Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">\[Â“Having listened to the sound of the words of my supplication, Master, from the anguish of my soul, rescue me from disasters; for you alone are the cause of our salvation.Â”\]<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a></span>
+font-family:&quot;Book Antiqua&quot;">\[“Having listened to the sound of the words of my supplication, Master, from the anguish of my soul, rescue me from disasters; for you alone are the cause of our salvation.”\]<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[3]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -340,7 +340,7 @@ font-family:&quot;Book Antiqua&quot;">As of old the Lord swore in truth to David
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 7. Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“When the golden image was being worshipped on the plain of Deira, your three Youths trampled down the godless decree; cast into the midst of fire, refreshed with dew they sang: Blessed are you, the God of our fathers.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“When the golden image was being worshipped on the plain of Deira, your three Youths trampled down the godless decree; cast into the midst of fire, refreshed with dew they sang: Blessed are you, the God of our fathers.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -386,7 +386,7 @@ font-family:&quot;Book Antiqua&quot;">Gabriel revealing you, O Maiden, to be the
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 8. Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“The God who came down into the furnace for the Hebrew Youths and changed the flame to dew, you his works, praise as Lord and highly exalt him to all the ages.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“The God who came down into the furnace for the Hebrew Youths and changed the flame to dew, you his works, praise as Lord and highly exalt him to all the ages.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
@@ -435,13 +435,13 @@ font-family:&quot;Book Antiqua&quot;">Uprightness itself, which wisely directs t
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 9. Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Â“The Word from God, who came with ineffable wisdom to renew Adam, who by eating had fallen dreadfully to corruption, incarnate inexpressibly for our sake from a holy Virgin, we the faithful with one mind magnify in hymns.Â”</span>
+font-family:&quot;Book Antiqua&quot;">“The Word from God, who came with ineffable wisdom to renew Adam, who by eating had fallen dreadfully to corruption, incarnate inexpressibly for our sake from a holy Virgin, we the faithful with one mind magnify in hymns.”</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">See, it is time for working. Why are you foolishly asleep, my soul, in total indolence? Rouse yourself, make your lamp bright with tears. Hurry, the Bridegroom of our souls is at hand. Do not be sluggish and do not stay outside GodÂ’s door.</span>
+font-family:&quot;Book Antiqua&quot;">See, it is time for working. Why are you foolishly asleep, my soul, in total indolence? Rouse yourself, make your lamp bright with tears. Hurry, the Bridegroom of our souls is at hand. Do not be sluggish and do not stay outside God’s door.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">How fearful is your judgement seat that makes clear every action, laying it bare to Angels and mortals! How dread the sentence that you will pass on offences! Deliver me from it, O Christ, granting me before the end tears of turning back.</span>
@@ -465,7 +465,7 @@ font-family:&quot;Book Antiqua&quot;">Spare me, Lord, spare me, when you come to
 color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">\[Â“You are all desire, you are all sweetness, O Word of God, Son of the Virgin, God of gods, Lord, Holiest of the Holy. And so, with her who gave you birth, we all magnify you.Â”\]<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a></span>
+font-family:&quot;Book Antiqua&quot;">\[“You are all desire, you are all sweetness, O Word of God, Son of the Virgin, God of gods, Lord, Holiest of the Holy. And so, with her who gave you birth, we all magnify you.”\]<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Clothed in snow white robes the shining Angels appeared, symbolically making clear to the godly Disciples your second Coming, O Christ. With them, as we contemplate your godhead, we all magnify you.</span>
@@ -477,7 +477,7 @@ font-family:&quot;Book Antiqua&quot;">You create, as Benefactor, every rational 
 color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">When he perceived and was amazed by the brightness of your virginity, the godlike Chief Captain cried out to you his Â‘Hail!Â’. And so we all magnify you as Mother of God.</span>
+font-family:&quot;Book Antiqua&quot;">When he perceived and was amazed by the brightness of your virginity, the godlike Chief Captain cried out to you his ‘Hail!’. And so we all magnify you as Mother of God.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;letter-spacing:-.1pt;mso-bidi-font-style:
@@ -520,6 +520,6 @@ italic">Theotokion.</span></span>
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

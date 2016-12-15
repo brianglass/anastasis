@@ -50,7 +50,7 @@ The eye-witnesses of grace proclaimed you, Virgin, to be heaven new manifest on 
 
 After the 3rd Reading of the Psalter, others.
 
-On earth you did not love earthÂ’s glory, Glorious ones; by proclaiming the God of heaven to humans you led them all to him.
+On earth you did not love earth’s glory, Glorious ones; by proclaiming the God of heaven to humans you led them all to him.
 
 ****
 
@@ -157,7 +157,7 @@ All-pure, you are the tongs which received in your godlike womb the divine coal,
 
 Ode 4. The Irmos.
 
-O Christ God, who did not leave the FatherÂ’s bosom and came down to the earth, I have heard of the mystery of your dispensation, and I have glorified you, only lover of mankind.
+O Christ God, who did not leave the Father’s bosom and came down to the earth, I have heard of the mystery of your dispensation, and I have glorified you, only lover of mankind.
 
 ****
 
@@ -241,7 +241,7 @@ Troparia.
 
 Having become divine Disciples of wisdom itself, they made foolish the wisdom of the Greeks, destroyed the false teacher of evil and as wise men enlightened those who were wandering lost in ignorance with the light of true religion.
 
-Of old you cleansed PeterÂ’s fault with tears, O Christ; at his prayers cleanse the numberless offences of my soul through your great compassion and your surpassing goodness.
+Of old you cleansed Peter’s fault with tears, O Christ; at his prayers cleanse the numberless offences of my soul through your great compassion and your surpassing goodness.
 
 Of old you took pity on the repentant Ninivites; through your Apostles have mercy too on me in your customary compassion; and do not cast me down beneath a multitude of punishments, O Redeemer, because of the multitude of my offences.
 
@@ -334,9 +334,9 @@ When you bore the fire you were preserved unburned, Virgin who knew not wedlock,
 Of the Saint. Another Irmos.
 Imitating the Youths. Τοὺς ἐν καμίνῳ.
 
-All-holy Nicholas, your body breathing myrrh lies in Myra, pours forth myrrh for those who have recourse to you and stops mankindÂ’s diseases.
+All-holy Nicholas, your body breathing myrrh lies in Myra, pours forth myrrh for those who have recourse to you and stops mankind’s diseases.
 
-The Maker and Lord of the world declared you the worldÂ’s defender; and so you are found to be a most ready deliverer for those who call on you in need.
+The Maker and Lord of the world declared you the world’s defender; and so you are found to be a most ready deliverer for those who call on you in need.
 
 There is none who calls on you in troubles and does not find speedy consolation; and so we pray you: All-blest, lighten our toil.
 
@@ -401,7 +401,7 @@ Glorious Apostles, pillars of the Church, Heralds of the truth, as lighted torch
 
 Of the Martyrs.
 
-Breathing as one, looking to one end the victorious Martyrs found one road of life, death for the sake of Christ, as they emulated each otherÂ’s end - O the wonder! - grasping tortures like treasures, they said to one another: Should we even now not die, we shall most surely die, and by birth we shall serve what is due; let us perform the duty which loves honour, purchasing life with death. At their prayers, O God, have mercy on us.
+Breathing as one, looking to one end the victorious Martyrs found one road of life, death for the sake of Christ, as they emulated each other’s end - O the wonder! - grasping tortures like treasures, they said to one another: Should we even now not die, we shall most surely die, and by birth we shall serve what is due; let us perform the duty which loves honour, purchasing life with death. At their prayers, O God, have mercy on us.
 
 Glory. Both now.
 
@@ -413,6 +413,6 @@ Alas, I have became a haunt of pleasures, wretch that I am! Therefore I ever app
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

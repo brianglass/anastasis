@@ -38,13 +38,13 @@ Glory. Both now.
 
 **Theotokion.**
 
-Let us devoutly sing the praise of the glorious and immaculate true Bearer of God as Mother of God, greeting her like the Angel, Â‘Hail, holy Mother of the incarnate Son of God. Hail, dwelling place of the Holy Spirit, who ever intercede for us that our souls may be savedÂ’.
+Let us devoutly sing the praise of the glorious and immaculate true Bearer of God as Mother of God, greeting her like the Angel, ‘Hail, holy Mother of the incarnate Son of God. Hail, dwelling place of the Holy Spirit, who ever intercede for us that our souls may be saved’.
 
  
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

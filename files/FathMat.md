@@ -35,7 +35,7 @@ Virgin Mother of God implore your Son, Christ our God, who was nailed willingly 
 
 ****
 
-Then Psalm 118, the Evlogitaria and the YpakoÃ¯.
+Then Psalm 118, the Evlogitaria and the Ypakoï.
 
 Tone 6.
 
@@ -752,6 +752,6 @@ After your descent into Hell and your Resurrection from the dead, O Christ, the 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

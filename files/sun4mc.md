@@ -50,7 +50,7 @@ All the choirs of Angels were struck with wonder, Pure Virgin, at the dread myst
 
 ****
 
-After Psalm 118, the YpakoÃ¯
+After Psalm 118, the Ypakoï
 
 The Myrrhbearers proclaimed to the Apostles the news of your wondrous Rising, O Christ: that as God you had risen, granting the world your great mercy.
 
@@ -537,7 +537,7 @@ When the women Disciples of the Lord had learnt from the Angel the joyful messag
 
 ****
 
-YpakoÃ¯
+Ypakoï
 
 The Myrrhbearers proclaimed to the Apostles the news of your wondrous Rising, O Christ: that as God you had risen, granting the world your great mercy.
 
@@ -550,6 +550,6 @@ My Saviour and Deliverer, from the tomb as God raised from their bonds those bor
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

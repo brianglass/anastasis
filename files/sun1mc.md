@@ -49,7 +49,7 @@ Mary, holy vessel of the Master, raise us up who have fallen into the pit of dre
 
 After the reading of the ‘Blameless’ \[ Kathisma 17, Psalm 118\], we sing the Evlogitaria. Then the little Litany and
 
-The YpakoÃ¯.
+The Ypakoï.
 
 The Thief’s repentance plundered Paradise, but the Myrrh-bearers’ lament disclosed the joy that you had risen, Christ God, granting the world great mercy.
 
@@ -563,7 +563,7 @@ When the stone had been sealed by the Jews, and while soldiers were guarding you
 
 ****
 
-YpakoÃ¯.
+Ypakoï.
 
 The Thief’s repentance plundered Paradise, while the Myrrhbearers’ lament disclosed that the joy that you had risen, O Christ God, granting the world your great mercy.
 
@@ -578,6 +578,6 @@ You rose from the tomb as God in glory, and raised the world up with you. Mortal
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

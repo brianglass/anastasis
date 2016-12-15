@@ -527,7 +527,7 @@ font-family:&quot;Book Antiqua&quot;">On the same day, Commemoration of the holy
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Verses.
 </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;;font-style:normal;mso-bidi-font-style:italic">To AgathÃ³doros, a gift \[<span style="color:red">doron</span>\] to God
+&quot;Book Antiqua&quot;;font-style:normal;mso-bidi-font-style:italic">To Agathódoros, a gift \[<span style="color:red">doron</span>\] to God
 Through blood, I give \[<span style="color:red">doro</span>\] a gift out of my words.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -1058,6 +1058,6 @@ footnote">[82]</span></span></a> In Greek *Theodochos*.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -15,7 +15,7 @@ After the usual readings from the Psalter, the Kathismata of the Resurrection in
 
 Tone 8.
 
-In Paradise of old the enemy stripped me naked by a tree, for by my tasting it he brought in death. But now the Tree of the Cross, that bears the clothing of life for mortals, has been fixed on the earth, and the whole world filled with every joy. Seeing it worshipped, you peoples, let us with one accord raise our cry to God with faith, Â‘His house is full of glory!Â’
+In Paradise of old the enemy stripped me naked by a tree, for by my tasting it he brought in death. But now the Tree of the Cross, that bears the clothing of life for mortals, has been fixed on the earth, and the whole world filled with every joy. Seeing it worshipped, you peoples, let us with one accord raise our cry to God with faith, ‘His house is full of glory!’
 
 Glory. Both now.
 
@@ -31,9 +31,9 @@ Four Troparia, including the Irmos, from the Canon of the Resurrection and two f
 
 Ode 1. Tone 1. The day of Resurrection
 
-A day of festival! At ChristÂ’s Rising, death has fled away and the light of life has dawned. Adam has arisen and dances for joy. Therefore let us cry aloud as we sing a song of victory.
+A day of festival! At Christ’s Rising, death has fled away and the light of life has dawned. Adam has arisen and dances for joy. Therefore let us cry aloud as we sing a song of victory.
 
-A day of worship of the Precious Cross! Come, let all approach it! For now it is set forth, shining with the bright beams of ChristÂ’s Rising. Let us kiss it, as we rejoice in soul.
+A day of worship of the Precious Cross! Come, let all approach it! For now it is set forth, shining with the bright beams of Christ’s Rising. Let us kiss it, as we rejoice in soul.
 
 Great Cross of the Lord, appear! Show me now the divine vision of your beauty, and make me your worthy worshipper. For I address you and embrace you as though you were alive.
 
@@ -111,7 +111,7 @@ Virgin Mother of God, implore your Son, Christ our God, who was nailed on the Cr
 
 Ode 4. Let the Prophet Avvakoum
 
-See, Christ has risenÂ’, said the Angel to the Myrrhbearing Women, Â‘Do not lament, but go, say to the Apostles, Â‘Rejoice, today is the salvation of the world; for by death the tyranny of the enemy has been destroyed.Â’
+See, Christ has risen’, said the Angel to the Myrrhbearing Women, ‘Do not lament, but go, say to the Apostles, ‘Rejoice, today is the salvation of the world; for by death the tyranny of the enemy has been destroyed.’
 
 As we celebrate today the joyful worship of your life-bearing Cross, O Christ, we prepare ourselves for your most holy Passion; for you achieved it for the salvation of the world, O Saviour, as all-powerful.
 
@@ -155,7 +155,7 @@ Both now.
 
 **Theotokion**
 
-You conceived by natureÂ’s law, but above law; for your child-bearing alone was without seed. Fearful to think or speak of was the manner of your giving birth, O all-unblemished Virgin.
+You conceived by nature’s law, but above law; for your child-bearing alone was without seed. Fearful to think or speak of was the manner of your giving birth, O all-unblemished Virgin.
 
 ****
 
@@ -173,7 +173,7 @@ Believers, let us cry aloud in godly songs and shout with joy to God, as we gree
 
 The saying of the writer of songs is fulfilled: for see, we worship at the footstool of your most pure feet, all-powerful Lord, your Precious Cross, the thrice-longed for Tree.
 
-The wood which the Prophet of lamentation saw cast into your bread, Â— your Cross, compassionate Lord Â— we greet and we sing in praise of your bonds and tomb, of the lance and nails
+The wood which the Prophet of lamentation saw cast into your bread, — your Cross, compassionate Lord — we greet and we sing in praise of your bonds and tomb, of the lance and nails
 
 The holy Cross, O Christ, which you accepted to bear on your shoulders, and on it to be lifted up and crucified in the flesh, we kiss; and from it we gather strength against invisible foes.
 
@@ -201,8 +201,8 @@ The sword of flame no longer guards the gate of Eden,
 For a strange bond came upon it: the wood of the Cross.
 The sting of Death and the victory of Hell were nailed to it.
 But you appeared, my Saviour, crying to those in Hell:
-Â‘Be brought back
-Again to ParadiseÂ’**.**
+‘Be brought back
+Again to Paradise’**.**
 
 ****
 
@@ -211,15 +211,15 @@ Ikos.
 Three crosses Pilate fixed on Golgotha,
 Two for the thieves and one for the Giver of life,
 Whom Hades saw and said to those below,
-Â‘My ministers and powers,
+‘My ministers and powers,
 Who has fixed a nail in my heart?
 A wooden lance has suddenly pierced me and I am being torn apart.
 My insides are in pain, my belly in agony.
 My senses make my spirit tremble,
 And I am compelled to disgorge
-Adam and AdamÂ’s race, given me by a tree,
+Adam and Adam’s race, given me by a tree,
 A tree is bringing them back
-Again to ParadiseÂ’.
+Again to Paradise’.
 
 ****
 
@@ -268,15 +268,15 @@ The one who delivered the Young Men from the flames took flesh and came upon the
 
 Ode 8. This chosen and holy day
 
-Â‘Why do you hold sweet spices in your hands? Whom are you seeking?Â’, now cries the young man in the tomb. Â‘Christ our God has risen, raising up the nature of mortals from the vaults of HellÂ’.
+‘Why do you hold sweet spices in your hands? Whom are you seeking?’, now cries the young man in the tomb. ‘Christ our God has risen, raising up the nature of mortals from the vaults of Hell’.
 
-Hail, O Cross, thrice-blessed and divine Tree, a light for those in darkness. By your shining you herald to the four-cornered World the rays of ChristÂ’s Rising. Grant that all the faithful may reach Pascha.
+Hail, O Cross, thrice-blessed and divine Tree, a light for those in darkness. By your shining you herald to the four-cornered World the rays of Christ’s Rising. Grant that all the faithful may reach Pascha.
 
 On this day the Tree anointed with life, the Cross of Christ, fills all things with the perfume of divine grace. Let us smell its God-given fragrance, worshipping it with faith to the ages.
 
-Come, Elissaios the Prophet, tell us plainly: What was that wood you cast into the water? Â‘It was the Cross of Christ, through which we have been drawn up from the depths of corruption, as we worship it with faith to the ages.Â’
+Come, Elissaios the Prophet, tell us plainly: What was that wood you cast into the water? ‘It was the Cross of Christ, through which we have been drawn up from the depths of corruption, as we worship it with faith to the ages.’
 
-Of old Jacob prefigured your Cross, O Christ, when he worshipped the top of JosephÂ’s holy staff, foreseeing this dread sceptre of your Kingdom, which now we worship in faith to the ages.
+Of old Jacob prefigured your Cross, O Christ, when he worshipped the top of Joseph’s holy staff, foreseeing this dread sceptre of your Kingdom, which now we worship in faith to the ages.
 
 We bless the Lord, Father, Son and Holy Spirit.
 
@@ -294,7 +294,7 @@ We praise, bless and worship the Lord, praising and exalting him above all for e
 
 Katavasia
 
-Daniel, great among the prophets, was once cast into the lionsÂ’ den; but, stretching out his hands in the form of the Cross, unharmed he was saved from being devoured by them, as he blessed Christ our God to the ages.
+Daniel, great among the prophets, was once cast into the lions’ den; but, stretching out his hands in the form of the Cross, unharmed he was saved from being devoured by them, as he blessed Christ our God to the ages.
 
 ****
 
@@ -302,7 +302,7 @@ Ode 9. Shine, shine, O New Jerusalem
 
 You went down into the tomb, O God the Giver of Life and you broke all the bolts and bars, raising up the dead who cry aloud: Glory to your Resurrection! O Christ, the Saviour all-powerful.
 
-Your tomb, O Christ, has brought me life: for you, the Lord of life, came and cried to those who were dwelling in the grave, Â‘All who are in bonds, be loosed: for I have come, the Ransom of the world.
+Your tomb, O Christ, has brought me life: for you, the Lord of life, came and cried to those who were dwelling in the grave, ‘All who are in bonds, be loosed: for I have come, the Ransom of the world.
 
 Let all the trees of the forest dance and sing, as they behold their fellow-tree, the Cross, today receiving veneration: for Christ, as holy David prophesied, has exalted it on high.
 
@@ -336,7 +336,7 @@ Seeing the Precious Cross of Christ placed this day before us, let us venerate i
 
 Theotokion
 
-All-hallowed Lady, with true devotion now we venerate the Wood on which your Son stretched out his most pure hands and for our sakes was nailed. Give us peace and grant that we may come to the Holy Passion that has saved the world; and may we worship at the radiant Festival of Easter, the LordÂ’s Day that brings light and joy to all creation.
+All-hallowed Lady, with true devotion now we venerate the Wood on which your Son stretched out his most pure hands and for our sakes was nailed. Give us peace and grant that we may come to the Holy Passion that has saved the world; and may we worship at the radiant Festival of Easter, the Lord’s Day that brings light and joy to all creation.
 
 ****
 
@@ -377,6 +377,6 @@ The usual Theotokion.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

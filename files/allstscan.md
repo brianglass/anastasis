@@ -3,7 +3,7 @@
 **INTRODUCTION**
 ----------------
 
-The canon, which is written to the same set of Irmi as the Resurrection canon in Tone 8, is anonymous. There might be a clue in the use of the *kalopoiÃ¯a* in Ode 3. This word, which is not in the lexica, I have only noticed elsewhere in a canon by Joseph. Since, however, Joseph always ‘signs’ his canons in the ninth ode, the use of the word is probably not significant. The number of troparia in each ode varies, Odes 1, 4 and 7 each having five troparia, the rest four. Odes 4 and 7, which come after the breaks in the canon, frequently have one more troparion than the others. Here Ode 1, which begins the canon, also has an ‘extra’ troparion. The number of troparia may have been influenced by the acrostic, which forms a correct heroic hexameter. I have not attempted to reproduce the acrostic, though the translation of the acrostic itself forms a six foot iambic line, since English does not naturally accomodate the hexameter.
+The canon, which is written to the same set of Irmi as the Resurrection canon in Tone 8, is anonymous. There might be a clue in the use of the *kalopoiïa* in Ode 3. This word, which is not in the lexica, I have only noticed elsewhere in a canon by Joseph. Since, however, Joseph always ‘signs’ his canons in the ninth ode, the use of the word is probably not significant. The number of troparia in each ode varies, Odes 1, 4 and 7 each having five troparia, the rest four. Odes 4 and 7, which come after the breaks in the canon, frequently have one more troparion than the others. Here Ode 1, which begins the canon, also has an ‘extra’ troparion. The number of troparia may have been influenced by the acrostic, which forms a correct heroic hexameter. I have not attempted to reproduce the acrostic, though the translation of the acrostic itself forms a six foot iambic line, since English does not naturally accomodate the hexameter.
 
 The canon would seem to be fairly late, since apart from the ‘refrains’ in Odes 7 and 8, allusions to the biblical canticles are almost entirely lacking. There is no reference to the Song of Moses, which is almost *de rigueur*, in Ode 1, none to the Song of Avvakoum in Ode 4, not even to the ancient refrain from the ’sung’, or ’Cathedral’, office ‘Glory to your power, O Lord!’, none to Jonas in Ode 6, while in Ode 9 the word ‘magnify’ does not occur at all. All these allusions are, however, found in the Irmi on which the canon is based.
 
@@ -120,7 +120,7 @@ The canon would seem to be fairly late, since apart from the ‘refrains’ in O
 1.  **1 Timothy 6,16.**
 2.  **cf. John 12,32.**
 3.  **Psalm 44,15.**
-4.  **The word *kallopoiÃ¯a* is unattested in the lexica. It also occurs in the 9<sup>th</sup> Ode of the canon for St Artemios on 20 October, whose author is given as ‘Joseph’. The cognate adjective is, however, common and means ‘creating/producing beauty’. In the canon for St Artemios the noun refers to the ‘struggles’ of the martyr and the phrase used means something like ‘made lovely by the struggles that create beauty’. Here the reference is presumably to God.**
+4.  **The word *kallopoiïa* is unattested in the lexica. It also occurs in the 9<sup>th</sup> Ode of the canon for St Artemios on 20 October, whose author is given as ‘Joseph’. The cognate adjective is, however, common and means ‘creating/producing beauty’. In the canon for St Artemios the noun refers to the ‘struggles’ of the martyr and the phrase used means something like ‘made lovely by the struggles that create beauty’. Here the reference is presumably to God.**
 5.  **There is a problem of text here. The *Apostoliki Diakonia* has ‘filled’, while *Phos* has ‘inherited’. These differ by only one letter in Greek. HTM reads ‘inherited’, which is perhaps the better reading, and takes the final clause to refer to ‘virtues’ rather than ‘mansions’, translating the verb by ‘accomplish’. It is difficult, however, to take ‘these’ as referring to the remoter object.**
 6.  **Psalm 44,15.**
 7.  **cf. Isaias 28,16; 1 Peter 2,6; Ephesians 2,20.**
@@ -136,11 +136,11 @@ The canon would seem to be fairly late, since apart from the ‘refrains’ in O
 
 ------------------------------------------------------------------------
 
-This Translation Â© Archimandrite Ephrem, 1997
+This Translation © Archimandrite Ephrem, 1997
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

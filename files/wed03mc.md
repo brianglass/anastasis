@@ -1,4 +1,4 @@
-Ã¯Â»Â¿
+ï»¿
 
 [](tone3.md)
 
@@ -26,17 +26,17 @@ After the 2nd reading from the Psalter others.
 
 You were struck with blows for the sake of the human race and were not enraged; free our life from corruption, Lord, and save us.
 
-ÃŽÂ¤Ã¡Â½Â´ÃŽÂ½ Ã¡Â½Â¡Ã?Â?ÃŽÂ±ÃŽÂ¹Ã¡Â½Â¹Ã?Â„ÃŽÂ·Ã?Â„ÃŽÂ±. Awed by the beauty.
+Î¤á½´Î½ á½¡Ï?Î±Î¹á½¹Ï„Î·Ï„Î±. Awed by the beauty.
 
 The armies of the Angels are amazed as they contemplate your measureless authority and your voluntary Crucifixion: How is He who cannot be looked at scourged in the flesh? He wishes to de-liver human nature from corruption, and so we cry out to you, Giver of life: Glory, O Christ, to your compassion!
 
 Glory, Both now. <span class="style10"><span class="style13">Cross Theotokion. Same melody</span>.</span>
 
-Your pure Mother who knew not wedlock, seeing you hanging dead upon the Tree, mourned as a mother and said, Ã¢Â€Â˜Is this how the lawless and ungrateful people of the Hebrews, who had the benefit of your many and great gifts, have repaid you, my Son? I hymn your divine condescension.Ã¢Â€Â™
+Your pure Mother who knew not wedlock, seeing you hanging dead upon the Tree, mourned as a mother and said, â€˜Is this how the lawless and ungrateful people of the Hebrews, who had the benefit of your many and great gifts, have repaid you, my Son? I hymn your divine condescension.â€™
 
 After the 3rd reading from the Psalter others.
 
-ÃŽÂ¤Ã¡Â½Â´ÃŽÂ½ Ã¡Â½Â¡Ã?Â?ÃŽÂ±ÃŽÂ¹Ã¡Â½Â¹Ã?Â„ÃŽÂ·Ã?Â„ÃŽÂ±. Awed by the beauty.
+Î¤á½´Î½ á½¡Ï?Î±Î¹á½¹Ï„Î·Ï„Î±. Awed by the beauty.
 
 Dishonoured you endured the Cross, O Master beyond all creation, that you might honour me, of old dreadfully dishonoured; with a lance you were pierced in your side, O Longsuffering, as you wished to ransom me, your fashioning, from corruption. I hymn your great compassion and your goodness, O Lover of humankind.
 
@@ -44,7 +44,7 @@ Dishonoured you endured the Cross, O Master beyond all creation, that you might 
 
 Glory. Both now.<span class="style13"> Cross-Theotokion. Same melody.</span>
 
-As your Mother, the pure and all blameless Virgin who knew not wedlock, saw you nailed to the Tree, O Master, she cried aloud to you, Ã¢Â€Â˜Alas, my sweetest Son, how has a lawless people condemned you, the Maker and Master of all, to the tree? I hymn your supreme goodness.
+As your Mother, the pure and all blameless Virgin who knew not wedlock, saw you nailed to the Tree, O Master, she cried aloud to you, â€˜Alas, my sweetest Son, how has a lawless people condemned you, the Maker and Master of all, to the tree? I hymn your supreme goodness.
 
 <span class="style13">Canon of the Cross, whose acrostic is:</span> By toils you ended mortals toils, O Word. Joseph.
 
@@ -94,7 +94,7 @@ With joyful soul the Saints ran towards torments, causing extreme grief to the d
 
 Cross-Theotokion.
 
-Bride who knew not wedlock, seeing Christ suspended on the Cross, grieving you said, Ã¢Â€Â™You have set, O Sun of glory, from my sight, enlightening those in darkness.
+Bride who knew not wedlock, seeing Christ suspended on the Cross, grieving you said, â€™You have set, O Sun of glory, from my sight, enlightening those in darkness.
 
 Of the Mother of God. The same Irmos.
 
@@ -196,7 +196,7 @@ Troparia.
 
 By your toils you ended our toils, Lover of humankind; so now take over to a life without toil those who devoutly worship your holy sufferings, O God of all.
 
-When creation saw you crucified it was altered and trembled: earth was shaken, rocks were rent and the sunÃ¢Â€Â™s course drew away the light.
+When creation saw you crucified it was altered and trembled: earth was shaken, rocks were rent and the sunâ€™s course drew away the light.
 
 Of the Martyrs.
 
@@ -206,7 +206,7 @@ You were not burnt up by the flame of fire but obtained a more fer-vent purpose,
 
 Theotokion.
 
-You stood watching Christ, whom you had borne, lifted up on the Cross, O Immaculate, and you cried: Do not make me childless, whom you preserved pureÃ¢Â€Âš even after childbirth
+You stood watching Christ, whom you had borne, lifted up on the Cross, O Immaculate, and you cried: Do not make me childless, whom you preserved pureâ€š even after childbirth
 
  \[<span class="style13">Cross-Theotokion.</span> When at the judgement seat of Christ I am about to be judged, ap-pear as my defender, delivering me from every torment by your fervent intercession.\]
 
@@ -276,7 +276,7 @@ I am filed with wickedness, I am filled with thoughts that alienate me from you,
 
 May I be delivered by your prayers, all blameless Maiden, from all wrath, from death bringing passions, harsh Hades and fire, from un-just men, from evil foes; I who run to your protection and call on you for help.
 
-As Mother of God implore the Lord, God and King, who was born of you, that you suppliant may be delivered from every threat and evil habit, for from my motherÃ¢Â€Â™s womb I have trusted in you, pure Lady.
+As Mother of God implore the Lord, God and King, who was born of you, that you suppliant may be delivered from every threat and evil habit, for from my motherâ€™s womb I have trusted in you, pure Lady.
 
 Aposticha of Lauds, of the Cross.
 

@@ -39,7 +39,7 @@ Mother without bridegroom, blest by God, heal my feeble soul, for wretch that I 
 
 After the 3rd Reading from the Psalter, others.
 
-As we flee to your protection we cry out with faith from the depth of the soul: Prophet and Forerunner, blest by God, calm the tumult of trials and dangers and the swell of vices, and bring to naught the plans of foes, as you for us GodÂ’s great mercy.
+As we flee to your protection we cry out with faith from the depth of the soul: Prophet and Forerunner, blest by God, calm the tumult of trials and dangers and the swell of vices, and bring to naught the plans of foes, as you for us God’s great mercy.
 
 As All-powerful you have made the memory of your Champions radiantly bright, Lord, for you gave them strength to imitate your sufferings; bravely they conquered the power of Beliar; therefore they have received gifts of healings. At their supplications, O Merciful, grant peace to your people.
 
@@ -109,7 +109,7 @@ Sterile and barren soul, procure fair fruit and blessed with children cry out: I
 
 Troparia
 
-Without conscience I have set aside GodÂ’s law and am about to be condemned, and I know not what to do; Most just Judge, take pity, save me in your compassion.
+Without conscience I have set aside God’s law and am about to be condemned, and I know not what to do; Most just Judge, take pity, save me in your compassion.
 
 Lover of mankind, you are the Dayspring from the East, dawn for me, I pray, with the light of justice, rescuing me from the blackness of the passions and the darkness of punishments, O you of many mercies.
 
@@ -201,7 +201,7 @@ The bruises of my wretched soul have festered, O Word; Physician of the weak, Gi
 
 Of the Martyrs.
 
-On earth the ChampionsÂ’ vessels of clay were crushed, but their force of soul was most mighty and radiant by the power of Christ.
+On earth the Champions’ vessels of clay were crushed, but their force of soul was most mighty and radiant by the power of Christ.
 
 The blood of the saints, poured out, has sanctified the whole earth, watered souls and clearly dried up the muddy streams of vain idolatry.
 
@@ -223,7 +223,7 @@ Forerunner of the Lord, save me from falling into the depth of sin, from being f
 
 Theotokion.
 
-You appeared wider than the heavens as truly Mother of God, Virgin full of GodÂ’s grace; free me from sin that hems me round.
+You appeared wider than the heavens as truly Mother of God, Virgin full of God’s grace; free me from sin that hems me round.
 
 ****
 
@@ -426,6 +426,6 @@ Without seed you conceived of the Holy Spirit, and as we glorify you we cry out:
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

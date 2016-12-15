@@ -23,7 +23,7 @@ mso-bidi-font-size:10.0pt">The revered gathering of the wise Fathers proclaimed 
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">Glorious Fathers, you overthrew Pyrrhus<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a> and Sergios,<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[3]</span></a> with Honorius,<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> Eftyches,<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> Dioskoros<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> and dread Nestorios,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a> saving ChristÂ’s flock from both sheer cliffs by radiantly proclaiming Christ one by hypostasis, but double in natures, revealed by energies alone; as we also worship him as man and perfect God, with the Father and the Spirit, we now glorify you.</span>
+footnote">[3]</span></a> with Honorius,<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a> Eftyches,<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[5]</span></a> Dioskoros<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[6]</span></a> and dread Nestorios,<a href="#_ftn7" id="_ftnref7"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[7]</span></a> saving Christ’s flock from both sheer cliffs by radiantly proclaiming Christ one by hypostasis, but double in natures, revealed by energies alone; as we also worship him as man and perfect God, with the Father and the Spirit, we now glorify you.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">The God-bearing Fathers with one accord proclaimed to be uncreated the divine energy and the divine will of the One who became a beggar, as they allotted my humanity to the flesh, while the blessed Saints wisely fled from the createdness of the energy and will, the confusion of nature and the separation of the person. We faithful, as we honour them with yearly festivals, with one accord glorify Christ who glorified them.</span>
@@ -39,7 +39,7 @@ mso-bidi-font-size:10.0pt">Let us praise today the mystical trumpets of the Spir
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Both now. <span style="color:red;mso-bidi-font-style:italic">Theotokion. The 1st of the Tone.</span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">Entrance,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> O Joyful Light, <span style="color:red;mso-bidi-font-style:italic">the ProÂ­keimenon of the day, and the Readings:</span></span>
+mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">Entrance,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> O Joyful Light, <span style="color:red;mso-bidi-font-style:italic">the Pro­keimenon of the day, and the Readings:</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Genesis.
 \[<span style="color:red">14:14-20</span>\]</span>
@@ -51,7 +51,7 @@ mso-bidi-font-size:10.0pt">Now when Abram heard that Lot his nephew had been tak
 \[<span style="color:red">1:8-11 & 15-17b</span>\]</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Moses said to the sons of Israel: See, I have delivered the land before you; go in and inherit the land which I swore to your fathers, to Abraham and to Isaac and to Jacob, to give it to them and to their seed after them. And I spoke to you at that time saying: I shall not be able to bear you alone. The Lord your God has multiplied you, and behold, you are to-day as the stars of heaven in multitude. May the Lord, the God of our fathers, multiply you a thousand times more than you are, and bless you as he said to you. And I took from you wise and understanding and prudent men, and I set them to rule over you, captains of thousands and hundreds and fifties and tens and recorders for your judges. And I commanded your judges at that time, saying: Administer justice between your brethren, and judge rightly between a man and his brother and his proselyte. You shall not have respect to persons in judging. You shall hear the small as well as the great. You shall not shrink before any manÂ’s person; for the judgement is GodÂ’s.</span>
+mso-bidi-font-size:10.0pt">Moses said to the sons of Israel: See, I have delivered the land before you; go in and inherit the land which I swore to your fathers, to Abraham and to Isaac and to Jacob, to give it to them and to their seed after them. And I spoke to you at that time saying: I shall not be able to bear you alone. The Lord your God has multiplied you, and behold, you are to-day as the stars of heaven in multitude. May the Lord, the God of our fathers, multiply you a thousand times more than you are, and bless you as he said to you. And I took from you wise and understanding and prudent men, and I set them to rule over you, captains of thousands and hundreds and fifties and tens and recorders for your judges. And I commanded your judges at that time, saying: Administer justice between your brethren, and judge rightly between a man and his brother and his proselyte. You shall not have respect to persons in judging. You shall hear the small as well as the great. You shall not shrink before any man’s person; for the judgement is God’s.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Deuteronomy.
 \[<span style="color:red">10:14-18 & 20-21</span>\]</span>
@@ -63,7 +63,7 @@ mso-bidi-font-size:10.0pt">Moses said to the sons of Israel: Behold the heaven a
 italic">At the Aposticha, Stichera of the Resurrection.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-style:italic">
 Glory.<span style="color:red"> Tone 3.</span></span>
 
-You became strict defenders of the apostolic traditions, Holy Fathers, for correctly teaching that the Holy Trinity was consubstantial, you overthrew in council the blasphemy of Arius. After him you also refuted MakeÂ­donios, the opponent of the Spirit, you condemned Nestorios, Eftyches and Dioskoros, Sabellios and the Leaderless Severos. Ask that we, deÂ­livered from their error, may preserve our life unspotted in the faith, we beg.
+You became strict defenders of the apostolic traditions, Holy Fathers, for correctly teaching that the Holy Trinity was consubstantial, you overthrew in council the blasphemy of Arius. After him you also refuted Make­donios, the opponent of the Spirit, you condemned Nestorios, Eftyches and Dioskoros, Sabellios and the Leaderless Severos. Ask that we, de­livered from their error, may preserve our life unspotted in the faith, we beg.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Both now. <span style="color:red;mso-bidi-font-style:italic">Theotokion</span>.</span>
 
@@ -90,7 +90,7 @@ mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic
 ==================================================================================
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">The usual reading from the Psalter and the Canons. That of the ResÂ­urrection to 4, of the Mother of God to 2 and of the Fathers to 8.</span>
+mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">The usual reading from the Psalter and the Canons. That of the Res­urrection to 4, of the Mother of God to 2 and of the Fathers to 8.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:
 italic">The two canons of the Fathers, the acrostic of the first is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">
@@ -117,7 +117,7 @@ From on high the prophetic choir and the godly company of the Apostles plainly t
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">As through GodÂ’s action you conÂ­tained in your womb the Light with triple lamp, as you are loving, enlighten the hearts of those who deÂ­voutly sing your praise; for you are light and glory and eternal salvation.</span>
+mso-bidi-font-size:10.0pt">As through God’s action you con­tained in your womb the Light with triple lamp, as you are loving, enlighten the hearts of those who de­voutly sing your praise; for you are light and glory and eternal salvation.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Second Canon.
@@ -154,7 +154,7 @@ mso-bidi-font-size:10.0pt">The God-bearing Fathers, plainly proclaiming the ener
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">We who long to see the rays of the SpiritÂ’s grace and the divine brightÂ­ness that knows no evening, let us hasten to the source of grace, the Mother of the Creator; for by her all the best things are given to the faithÂ­ful.</span>
+mso-bidi-font-size:10.0pt">We who long to see the rays of the Spirit’s grace and the divine bright­ness that knows no evening, let us hasten to the source of grace, the Mother of the Creator; for by her all the best things are given to the faith­ful.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Another. You that established.</span>
@@ -166,7 +166,7 @@ mso-bidi-font-size:10.0pt">You that without shame pride yourselves on the words 
 mso-bidi-font-size:10.0pt">We worshippers and believers honour the Creator of all and Saviour in two undivided essences, and double wills and energies; therefore the error of Severos we utterly repulse.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Come, let us all plainly reject the error of Severos, Eftyches and Jacob, and with them that of Theodore and Dioskoros; but let us praise in godly songs the fourth Council of the deÂ­vout Fathers.</span>
+mso-bidi-font-size:10.0pt">Come, let us all plainly reject the error of Severos, Eftyches and Jacob, and with them that of Theodore and Dioskoros; but let us praise in godly songs the fourth Council of the de­vout Fathers.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-style:normal;mso-bidi-font-style:italic">**Theotokion.**</span>
@@ -182,26 +182,26 @@ You have been declared higher than the Cherubim and Seraphim, Mother of God; for
 mso-bidi-font-style:italic">Come speedily to help.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Blessed Fathers, you were truly reÂ­vealed to the world as most brilliant beacons of ChristÂ’s truth on the earth, melting like wax the heresies of the blasphemous prattlers, quenching the burning confusions of the slanderers; and so, as Hierarchs of Christ, interÂ­cede that we may be saved.</span>
+mso-bidi-font-size:10.0pt">Blessed Fathers, you were truly re­vealed to the world as most brilliant beacons of Christ’s truth on the earth, melting like wax the heresies of the blasphemous prattlers, quenching the burning confusions of the slanderers; and so, as Hierarchs of Christ, inter­cede that we may be saved.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Glory. <span style="color:red;mso-bidi-font-style:italic">The same.</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Both now.<span style="color:red;mso-bidi-font-style:italic"> Theotokion.</span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Speedily accept our supplications, all-blameless Lady, and bring them to your Son and God; abolish the troubles of those who have recourse to you; humble the devices and overthrow the insolence of the godless, who are in arms against your serÂ­vants.</span>
+mso-bidi-font-size:10.0pt">Speedily accept our supplications, all-blameless Lady, and bring them to your Son and God; abolish the troubles of those who have recourse to you; humble the devices and overthrow the insolence of the godless, who are in arms against your ser­vants.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 4. With foreseeing eyes.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Wise fathers, making the laws of the Spirit your meditation, you received the practical laws sent to you from Rome, and unfolding them by the light of the Spirit, you firmly estabÂ­lished the Church.</span>
+mso-bidi-font-size:10.0pt">Wise fathers, making the laws of the Spirit your meditation, you received the practical laws sent to you from Rome, and unfolding them by the light of the Spirit, you firmly estab­lished the Church.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Let us the faithful garland with hymns the divine assembly of the God-bearÂ­ing Fathers, for they proclaimed to us the incarnate Word as both God and man, with two energies and two corÂ­responding wills.</span>
+mso-bidi-font-size:10.0pt">Let us the faithful garland with hymns the divine assembly of the God-bear­ing Fathers, for they proclaimed to us the incarnate Word as both God and man, with two energies and two cor­responding wills.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">All-wise Fathers, you rightly overÂ­threw Honorius, once greatly puffed up on the throne and rule of old Rome, and finally proclaimed him unworthy of both throne and rule.</span>
+mso-bidi-font-size:10.0pt">All-wise Fathers, you rightly over­threw Honorius, once greatly puffed up on the throne and rule of old Rome, and finally proclaimed him unworthy of both throne and rule.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
@@ -214,19 +214,19 @@ yes">  </span>to the empersonned Word of God and true Light; open the eyes of m
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Another. You, Lord, are my strength.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Explain to us, insane and foolish Severos, how the light without beÂ­ginning, the Word and Son of the Father is one composite nature; for if you spoke thus, you would signify another nature; for the flesh and the Word are not one essence, wretch, but two.</span>
+mso-bidi-font-size:10.0pt">Explain to us, insane and foolish Severos, how the light without be­ginning, the Word and Son of the Father is one composite nature; for if you spoke thus, you would signify another nature; for the flesh and the Word are not one essence, wretch, but two.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">In saying one incarnate nature of the Word, the teacher and chief of the Alexandrians propounded a human nature wholly without change and confusion, clearly teaching the two natures and wills to those who wish to think as orthodox.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">All we the faithful proclaim two naÂ­tures of Christ unconfusedly, denouncing utterly all the impiety of Eftyches and the senseless Dioskoros, as we follow the definition of the Holy Fathers and the words of godÂ­like Cyril.</span>
+mso-bidi-font-size:10.0pt">All we the faithful proclaim two na­tures of Christ unconfusedly, denouncing utterly all the impiety of Eftyches and the senseless Dioskoros, as we follow the definition of the Holy Fathers and the words of god­like Cyril.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">You, Mother of God, are the CheruÂ­bim chariot; you the place and you the dwelling of the FatherÂ’s Word and God, who put on flesh from your immaculate womb; and so as we worship him who was incarnate from you in two essences, we glorify him.</span>
+mso-bidi-font-size:10.0pt">You, Mother of God, are the Cheru­bim chariot; you the place and you the dwelling of the Father’s Word and God, who put on flesh from your immaculate womb; and so as we worship him who was incarnate from you in two essences, we glorify him.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 5. Christ who enlightened.</span>
@@ -241,7 +241,7 @@ mso-bidi-font-size:10.0pt">How excellent and radiant the Synod of the Fathers! F
 mso-bidi-font-size:10.0pt">Reckoning the writings from Rome to be a gift from God, the wise Teachers established upon them the tower of true religion, proclaiming the energies and natures of Christ to be double.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Paul and Peter have been refuted, together with Theodore, with Pyrrhus, Sergios and Honorius, who most shamefully maintain the confusion of ChristÂ’s natures by the confusion of his energies.</span>
+mso-bidi-font-size:10.0pt">Paul and Peter have been refuted, together with Theodore, with Pyrrhus, Sergios and Honorius, who most shamefully maintain the confusion of Christ’s natures by the confusion of his energies.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
@@ -259,14 +259,14 @@ mso-bidi-font-size:10.0pt">Lawless Severos, do not dreadfully confound the natur
 mso-bidi-font-size:10.0pt">The Word of the Father without beginning, as he loves mankind and wished to take pity on us who had perished, clearly assumed human nature; therefore I proclaim him to have two essences and wills.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The fourth Council condemned Severos and Dioskoros, who blasphemed Christ, by confirming the Tome of Leo, Bishop of Rome, who most excellently defined the two naÂ­tures of the Saviour without division.</span>
+mso-bidi-font-size:10.0pt">The fourth Council condemned Severos and Dioskoros, who blasphemed Christ, by confirming the Tome of Leo, Bishop of Rome, who most excellently defined the two na­tures of the Saviour without division.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:
 italic">Theotokion.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Having obtained a motherÂ’s boldness towards your Son, O All-pure, do not disregard our natural intention, we beg; for we Christians put you alone forward to the Master as a kindly appeasement.</span>
+mso-bidi-font-size:10.0pt">Having obtained a mother’s boldness towards your Son, O All-pure, do not disregard our natural intention, we beg; for we Christians put you alone forward to the Master as a kindly appeasement.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 6. The monster from the deep.</span>
@@ -281,13 +281,13 @@ mso-bidi-font-size:10.0pt">That it might escape the dread Nestorios, who wickedl
 mso-bidi-font-size:10.0pt">The Son, whom the Fathers of old had proclaimed as consubstantial with the Father and the Spirit, the assembly of inspired Teachers taught all, with divine energies acknowledging one natural energy and will.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The champions of error, thinking the will to be hypostatic, wickedly introÂ­duced along with the wills the persons of those who willed: the Fathers, excellently refuting them, teach that the energy which is appropriate to it is congenital with the nature.</span>
+mso-bidi-font-size:10.0pt">The champions of error, thinking the will to be hypostatic, wickedly intro­duced along with the wills the persons of those who willed: the Fathers, excellently refuting them, teach that the energy which is appropriate to it is congenital with the nature.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">All-blameless Lady, you have become the door of the divine ray and source of the unsetting light; for all the fullÂ­ness of the Godhead dwelt ineffably in your womb; you reward with his natural energy and radiance those who crave.</span>
+mso-bidi-font-size:10.0pt">All-blameless Lady, you have become the door of the divine ray and source of the unsetting light; for all the full­ness of the Godhead dwelt ineffably in your womb; you reward with his natural energy and radiance those who crave.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Another. Have mercy on me, Saviour.</span>
@@ -296,7 +296,7 @@ mso-bidi-font-size:10.0pt">All-blameless Lady, you have become the door of the d
 mso-bidi-font-size:10.0pt">The two letters of Cyril, once sent to Succensus, the leader of the East, refute all the error of Severos, as they devoutly proclaim Christ.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Cyril proclaims Christ with two natures and double energies, routing the heresy of the senseless Severos; therefore we all abide by his teachÂ­ings.</span>
+mso-bidi-font-size:10.0pt">Cyril proclaims Christ with two natures and double energies, routing the heresy of the senseless Severos; therefore we all abide by his teach­ings.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
@@ -308,7 +308,7 @@ mso-bidi-font-size:10.0pt">We orthodox proclaim you, Mary, to be in truth Virgin
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Kontakion. Tone 8. Model melody.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The preaching of the Apostles and the teachings of the Fathers conÂ­firmed for the Church the faith as one; and wearing a tunic of the truth, woven from the theology on high, she rightly defines and glorifies the great Mystery of true religion.</span>
+mso-bidi-font-size:10.0pt">The preaching of the Apostles and the teachings of the Fathers con­firmed for the Church the faith as one; and wearing a tunic of the truth, woven from the theology on high, she rightly defines and glorifies the great Mystery of true religion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">The Ikos.</span>
@@ -360,17 +360,17 @@ mso-bidi-font-size:10.0pt">Confessing Christ to be in two natures and energies w
 mso-bidi-font-size:10.0pt">We know that he on the Cross and he in the bosom of the Father is one, as God in the highest and in the grave as united to flesh. To whom with one accord we sing as we cry: Blessed is the God of our Fathers.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Believers, hating the emptying and division of Areios, the diminisher of God, and again the fellow heresy of Sabellios, those enemies of the TrinÂ­ity, we cry: Blessed is the God of our Fathers.</span>
+mso-bidi-font-size:10.0pt">Believers, hating the emptying and division of Areios, the diminisher of God, and again the fellow heresy of Sabellios, those enemies of the Trin­ity, we cry: Blessed is the God of our Fathers.</span>
 
 <span style="font-size:
 14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:
 italic">Of the Trinity.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">We proclaim you Lord of all teaching with right belief that you are Father of one only Only-begotten Son and acknowledging one right Spirit, proÂ­ceeding from you, equal in nature and co-eternal.</span>
+mso-bidi-font-size:10.0pt">We proclaim you Lord of all teaching with right belief that you are Father of one only Only-begotten Son and acknowledging one right Spirit, pro­ceeding from you, equal in nature and co-eternal.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 8. In the furnace IsraelÂ’s Youths.</span>
+10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 8. In the furnace Israel’s Youths.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">The Fathers, moving out, as from head-quarters, from<span style="mso-spacerun: yes">  </span>the inspired teaching of the Apostles and Prophets, proclaimed: Christ, the Lord of all, is one in person, double in natures, double in energies.</span>
@@ -379,7 +379,7 @@ mso-bidi-font-size:10.0pt">The Fathers, moving out, as from head-quarters, from<
 mso-bidi-font-size:10.0pt">Wholly to banish every shameless error and blasphemy the Fathers of the Church proclaimed that the Lord possessed uncreated energy and will proper to his nature, and again created, as Man and as Creator.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Holding in their hands the word of God like a sword you wholly conÂ­founded the enemies of true religion as you declared the energy and will of the Saviour and likewise all that was natural to him to be double, just as his natures.</span>
+mso-bidi-font-size:10.0pt">Holding in their hands the word of God like a sword you wholly con­founded the enemies of true religion as you declared the energy and will of the Saviour and likewise all that was natural to him to be double, just as his natures.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion</span>
@@ -394,16 +394,16 @@ mso-bidi-font-size:10.0pt">You are wholly Maiden, wholly fair, wholly formed of 
 mso-bidi-font-size:10.0pt">Let faces be ashamed and the mouths be muzzled of those who do not proclaim one Son in two natures without division, without change and without confusion; for we orthodox all agree in holding that Christ acts and wills not indeed by one and then another person, but in accordance with both natures.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">You that bear the name of Jacob the Patchwork, inscribing his name on yourÂ­selves, tell us plainly: Were you of old baptised in his appellation in the font? Therefore, having deserted Christ for that manÂ’s sake, like him you rave, being clearly without shame.</span>
+mso-bidi-font-size:10.0pt">You that bear the name of Jacob the Patchwork, inscribing his name on your­selves, tell us plainly: Were you of old baptised in his appellation in the font? Therefore, having deserted Christ for that man’s sake, like him you rave, being clearly without shame.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The fourth Council in Chalcedon overthrew the dread Dioskoros, Eftyches and Severos, finally thrusting out of the Church of Christ the Master their thorny error that conÂ­founds the natures of the Saviour. Holding to right belief with it, let us then hate them.</span>
+mso-bidi-font-size:10.0pt">The fourth Council in Chalcedon overthrew the dread Dioskoros, Eftyches and Severos, finally thrusting out of the Church of Christ the Master their thorny error that con­founds the natures of the Saviour. Holding to right belief with it, let us then hate them.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Of the Trinity</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The Godhead of triple light, shining out with a single beam from one three-personned nature, Begetter without beginning, Word of the FaÂ­ther identical in nature and Spirit equal in kingship and consubstantial, you Youths bless, you Priests praise, you people highly exalt to all the ages.</span>
+mso-bidi-font-size:10.0pt">The Godhead of triple light, shining out with a single beam from one three-personned nature, Begetter without beginning, Word of the Fa­ther identical in nature and Spirit equal in kingship and consubstantial, you Youths bless, you Priests praise, you people highly exalt to all the ages.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 9. The burning bush.</span>
@@ -415,10 +415,10 @@ mso-bidi-font-size:10.0pt">Having in yourselves, blessed Fathers, Christ who of 
 mso-bidi-font-size:10.0pt">You have become a type and rule for the whole Church of the thrice-blessed Trinity, teaching it to acknowledge as divine the incarnation of Christ, prophetically driving out the present blasphemy concerning the one uncreated Godhead.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">You rightly abolished the whole bulÂ­wark of impiety, holy Fathers, by teaching the difference of energy and fittingly declaring it to be natural, undivided, uncreated and all-effecting and all-powerful.</span>
+mso-bidi-font-size:10.0pt">You rightly abolished the whole bul­wark of impiety, holy Fathers, by teaching the difference of energy and fittingly declaring it to be natural, undivided, uncreated and all-effecting and all-powerful.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">You became the mouth God, O Saints, and proclaimed, as is right, that the One who is by nature unapproachable is communicated by enÂ­ergies and radiances alone.</span>
+mso-bidi-font-size:10.0pt">You became the mouth God, O Saints, and proclaimed, as is right, that the One who is by nature unapproachable is communicated by en­ergies and radiances alone.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion</span>
@@ -442,7 +442,7 @@ mso-bidi-font-size:10.0pt">Why do you confound the natures of Christ and introdu
 mso-bidi-font-size:10.0pt">Creator born from a Virgin, hurl down the arrogance and insolence of the hostile and the counsels of the heretics; but as God establish the company of the faithful unshaken, exalting their horn and strengthening them by faith, that we may all magnify you.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">The Resurrection Exapostilarion and then the following of the FaÂ­thers.</span>
+mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">The Resurrection Exapostilarion and then the following of the Fa­thers.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:
 italic">Women hear.</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"></span>*
@@ -465,7 +465,7 @@ italic">Tone 6. Having invested all.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Having welded together all spiritual knowledge, and examined together by the Divine Spirit the heavenly and revered Creed, the revered Fathers under GodÂ’s inspiration traced it out. In it, clearly following the teachings of the Apostles, they most distinctly teach that the Word is without beginning with his Begetter and most surely consubstantial. They are reÂ­nowned, truly all-blessed and godly-minded.</span>
+mso-bidi-font-size:10.0pt">Having welded together all spiritual knowledge, and examined together by the Divine Spirit the heavenly and revered Creed, the revered Fathers under God’s inspiration traced it out. In it, clearly following the teachings of the Apostles, they most distinctly teach that the Word is without beginning with his Begetter and most surely consubstantial. They are re­nowned, truly all-blessed and godly-minded.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">Verse:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
@@ -478,14 +478,14 @@ mso-bidi-font-size:10.0pt">Having received the spiritual brilliance of the Holy 
 mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">Verse:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Gather to him his Holy Ones, those who have .set forth his covenant.</span>
 
-Having collected together all their skill as shepherds, and stirred up their most just anger, the godly Shepherds, as ChristÂ’s truest servants, the most sacred initiates of the inspired procÂ­lamation, most justly drove off the fierce and ravening wolves with the sling of the Spirit, having cast as from a sling from the body of the Church those fallen as though sick of a deadly and incurable sickness.
+Having collected together all their skill as shepherds, and stirred up their most just anger, the godly Shepherds, as Christ’s truest servants, the most sacred initiates of the inspired proc­lamation, most justly drove off the fierce and ravening wolves with the sling of the Spirit, having cast as from a sling from the body of the Church those fallen as though sick of a deadly and incurable sickness.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Glory. <span style="mso-bidi-font-style:italic">**Tone 8.**</span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The choir of holy Fathers, having hurried together from the ends of the whole world, proclaimed the doctrine of the one essence and nature of FaÂ­ther, Son and Holy Spirit, and clearly delivered to the Church the mystery of the divinity. Praising them with faith, let us call them blessed as we say: O godly host, inspired warriors of the LordÂ’s battle-line; brightly shining stars of the spiritual firmaÂ­ment; impregnable towers of the mystical Sion; sweet-scented flowers of Paradise; pure golden mouths of the Word; NiceaÂ’s boast, the whole worldÂ’s ornament, intercede insisÂ­tently on behalf of our souls.</span>
+mso-bidi-font-size:10.0pt">The choir of holy Fathers, having hurried together from the ends of the whole world, proclaimed the doctrine of the one essence and nature of Fa­ther, Son and Holy Spirit, and clearly delivered to the Church the mystery of the divinity. Praising them with faith, let us call them blessed as we say: O godly host, inspired warriors of the Lord’s battle-line; brightly shining stars of the spiritual firma­ment; impregnable towers of the mystical Sion; sweet-scented flowers of Paradise; pure golden mouths of the Word; Nicea’s boast, the whole world’s ornament, intercede insis­tently on behalf of our souls.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Both now. You are most blessedÂ…</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Both now. You are most blessed…</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Great Doxology and Dismissal.</span>
@@ -494,18 +494,18 @@ mso-bidi-font-size:10.0pt">The choir of holy Fathers, having hurried together fr
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In fact the doctrine of the two wills and Â‘energiesÂ’ in Christ was only defined at the 6th Council at Constantinople in 681.</span>
+<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In fact the doctrine of the two wills and ‘energies’ in Christ was only defined at the 6th Council at Constantinople in 681.</span>
 
 <a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[2]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Monothelite Patriarch of Constantinople from 638-641 and for the first six months of 654.</span>
 
 <a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[3]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Constantinople from 610-638. Propounded the doctrine of Two Natures but only one mode of activity, </span><span style="font-size: 12.0pt; mso-bidi-font-size: 10.0pt">*energeia*</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt">, in Christ. He was the author of the *Ekthesis* which put it forward. His doctrine was condemned in 681.</span>
 
-<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Pope of Rome from 625-638. In a letter supporting Patriarch Sergios he used the expression Â‘one willÂ’ in speaking of Christ. This doctrine of Â‘MonothelitismÂ’ was condemned and Honorius anathematised at the Council of 681.</span>
+<a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[4]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Pope of Rome from 625-638. In a letter supporting Patriarch Sergios he used the expression ‘one will’ in speaking of Christ. This doctrine of ‘Monothelitism’ was condemned and Honorius anathematised at the Council of 681.</span>
 
-<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Archimandrite of a monastery in Constantinople, he taught that there was only one nature in Christ Â‘after the unionÂ’ .This doctrine of Monophysitism was condemned at the 4th Council of Chalcedon. He also taught ChristÂ’s human nature was not consubstantial with ours.</span>
+<a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[5]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Archimandrite of a monastery in Constantinople, he taught that there was only one nature in Christ ‘after the union’ .This doctrine of Monophysitism was condemned at the 4th Council of Chalcedon. He also taught Christ’s human nature was not consubstantial with ours.</span>
 
-<a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> St CyrilÂ’s successor as Patriarch of Alexandria from 444-451, he supported the doctrine of Monophysitism. He was deposed at the Council of Chalcedon.</span>
+<a href="#_ftnref6" id="_ftn6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[6]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> St Cyril’s successor as Patriarch of Alexandria from 444-451, he supported the doctrine of Monophysitism. He was deposed at the Council of Chalcedon.</span>
 
 <a href="#_ftnref7" id="_ftn7"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[7]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Patriarch of Antioch 512-518, when he was deposed for denouncing the Council of Chalcedon as Nestorian. A moderate Monophysite, he condemned Eftyches. He died in exile in 538.</span>
 
@@ -522,6 +522,6 @@ mso-bidi-font-size:10.0pt">The choir of holy Fathers, having hurried together fr
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

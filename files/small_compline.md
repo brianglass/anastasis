@@ -28,7 +28,7 @@ Amen. Holy God, Holy Strong, Holy Immortal, have mercy on us. **(x3)**
 
 Glory to the Father and to the Son and to the Holy Spirit, both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, forgive our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake.
+All-holy Trinity, have mercy on us. Lord, forgive our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake.
 
 Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
@@ -70,7 +70,7 @@ Have mercy on me, O God, in accordance with your great mercy. According to the m
 
 Psalm 69
 
-O God, come to my help; Lord, hasten to help me. Let those who seek my soul be shamed and confounded. Let those who wish me evil be turned back and put to shame. Let those who say to me, Â‘Good, good!Â’ be turned back immediately, ashamed. Let all who seek you, O God, be glad and rejoice in you. Let all who love your salvation ever say: Â‘The Lord be magnified.Â’ But I am poor and needy; help me, O God. You are my helper and my deliverer; Lord, do not delay.
+O God, come to my help; Lord, hasten to help me. Let those who seek my soul be shamed and confounded. Let those who wish me evil be turned back and put to shame. Let those who say to me, ‘Good, good!’ be turned back immediately, ashamed. Let all who seek you, O God, be glad and rejoice in you. Let all who love your salvation ever say: ‘The Lord be magnified.’ But I am poor and needy; help me, O God. You are my helper and my deliverer; Lord, do not delay.
 
  
 
@@ -274,6 +274,6 @@ Amen.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

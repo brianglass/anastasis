@@ -10,12 +10,12 @@ Manchester, England
 
 <img src="Hodeg04.jpg" width="348" height="445" />
 
-****L****et the impiousÂ’ lips be bereft of speech,
+****L****et the impious’ lips be bereft of speech,
 who do not worship this your icon, the all-revered,
 this which was depicted
-by Luke, the LordÂ’s Apostle,
+by Luke, the Lord’s Apostle,
 the icon with the title,
-Â‘She who points out the WayÂ’.
+‘She who points out the Way’.
 
 ------------------------------------------------------------------------
 
@@ -151,7 +151,7 @@ Orthodox Topic</a></td>
 <tr class="odd">
 <td><hr />
 <p>All texts and translations on this page are copyright to<br />
-Archimandrite Ephrem Â©</p>
+Archimandrite Ephrem ©</p>
 <p><strong>This page was last updated on 31 July 2002</strong></p></td>
 </tr>
 </tbody>

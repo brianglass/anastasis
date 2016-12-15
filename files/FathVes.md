@@ -64,7 +64,7 @@ O Joyful Light**, the Prokeimenon of the day, and the Readings:**
 The Reading is from Genesis.
 \[**14,14-20\]**
 
-Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants, three hundred and eighteen, and pursued after them as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of ChodologÃ³mor and the kings with him, to the valley of SabÃ­; this is the plain of a king. And Melchizedek, king of Salem, brought out loaves and wine; he was priest of the most high God. And he blessed Abram and said: Blessed is Abram by the most high God, who created the heaven and the earth. And blessed is the most high God, who has delivered your enemies into your hand.
+Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants, three hundred and eighteen, and pursued after them as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologómor and the kings with him, to the valley of Sabí; this is the plain of a king. And Melchizedek, king of Salem, brought out loaves and wine; he was priest of the most high God. And he blessed Abram and said: Blessed is Abram by the most high God, who created the heaven and the earth. And blessed is the most high God, who has delivered your enemies into your hand.
 
 The Reading is from Deuteronomy.
 \[**1,8-11 & 15-17b\]**
@@ -148,6 +148,6 @@ The Lord is God.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

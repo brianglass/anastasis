@@ -10,6 +10,6 @@ To read the file you will need Adobe Acrobat Reader, which may be downloaded fre
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 17 February 2007**

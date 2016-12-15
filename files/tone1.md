@@ -30,6 +30,6 @@ Matins for Sunday through Wednesday are complete, but I have still to add the se
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 04 December 2013**

@@ -22,7 +22,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us. (
 
 Glory to the Father and to the Son and to the Holy Spirit, both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, forgive our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, forgive our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father and to the Son and to the Holy Spirit, both now and for ever and to the ages of ages. Amen.
 
@@ -34,7 +34,7 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Then the following Hymns to the Trinity. Tone 1.
 
-On rising from sleep, we fall down before you, O Good One, and we cry to you with the AngelsÂ’ hymn, O Mighty One: Holy, Holy, Holy are you, O God: through the Mother of God have mercy on us.
+On rising from sleep, we fall down before you, O Good One, and we cry to you with the Angels’ hymn, O Mighty One: Holy, Holy, Holy are you, O God: through the Mother of God have mercy on us.
 
 Glory to the Father and to the Son and to the Holy Spirit.
 
@@ -124,15 +124,15 @@ Trisagion,
 
 Then these Troparia in Tone 8.
 
-Behold the bridegroom is coming in the middle of the night; and blessed is the servant whom he finds watching; but unworthy is the one whom he finds idle. Take care then, my soul, not to be overcome with sleep, lest you be given up to death and shut outside the kingdom; but stay wakeful and cry, Â‘Holy, Holy, Holy are you, O God. Through the Mother of God have mercy on usÂ’.
+Behold the bridegroom is coming in the middle of the night; and blessed is the servant whom he finds watching; but unworthy is the one whom he finds idle. Take care then, my soul, not to be overcome with sleep, lest you be given up to death and shut outside the kingdom; but stay wakeful and cry, ‘Holy, Holy, Holy are you, O God. Through the Mother of God have mercy on us’.
 
 Glory.
 
-Consider that dread day my soul and keep watch, lighting your lamp, and bright with oil; for you do not know when the voice will come to you which says, Â‘Behold the BridegroomÂ’. Take care then, my soul, lest you doze and stay outside knocking like the five virgins; but persevere unsleeping, that you may meet Christ God with rich oil and that he may give you the divine bridal chamber of his glory.
+Consider that dread day my soul and keep watch, lighting your lamp, and bright with oil; for you do not know when the voice will come to you which says, ‘Behold the Bridegroom’. Take care then, my soul, lest you doze and stay outside knocking like the five virgins; but persevere unsleeping, that you may meet Christ God with rich oil and that he may give you the divine bridal chamber of his glory.
 
 Both now. *Theotokion*.
 
-We beg you, Virgin Mother of God, unassailable wall and fortress of salvation; scatter the counsels of the foe; turn your peopleÂ’s grief to joy; restore your world; strengthen the devout; intercede for the peace of the world; for you, Mother of God, are our hope.
+We beg you, Virgin Mother of God, unassailable wall and fortress of salvation; scatter the counsels of the foe; turn your people’s grief to joy; restore your world; strengthen the devout; intercede for the peace of the world; for you, Mother of God, are our hope.
 
 ****
 
@@ -214,7 +214,7 @@ I **** have lifted up my eyes to the mountains, from where my help will come. My
 
 Psalm 133
 
-Come now bless the Lord all you the LordÂ’s servants, who stand in the house of the Lord, in the courts of the house of our God. Lift up your hands every night to the Holy Place, and bless the Lord. May the Lord bless you from Sion, He who made heaven and earth.
+Come now bless the Lord all you the Lord’s servants, who stand in the house of the Lord, in the courts of the house of our God. Lift up your hands every night to the Holy Place, and bless the Lord. May the Lord bless you from Sion, He who made heaven and earth.
 
 Glory. Both now.
 
@@ -388,15 +388,15 @@ Amen.
 
 **The following Note is found in the Horologion before the Prayer of St Ephrem the Syrian**
 
-The word Â‘AlleluiaÂ’ is Hebrew and in translation means Â‘Praise the LordÂ’. People use it as a sign of joy and an expression of gladness as they praise God and thank him for his wonders, as is clear from the tile of many Psalms, to the which the word is attached and also from what Tobit says about Jerusalem being rebuilt again after its fall, that all its streets will say Â‘AlleluiaÂ’ (13,18). It is also clear from the Apocalypse of John, who, after the fall and disappearance of the spiritual Babylon, heard a loud voice from heaven saying continuously, Â‘AlleluiaÂ’ (13,2.20s; 19,1). Nevertheless ChristÂ’s Church among us uses the word not only for radiant and joyful days, as, for example, in the Antiphons of the feasts of the Lord, Â‘Save us who sing to you: Alleluia!Â’, but also in many places in the daily day and night office. The word is especially frequent in the rites for funerals and the mournful days of the fasts, when Â‘AlleluiaÂ’ is sung at Vespers in place of the normal Prokeimenon and at Matins instead of Â‘The Lord is GodÂ’. Of this Â‘AlleluiaÂ’ here and subsequently, the instruction of the Typikon says, Â‘But if it is AlleluiaÂ’, that is if there is a fast, if we do not sing, Â‘The Lord is GodÂ’, we make the full prostrations. Otherwise etc.
+The word ‘Alleluia’ is Hebrew and in translation means ‘Praise the Lord’. People use it as a sign of joy and an expression of gladness as they praise God and thank him for his wonders, as is clear from the tile of many Psalms, to the which the word is attached and also from what Tobit says about Jerusalem being rebuilt again after its fall, that all its streets will say ‘Alleluia’ (13,18). It is also clear from the Apocalypse of John, who, after the fall and disappearance of the spiritual Babylon, heard a loud voice from heaven saying continuously, ‘Alleluia’ (13,2.20s; 19,1). Nevertheless Christ’s Church among us uses the word not only for radiant and joyful days, as, for example, in the Antiphons of the feasts of the Lord, ‘Save us who sing to you: Alleluia!’, but also in many places in the daily day and night office. The word is especially frequent in the rites for funerals and the mournful days of the fasts, when ‘Alleluia’ is sung at Vespers in place of the normal Prokeimenon and at Matins instead of ‘The Lord is God’. Of this ‘Alleluia’ here and subsequently, the instruction of the Typikon says, ‘But if it is Alleluia’, that is if there is a fast, if we do not sing, ‘The Lord is God’, we make the full prostrations. Otherwise etc.
 
-Note that the Latin Church has the opposite custom to us and expressly forbids the use of Alleluia on fast days and at mournful rites, and limits it to joyful days only, especially the day of Pascha, when they sing it very often, as do the Â‘Christ has risenÂ’. But also, many Westerners when visiting one another during the days of Pascha, or meeting in the road, give the greeting, Â‘Happy AlleluiaÂ’, just as we use Â‘Christ has risenÂ’.
+Note that the Latin Church has the opposite custom to us and expressly forbids the use of Alleluia on fast days and at mournful rites, and limits it to joyful days only, especially the day of Pascha, when they sing it very often, as do the ‘Christ has risen’. But also, many Westerners when visiting one another during the days of Pascha, or meeting in the road, give the greeting, ‘Happy Alleluia’, just as we use ‘Christ has risen’.
 
  
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

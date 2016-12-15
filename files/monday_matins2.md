@@ -78,7 +78,7 @@ Lighten me of many offences, O Word. Joseph.
 
 Ode 1. Irmos.
 
-Drowning PharaoÂ’s chariots in the deep, you parted the sea, Lord, and saved the Israelite people as they praised you with songs.
+Drowning Pharao’s chariots in the deep, you parted the sea, Lord, and saved the Israelite people as they praised you with songs.
 
 ****
 
@@ -86,13 +86,13 @@ Troparia.
 
 Deliver me, Sinless One, from ten thousand offences, which I have senselessly committed, granting me tears of compunction as you once did to the Harlot.
 
-Through shameful deeds I have become a robbersÂ’ cave, show me through virtues show me to be your house, O Lover of mankind, born by your wish in a cave.
+Through shameful deeds I have become a robbers’ cave, show me through virtues show me to be your house, O Lover of mankind, born by your wish in a cave.
 
 ****
 
 Of the Martyrs.
 
-With GodÂ’s Spirit at the helm, inspired Martyrs, you sped through the tempest of torments and reached GodÂ’s haven.
+With God’s Spirit at the helm, inspired Martyrs, you sped through the tempest of torments and reached God’s haven.
 
 Alight with the grace of the Spirit, all-praised Martyrs, you fled rejoicing from the folly of idols.
 
@@ -150,7 +150,7 @@ Of the Martyrs.
 
 You appeared as burning coals, wise Athletes, reducing to ashes the fuel of godlessness, and leading those in darkness to the light.
 
-Imitating ChristÂ’s death, O Martyrs, you were acquainted with pains of many kinds; therefore you inherited life divine.
+Imitating Christ’s death, O Martyrs, you were acquainted with pains of many kinds; therefore you inherited life divine.
 
 ****
 
@@ -252,7 +252,7 @@ The Lord who came down and appeared to the Youths in the flame by divine power, 
 
 Troparia.
 
-Through laughter Ham became a slave by his fatherÂ’s decision; what will you do, my soul, enslaved to the passions, with disordered laughter and without reverence for the heavenly Father?
+Through laughter Ham became a slave by his father’s decision; what will you do, my soul, enslaved to the passions, with disordered laughter and without reverence for the heavenly Father?
 
 Senselessly Cain the slayer of his brother became insane with rage; you have appeared like him, my soul, by slaying yourself, not some one else, with the pleasures and deceptions of life.
 
@@ -274,7 +274,7 @@ By excess of profligacy I have now drawn near to Hell; as you have exceeding com
 
 Ode 9. Irmos.
 
-On mount Sinai Moses saw you in the bush, who conceived unburned the fire of the Godhead in your womb; while Daniel saw you, an unhewn mountain, Isaias cried out that you budded forth the rod from DavidÂ’s root.
+On mount Sinai Moses saw you in the bush, who conceived unburned the fire of the Godhead in your womb; while Daniel saw you, an unhewn mountain, Isaias cried out that you budded forth the rod from David’s root.
 
 ****
 
@@ -323,6 +323,6 @@ As truly greater than the Angels in heaven, bring the supplication of humans upo
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

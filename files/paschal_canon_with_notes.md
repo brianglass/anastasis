@@ -19,6 +19,6 @@ The page is printed in Adobe PDF format, for which Acrobat Reader is necessary. 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -93,6 +93,6 @@ Do not be a coward then, and do not fear their wickedness; they cannot harm you,
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

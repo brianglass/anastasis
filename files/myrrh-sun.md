@@ -9,13 +9,13 @@ The arrangements for the Sundays of the Pentecostarion vary, there being a tende
 
 TYPIKON OF DIONYSIOU
 
-At Orthros, after the Canon to the Trinity, Trisagion, YpakoÃ¯ of the Tone, and the rest \[that is the Midnight Office\]. After the reading, blessing by the Priest,
+At Orthros, after the Canon to the Trinity, Trisagion, Ypakoï of the Tone, and the rest \[that is the Midnight Office\]. After the reading, blessing by the Priest,
 
 **Christ has risen** ** \[**x3**\], the Royal Office and the Six Psalms.
 
 At
 
-**The Lord is God**, Troparia, **when you went down** \[**x2**\], **The noble Joseph** and **The Angel standing by the grave***.* The usual two Kathismata of the Psalter \[2 and 3\] and Psalm 118. The Evlogitaria, YpakoÃ¯, Prokeimenon and 4th Eothinon. **Having seen the Resurrection** and the rest as on Sundays. The Paschal Canon with the Theotokia to 6, in which we say **Glory to your holy Resurrection** ** and **Most holy Mother of God, save us**, and the Canon of the Myrrhbearers to 8, beginning at the verse **Then the leaders of Edom hastened** ** \[That is the use of the biblical canticles of the nine Odes is resumed\]*.* Katavasias of Pascha. After the 3rd Ode, Kontakion of Pascha and the Kathismata of the day. After the 6th Ode, Kontakion and Ikos of the Feast, Synaxarion and Notice of the day. The Magnificat is not sung, but the 9th Ode of Pascha with the Megalynaria and **Most holy Mother of God, save us** \[twice\] and then the verses \[of the Benedictus\] with the Canon of the Myrrhbearers. At the end Katavasia **The Angel cried** ** and **Shine, shine***.* Then **Holy is the Lord our God**, Exapostilarion of Pascha once and that of the Myrrhbearers once. At Lauds the normal Stichera from the Octoichos, **Glory** Doxastikon of the Feast, Tone 2, the \[2nd\] Eothinon, **Both now** the usual Theotokion **You are highly blessed**. Doxology, Troparion **Today salvation**. Then we read the 4th Eothinon. But watch this, as the Typika have a mistake. The First Hour and Dismissal. ****
+**The Lord is God**, Troparia, **when you went down** \[**x2**\], **The noble Joseph** and **The Angel standing by the grave***.* The usual two Kathismata of the Psalter \[2 and 3\] and Psalm 118. The Evlogitaria, Ypakoï, Prokeimenon and 4th Eothinon. **Having seen the Resurrection** and the rest as on Sundays. The Paschal Canon with the Theotokia to 6, in which we say **Glory to your holy Resurrection** ** and **Most holy Mother of God, save us**, and the Canon of the Myrrhbearers to 8, beginning at the verse **Then the leaders of Edom hastened** ** \[That is the use of the biblical canticles of the nine Odes is resumed\]*.* Katavasias of Pascha. After the 3rd Ode, Kontakion of Pascha and the Kathismata of the day. After the 6th Ode, Kontakion and Ikos of the Feast, Synaxarion and Notice of the day. The Magnificat is not sung, but the 9th Ode of Pascha with the Megalynaria and **Most holy Mother of God, save us** \[twice\] and then the verses \[of the Benedictus\] with the Canon of the Myrrhbearers. At the end Katavasia **The Angel cried** ** and **Shine, shine***.* Then **Holy is the Lord our God**, Exapostilarion of Pascha once and that of the Myrrhbearers once. At Lauds the normal Stichera from the Octoichos, **Glory** Doxastikon of the Feast, Tone 2, the \[2nd\] Eothinon, **Both now** the usual Theotokion **You are highly blessed**. Doxology, Troparion **Today salvation**. Then we read the 4th Eothinon. But watch this, as the Typika have a mistake. The First Hour and Dismissal. ****
 
 NOTES ON THE TYPIKON OF DIONYSIOU
 
@@ -30,6 +30,6 @@ The printed Pentecostarion differs about the way the Troparia of the Canon are t
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

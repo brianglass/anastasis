@@ -16,9 +16,9 @@ At
 
 Tone 5. Venerable Father.
 
-Venerable Father, most holy Gregory; full pen of the breath of the Advocate and clear tongue of Orthodoxy; lamp of the divine brightness with many lights; herald of truth, rampart of theology; wellspring of high doctrines; torrent of teachings that flow with honey; lyre tuned to GodÂ’s voice of songs composed by God that delights the minds of believers. All-wise Father, entreat Christ, implore Christ, who refashioned the world in the streams of Jordan, to save our souls.
+Venerable Father, most holy Gregory; full pen of the breath of the Advocate and clear tongue of Orthodoxy; lamp of the divine brightness with many lights; herald of truth, rampart of theology; wellspring of high doctrines; torrent of teachings that flow with honey; lyre tuned to God’s voice of songs composed by God that delights the minds of believers. All-wise Father, entreat Christ, implore Christ, who refashioned the world in the streams of Jordan, to save our souls.
 
-Venerable Father, all-honoured Gregory; axe that fells the assaults of heretics, two-edged sword of the Advocate; knife that cuts out adulterated seeds; fire that burns up the undergrowth of heresies; true farmerÂ’s winnowing fan by which the weight and lightness of doctrines is well distinguished; measuring rod of strict accuracy that directs all into paths of salvation. Ever entreat Christ, implore Christ, who refashioned the world in the streams of Jordan, to save our race.
+Venerable Father, all-honoured Gregory; axe that fells the assaults of heretics, two-edged sword of the Advocate; knife that cuts out adulterated seeds; fire that burns up the undergrowth of heresies; true farmer’s winnowing fan by which the weight and lightness of doctrines is well distinguished; measuring rod of strict accuracy that directs all into paths of salvation. Ever entreat Christ, implore Christ, who refashioned the world in the streams of Jordan, to save our race.
 
 Venerable Father, all-blessed Gregory; mouth that pours out blessed words, drawing them from the inexhaustible and divine wells of salvation, expounding for all words of prayer; rule that directs to virtue; you became radiant by contemplation of things divine, illumined by the brightness of the uncreated Trinity, whose invincible champion you became. Venerable Father, entreat Christ, implore Christ, who refashioned the world in the streams of Jordan, to save our race.
 
@@ -53,7 +53,7 @@ Verse:
 
 The sea saw and fled; Jordan was turned back.
 
-Let the Forerunner, prophetic trumpet, cry, Â‘Produce the fruits of noble deeds for the Lord baptised in JordanÂ’.
+Let the Forerunner, prophetic trumpet, cry, ‘Produce the fruits of noble deeds for the Lord baptised in Jordan’.
 
 ****
 
@@ -68,13 +68,13 @@ Glory.
 **Of St Gregory.
 Tone 4.**
 
-Having achieved a life inspired by God, you made its practice bright by contemplation, Gregory, revealer of God; for loving wisdom with divine ardour, you were enriched with grace from the mouth of the Spirit. Distilling the sweetness of your words like honeycomb, you ever make GodÂ’s Church joyful with divine thoughts. And so, as you dwell a high priest in heaven, intercede unceasingly for us who celebrate your memory.
+Having achieved a life inspired by God, you made its practice bright by contemplation, Gregory, revealer of God; for loving wisdom with divine ardour, you were enriched with grace from the mouth of the Spirit. Distilling the sweetness of your words like honeycomb, you ever make God’s Church joyful with divine thoughts. And so, as you dwell a high priest in heaven, intercede unceasingly for us who celebrate your memory.
 
 Both now.
 
 **Of the Feast, same Tone.**
 
-When the Baptist saw you, who take away the sin of the world by spirit and fire,\[4\] coming to him, quailing and trembling he cried, Â‘I do not dare to grasp your immaculate head. But sanctify me, Master, by your Epiphany, only lover of humankindÂ’.
+When the Baptist saw you, who take away the sin of the world by spirit and fire,\[4\] coming to him, quailing and trembling he cried, ‘I do not dare to grasp your immaculate head. But sanctify me, Master, by your Epiphany, only lover of humankind’.
 
 ****
 
@@ -91,6 +91,6 @@ As you were baptized in the Jordan, Lord, the worship of the Trinity was made ma
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

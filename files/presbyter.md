@@ -29,7 +29,7 @@ color:red;mso-bidi-font-style:italic">Tone 5.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
 font-style:normal;mso-bidi-font-style:italic">Note that when they sing the troparion</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Holy Martyrs </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">t</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
-mso-bidi-font-style:italic">he Bishop takes his seat in front of the Holy Table on a small throne, and when, as they circle the Holy Table, they come in front of the Bishop they make a metania, and the one to be ordained kisses the BishopÂ’s knee above the Omophorion </span><span style="font-size:14.0pt;
+mso-bidi-font-style:italic">he Bishop takes his seat in front of the Holy Table on a small throne, and when, as they circle the Holy Table, they come in front of the Bishop they make a metania, and the one to be ordained kisses the Bishop’s knee above the Omophorion </span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-style:normal">\[<span style="color:red;
 mso-bidi-font-style:italic">Epigonation</span>\].</span>
 
@@ -48,7 +48,7 @@ italic">And at once </span><span style="font-size:14.0pt;mso-bidi-font-size:
 italic">and</span> ** \[<span style="color:red;mso-bidi-font-style:italic">in the same way</span>\] ** <span style="color:red;mso-bidi-font-style:
 italic">by those outside. The Bishop again signs his head three times, and when the Deacon has said </span>Let us pray to the Lord<span style="color:red">, the Bishop, with his hand on the head of the ordinand prays as follows in a low voice:</span>**</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">O God, without beginning and without end, you are older than all creation, and have honoured with the title of Â‘PresbyterÂ’ those who have been found worthy of this rank to minister the word of your truth. Master of all things, be well pleased for this man, who, because of his unblemished way of life and unswerving faith, you have been well pleased to be appointed through me, to receive this great grace of the Holy Spirit. Show your servant to be perfect, by being well-pleasing to you in all things, and living in a manner worthy of this great honour of the Priesthood that has been given him by your providential power. Because yours is the might, and yours is the Kingdom, and the power, and the glory of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. Amen.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">O God, without beginning and without end, you are older than all creation, and have honoured with the title of ‘Presbyter’ those who have been found worthy of this rank to minister the word of your truth. Master of all things, be well pleased for this man, who, because of his unblemished way of life and unswerving faith, you have been well pleased to be appointed through me, to receive this great grace of the Holy Spirit. Show your servant to be perfect, by being well-pleasing to you in all things, and living in a manner worthy of this great honour of the Priesthood that has been given him by your providential power. Because yours is the might, and yours is the Kingdom, and the power, and the glory of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. Amen.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">After this Prayer the First Priest says in a quiet voice, such that those present can hear and respond, the following Diaconal Litany:</span>
@@ -135,6 +135,6 @@ mso-bidi-font-style:italic">It is customary for the newly ordained to be asked b
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

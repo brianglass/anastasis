@@ -36,7 +36,7 @@ Glory, Both now.
 
 **Cross Theotokion. Same melody.**
 
-Your pure Mother who knew not wedlock, seeing you hanging dead upon the Tree, mourned as a mother and said, Â‘Is this how the lawless and ungrateful people of the Hebrews, who had the benefit of your many and great gifts, have repaid you, my Son? I hymn your divine condescension.Â’
+Your pure Mother who knew not wedlock, seeing you hanging dead upon the Tree, mourned as a mother and said, ‘Is this how the lawless and ungrateful people of the Hebrews, who had the benefit of your many and great gifts, have repaid you, my Son? I hymn your divine condescension.’
 
 ****
 
@@ -53,7 +53,7 @@ Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
-As your Mother, the pure and all blameless Virgin who knew not wedlock, saw you nailed to the Tree, O Master, she cried aloud to you, Â‘Alas, my sweetest Son, how has a lawless people condemned you, the Maker and Master of all, to the tree? I hymn your supreme goodness.
+As your Mother, the pure and all blameless Virgin who knew not wedlock, saw you nailed to the Tree, O Master, she cried aloud to you, ‘Alas, my sweetest Son, how has a lawless people condemned you, the Maker and Master of all, to the tree? I hymn your supreme goodness.
 
 ****
 
@@ -123,7 +123,7 @@ With joyful soul the Saints ran towards torments, causing extreme grief to the d
 
 Cross-Theotokion.
 
-Bride who knew not wedlock, seeing Christ suspended on the Cross, grieving you said, Â’You have set, O Sun of glory, from my sight, enlightening those in darkness.
+Bride who knew not wedlock, seeing Christ suspended on the Cross, grieving you said, ’You have set, O Sun of glory, from my sight, enlightening those in darkness.
 
 ****
 
@@ -263,7 +263,7 @@ Troparia.
 
 By your toils you ended our toils, Lover of humankind; so now take over to a life without toil those who devoutly worship your holy sufferings, O God of all.
 
-When creation saw you crucified it was altered and trembled: earth was shaken, rocks were rent and the sunÂ’s course drew away the light.
+When creation saw you crucified it was altered and trembled: earth was shaken, rocks were rent and the sun’s course drew away the light.
 
 ****
 
@@ -277,7 +277,7 @@ You were not burnt up by the flame of fire but obtained a more fervent purpose, 
 
 Theotokion.
 
-You stood watching Christ, whom you had borne, lifted up on the Cross, O Immaculate, and you cried: Do not make me childless, whom you preserved pureÂ‚ even after childbirth.
+You stood watching Christ, whom you had borne, lifted up on the Cross, O Immaculate, and you cried: Do not make me childless, whom you preserved pure‚ even after childbirth.
 
 \[
 
@@ -371,7 +371,7 @@ I am filed with wickedness, I am filled with thoughts that alienate me from you,
 
 May I be delivered by your prayers, all blameless Maiden, from all wrath, from death bringing passions, harsh Hell and fire, from unjust men, from evil foes; I who run to your protection and call on you for help.
 
-As Mother of God implore the Lord, God and King, who was born of you, that you suppliant may be delivered from every threat and evil habit, for from my motherÂ’s womb I have trusted in you, pure Lady.
+As Mother of God implore the Lord, God and King, who was born of you, that you suppliant may be delivered from every threat and evil habit, for from my mother’s womb I have trusted in you, pure Lady.
 
 ****
 
@@ -396,6 +396,6 @@ Seeing you hanging on the tree, my Christ, supremely good, the All-blameless lam
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

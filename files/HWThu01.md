@@ -156,6 +156,6 @@ Note that the Liti in the Narthex is dropped from today until the Sunday of Anti
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

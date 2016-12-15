@@ -31,7 +31,7 @@ Come, believers, having gained Mary the Mother of God as an unbreachable wall, l
 After the 2nd reading other Kathismata.
 The soldiers watching.
 
-Hasten to open to me your fatherly embrace; like the Wastrel I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry, Â‘I have sinned against you, save me!Â’
+Hasten to open to me your fatherly embrace; like the Wastrel I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry, ‘I have sinned against you, save me!’
 
 ****
 
@@ -46,14 +46,14 @@ Glory. Both now.
 **Theotokion.
 Same melody.**
 
-Put away, my soul, the sleep of sloth and light the bright lamp of repentance, and now go out, bidding farewell to the confusion of life, to meet the immortal Bridegroom, saying, Â‘Accept and do not reject me, O Word, at the supplications of the one who gave you birthÂ’.
+Put away, my soul, the sleep of sloth and light the bright lamp of repentance, and now go out, bidding farewell to the confusion of life, to meet the immortal Bridegroom, saying, ‘Accept and do not reject me, O Word, at the supplications of the one who gave you birth’.
 
 ****
 
 After the 3rd Reading, Other Kathismata.
 The soldiers watching.
 
-John, who of old baptized in JordanÂ’s streams the Purification of all the world, draw me out, who am drowned by many offences, and wash me clean of every kind of stain, as you ever entreat the Lover of humankind as an acceptable intercessor.
+John, who of old baptized in Jordan’s streams the Purification of all the world, draw me out, who am drowned by many offences, and wash me clean of every kind of stain, as you ever entreat the Lover of humankind as an acceptable intercessor.
 
 ****
 
@@ -71,7 +71,7 @@ Glory. Both now.
 **Theotokion.
 The soldiers watching.**
 
-John, leaping in his motherÂ’s womb, by grace recognised God being carried in your womb, pure Virgin, and faithfully worshipped. But I implore you, O Virgin, with the Forerunner, entreat the Word, to whom you gave a body, that your servant may be saved.
+John, leaping in his mother’s womb, by grace recognised God being carried in your womb, pure Virgin, and faithfully worshipped. But I implore you, O Virgin, with the Forerunner, entreat the Word, to whom you gave a body, that your servant may be saved.
 
 ****
 
@@ -124,7 +124,7 @@ The same Irmos.
 
 F
 
-You were called Â‘Voice of the WordÂ’, blest Saint. Therefore, O Forerunner, receive our voices that we bring to you, freeing us from evils by your mediation. ****
+You were called ‘Voice of the Word’, blest Saint. Therefore, O Forerunner, receive our voices that we bring to you, freeing us from evils by your mediation. ****
 
 W
 
@@ -144,7 +144,7 @@ All-holy Lady, who alone gave birth in time to the immaculate incarnate Son, hea
 
 Ode 3. Irmos.
 
-Â‘A stone which the builders rejected has become the head of the cornerÂ’; it is the rock on which Christ made firm the Church which he had ransomed from among the nations.
+‘A stone which the builders rejected has become the head of the corner’; it is the rock on which Christ made firm the Church which he had ransomed from among the nations.
 
 ****
 
@@ -166,7 +166,7 @@ The host of Bodiless Powers was truly amazed at your courage, Holy Ones, how you
 
 E
 
-Still decked out with the blood from your wounds; still drenched in gore, O Champions, you stand beside the Lord, the immortal King, all garlanded with victorsÂ’ crowns. ****
+Still decked out with the blood from your wounds; still drenched in gore, O Champions, you stand beside the Lord, the immortal King, all garlanded with victors’ crowns. ****
 
 Theotokion
 
@@ -200,7 +200,7 @@ The Word, coming forth from you, Mother of God, bearing flesh in its entirety, p
 
 Ode 4. Irmos
 
-Foreseeing in Spirit, you proclaimed the incarnation of the Word, prophet Avvakoum, as you cried, Â‘When the years draw near you will be recognised; when the moment comes you will be revealedÂ’; glory to your power, O Lord!
+Foreseeing in Spirit, you proclaimed the incarnation of the Word, prophet Avvakoum, as you cried, ‘When the years draw near you will be recognised; when the moment comes you will be revealed’; glory to your power, O Lord!
 
 ****
 
@@ -208,7 +208,7 @@ Troparia
 
 O
 
-The wealth you gave me I have squandered wickedly, committing monstrous deeds and now am naked, clothed in the works of dishonour. And so I cry to you, Â‘Make me radiant with robes, goading me to repentance by divine graceÂ’. ****
+The wealth you gave me I have squandered wickedly, committing monstrous deeds and now am naked, clothed in the works of dishonour. And so I cry to you, ‘Make me radiant with robes, goading me to repentance by divine grace’. ****
 
 U
 
@@ -266,7 +266,7 @@ I have been filled with many and grievous offences, longsuffering, compassionate
 
 T
 
-You justified the Tax-collector, O Christ, when he sighed and groaned; therefore I too, imitating him, beat my breast and cry to you, Â‘Have mercy on me, O only compassionate and pityingÂ’. ****
+You justified the Tax-collector, O Christ, when he sighed and groaned; therefore I too, imitating him, beat my breast and cry to you, ‘Have mercy on me, O only compassionate and pitying’. ****
 
 Of the Martyrs
 
@@ -306,7 +306,7 @@ David proclaims you Virgin Queen, Immaculate Pure Lady. And so I pray you, make 
 
 Ode 6. Irmos
 
-I imitate the Prophet Jonas as I cry, Â‘Free my life from corruption, good Lord, and save me, Saviour of the world, as I cry, Â‘Glory to you!Â’
+I imitate the Prophet Jonas as I cry, ‘Free my life from corruption, good Lord, and save me, Saviour of the world, as I cry, ‘Glory to you!’
 
 ****
 
@@ -318,7 +318,7 @@ The bones of my wretched soul have been crushed, and I am bowed down by the weig
 
 E
 
-Fallen into an ocean of dread deeds and the tempest of the passions, I cry out, Â‘All-powerful Christ, bring me up with your mighty hand, and save me.Â’ ****
+Fallen into an ocean of dread deeds and the tempest of the passions, I cry out, ‘All-powerful Christ, bring me up with your mighty hand, and save me.’ ****
 
 Of the Martyrs
 
@@ -344,7 +344,7 @@ Baptist, who on earth proclaimed repentance, show me ways of repentance that gui
 
 W
 
-As you plunged the abyss in the riverÂ’s streams, dry up the abysses of my passions by granting me showers of tears, Forerunner, herald of Christ. ****
+As you plunged the abyss in the river’s streams, dry up the abysses of my passions by granting me showers of tears, Forerunner, herald of Christ. ****
 
 N
 
@@ -358,7 +358,7 @@ I earnestly entreat you, the Mother of God and fair among women, do not despise 
 
 Ode 7. Irmos
 
-The fire did not touch or trouble your youths in the furnace, O Saviour. Then the three, as from one mouth, hymned and blessed you, saying, Â‘Blessed is the God of our fathersÂ’.
+The fire did not touch or trouble your youths in the furnace, O Saviour. Then the three, as from one mouth, hymned and blessed you, saying, ‘Blessed is the God of our fathers’.
 
 ****
 
@@ -464,7 +464,7 @@ By your way of life, Baptist John, you were revealed to be an Angel, preaching t
 
 K
 
-Your head was unjustly cut off, blest Saint, who plunged ChristÂ’s head in the waters. By your prayers empower us all to trample under foot the destructive head of the deceiver. ****
+Your head was unjustly cut off, blest Saint, who plunged Christ’s head in the waters. By your prayers empower us all to trample under foot the destructive head of the deceiver. ****
 
 A
 
@@ -476,7 +476,7 @@ Theotokion.
 
 R
 
-Deliver me from foul sin, sinÂ’s flame, punishing darkness, and the gnashing of teeth and the worm, O Virgin, only protection of the human race. ****
+Deliver me from foul sin, sin’s flame, punishing darkness, and the gnashing of teeth and the worm, O Virgin, only protection of the human race. ****
 
 Ode 9. Irmos
 
@@ -492,7 +492,7 @@ See, now is the moment of repentance and pure work! See, now is the day of light
 
 W
 
-Like the Tax-collector I groan, like the Harlot I weep, like the Thief I cry out, Â‘Remember me, O CompassionateÂ’, and like the Wastrel son I cry, Â‘I have sinned!Â’. Like the Woman of Canaan I fall before you, Â‘O merciful, do not despise me!Â’ ****
+Like the Tax-collector I groan, like the Harlot I weep, like the Thief I cry out, ‘Remember me, O Compassionate’, and like the Wastrel son I cry, ‘I have sinned!’. Like the Woman of Canaan I fall before you, ‘O merciful, do not despise me!’ ****
 
 Of the Martyrs
 
@@ -502,7 +502,7 @@ You have been revealed as truly healers of sufferings of the body and affliction
 
 H
 
-The courage of the ChristÂ’s wise Champions, blazing out more brightly than the rays of the sun, by grace abolished the prince of darkness, dispelled the night of godlessness and enlightened the hearts of believers. ****
+The courage of the Christ’s wise Champions, blazing out more brightly than the rays of the sun, by grace abolished the prince of darkness, dispelled the night of godlessness and enlightened the hearts of believers. ****
 
 Theotokion
 
@@ -520,7 +520,7 @@ See the lamp shining for those in the darkness of life, see the sweet voiced swa
 
 W
 
-As the BridegroomÂ’s friend I now put you forward as ambassador, O Baptist, and I, who have a multitude of sins, cry out to you, Â‘Obtain the cancellation of my debts, All-blessed, and light the lamp of my soul, completely extinguished by indifferenceÂ’. ****
+As the Bridegroom’s friend I now put you forward as ambassador, O Baptist, and I, who have a multitude of sins, cry out to you, ‘Obtain the cancellation of my debts, All-blessed, and light the lamp of my soul, completely extinguished by indifference’. ****
 
 S
 
@@ -552,7 +552,7 @@ I have you as intermediary with the God who loves humankind; do not expose my de
 
 Aposticha of Lauds. Of Compunction.
 
-Another world awaits you, soul, and a Judge who is to publish all your hidden and dread deeds. So do not stay with things here, but in anticipation cry out to the Judge, Â‘O God, be merciful to me and save me!Â’
+Another world awaits you, soul, and a Judge who is to publish all your hidden and dread deeds. So do not stay with things here, but in anticipation cry out to the Judge, ‘O God, be merciful to me and save me!’
 
 Do not reject me, held fast by sloth, my Saviour. Rouse my thoughts to repentance and show me to be a tried worker of your vineyard, granting the payment of the eleventh hour and your great mercy.
 
@@ -574,6 +574,6 @@ world.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 25 January 2007**

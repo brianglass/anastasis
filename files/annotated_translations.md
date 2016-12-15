@@ -19,6 +19,6 @@ The background is the 5th century Codex Alexandrinus.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 17 February 2007**

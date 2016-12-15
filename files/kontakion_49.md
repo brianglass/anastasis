@@ -49,7 +49,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-wei
 Receives him repentant, in his love for mankind.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Rejoicing at his repentance,
-He says to the slaves, Â‘Hurry, make ready for us the all-holy supper.</span><span style="font-size:14.0pt;
+He says to the slaves, ‘Hurry, make ready for us the all-holy supper.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Hurry, above all sacrifice the calf</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
@@ -101,7 +101,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-wei
 For he was formerly stripped bare of every grace,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Having squandered all his substance,
-And he runs to his father with many lamentations crying out, Â‘Father, I have sinnedÂ’.</span><span style="font-size:14.0pt;
+And he runs to his father with many lamentations crying out, ‘Father, I have sinned’.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 So the one who sees all things saw, hurried,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
@@ -124,7 +124,7 @@ mso-bidi-font-weight:bold">
 In filthy apparel was filled with compassion;
 And so he cried at once to the slaves who were serving,</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Â‘Quickly give my child the first robe,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+‘Quickly give my child the first robe,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Which the baptismal font weaves for all,
 Which the grace of my Spirit prepares, and hasten and clothe him.</span><span style="font-size:14.0pt;
@@ -280,20 +280,20 @@ mso-bidi-font-weight:bold">
 And as all were celebrating they sang a godly hymn.
 The Father first of those present began,</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Â‘TasteÂ’ he said Â‘and see that I am goodÂ’.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+‘Taste’ he said ‘and see that I am good’.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Then after this the Psalmist,
-Striking the lyre, cries with sweetest voice, Â‘Quickly bring</span><span style="font-size:14.0pt;
+Striking the lyre, cries with sweetest voice, ‘Quickly bring</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Sacrifices, pure, blessed</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 To the all-holy altar.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Bring a calf with thanksgivingÂ’.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+Bring a calf with thanksgiving’.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 And after him Paul cried out,</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Â‘Our Passover has now been sacrificed, Jesus Christ,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+‘Our Passover has now been sacrificed, Jesus Christ,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Master and Lord of the ages.</span>
 
@@ -308,7 +308,7 @@ And they rivalled them and began their song of praise.</span><span style="font-s
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 What was the hymn? Let us hear, if you will,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
-Â‘Holy are you, Father, who have been well pleased
+‘Holy are you, Father, who have been well pleased
 That the spotless calf be now slaughtered for mankind.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Holy is your Son also,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -334,7 +334,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-wei
 But as he returned he hears the music
 And summons a servant and asks him,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
-Â‘So what is all this? Tell me at once;
+‘So what is all this? Tell me at once;
 For a mysterious sound of a great festival strikes my ears.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Tell me what is this event?</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -347,7 +347,7 @@ Who, in my absence, is sharing them with others?</span><span style="font-size:14
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Can he be bestowing once again gifts of grace, he who begot me, the</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Master and Lord of the ages?Â’</span>
+Master and Lord of the ages?’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">13</span>
@@ -355,14 +355,14 @@ color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">13</span>
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Then the servant who had been questioned said to him eagerly,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
-Â‘Your young brother has arrived.
+‘Your young brother has arrived.
 On receiving him your father rejoiced,</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 And, as he has recovered him in good health,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 He has sacrificed the fatted calf</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-And he has now summoned his friends and acquaintances to the supper.Â’</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+And he has now summoned his friends and acquaintances to the supper.’</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 On hearing all this
 He was instantly beside himself and was not willing</span><span style="font-size:14.0pt;
@@ -371,9 +371,9 @@ To take part in the supper of festivity,</span><span style="font-size:14.0pt;mso
 mso-bidi-font-weight:bold">
 For angered by what was happening</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-He said, Â‘I will not go in. I will not look on what he has done, the</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+He said, ‘I will not go in. I will not look on what he has done, the</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Master and Lord of the ages.Â’</span>
+Master and Lord of the ages.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">14</span>
@@ -433,7 +433,7 @@ color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">16</span>
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">The indignant son spoke these words to his Father,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
-Â‘For so long a time I have been slave to your will
+‘For so long a time I have been slave to your will
 And have always served your commandments,</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 And not a single commandment of yours have I transgressed at all.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -486,7 +486,7 @@ color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">18</span>
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">No sooner had the Father heard these words from his child</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Than he answered him with meekness,
-Â‘Incline your ears and listen to your father.</span><span style="font-size:14.0pt;
+‘Incline your ears and listen to your father.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 You are with me, for you have never left me.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
@@ -495,7 +495,7 @@ Your place is always with me, with all my angels.</span><span style="font-size:1
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 But he has come covered with shame,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
-Naked and ugly crying out, Â‘Have mercy.</span><span style="font-size:14.0pt;
+Naked and ugly crying out, ‘Have mercy.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 I have sinned, Father, and I implore,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
@@ -503,13 +503,13 @@ I who have offended before you.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Accept me as hired servant and nourish me, for you love mankind, you the</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Master and Lord of the ages.Â’</span>
+Master and Lord of the ages.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">19</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Your brother cried, Â‘Save me, holy FatherÂ’.
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Your brother cried, ‘Save me, holy Father’.
 </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">What should I have done as I heard his lamentation?
 How could I not have pity and save</span><span style="font-size:14.0pt;
@@ -566,19 +566,19 @@ mso-bidi-font-weight:bold">
 Celebrate and make melody with all the angels.
 For your brother was lost and has been found.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-He was dead and beyond expectation he has returned to life.Â’</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+He was dead and beyond expectation he has returned to life.’</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 When he heard these words he was persuaded
 And shared the gladness with his brother. And he began to sing and say,</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Â‘All of you shout with praise,
+‘All of you shout with praise,
 Sin is forgiven, and whose iniquity</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Has been covered and wiped away.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 I bless you, lover of mankind, who have saved my brother also, you the</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
-Master and Lord of the ages.Â’</span>
+Master and Lord of the ages.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold">22</span>
@@ -592,7 +592,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-wei
 As you did the profligate spare those who have sinned.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
 Accept and save through compassion
-Those who in repentance run to you, O King, crying, Â‘We have sinnedÂ’.</span><span style="font-size:14.0pt;
+Those who in repentance run to you, O King, crying, ‘We have sinned’.</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">
 Give us tears as you did the harlot</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 mso-bidi-font-weight:bold">
@@ -608,13 +608,13 @@ Master and Lord of the ages.</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This translation of St RomanosÂ’s kontakion for the Second Sunday of Lent is taken from my book, *On The Life of Christ. Kontakia*, ** published for the International Sacred Literature Trust by AltaMira Press \[ISBN 0-06-064943-7\], which includes notes and introduction. </span>
+<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">[1]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This translation of St Romanos’s kontakion for the Second Sunday of Lent is taken from my book, *On The Life of Christ. Kontakia*, ** published for the International Sacred Literature Trust by AltaMira Press \[ISBN 0-06-064943-7\], which includes notes and introduction. </span>
 
  
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -245,11 +245,11 @@ merciful while we have time.
 For see, the Lord is standing at the door
 to bring to an end this vain age.
 
-This translation Â© by Archimandrite Ephrem 1997. 
+This translation © by Archimandrite Ephrem 1997. 
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

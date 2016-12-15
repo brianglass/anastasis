@@ -9,6 +9,6 @@ For an annotated translation, in PDF format, of the office of the feast followin
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 17 February 2007**

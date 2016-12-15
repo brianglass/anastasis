@@ -20,11 +20,11 @@ Be entreated by the sufferings, which the Saints endured for you, O Lord; and he
 
 <span style="color:red;mso-bidi-font-style:italic">Verse:</span> ** Their souls will dwell among good things.
 
-<span style="letter-spacing:-.1pt">Let us all beseech ChristÂ’s Martyrs, for they ask for our salvation; and let us in love approach them with faith; they possess the grace of healing; they ward off the regiments of demons, as guardians of the Faith.</span>
+<span style="letter-spacing:-.1pt">Let us all beseech Christ’s Martyrs, for they ask for our salvation; and let us in love approach them with faith; they possess the grace of healing; they ward off the regiments of demons, as guardians of the Faith.</span>
 
 Glory. Both now. <span style="color:red;mso-bidi-font-style:italic">Theotokion.</span>
 
-When Gabriel addressed you, O Virgin, with his Â‘HailÂ’, as he spoke the Master of all things became incarnate in you the holy Ark, as righteous David sang. You were proclaimed wider than the heavens, for you carried your Creator. Glory to him who dwelt in you, glory to him who came forth from you, glory to him who has set us free through your bearing child.
+When Gabriel addressed you, O Virgin, with his ‘Hail’, as he spoke the Master of all things became incarnate in you the holy Ark, as righteous David sang. You were proclaimed wider than the heavens, for you carried your Creator. Glory to him who dwelt in you, glory to him who came forth from you, glory to him who has set us free through your bearing child.
 
 <span style="color:red">After the 2nd Reading, Kathisma of the Martyrs.</span>
 
@@ -45,7 +45,7 @@ Wonder of wonders, O Full of grace, in you Creation when it sees you rejoices, f
 <span style="color:red">Aposticha of Lauds, of the Martyrs.
 Tone 1.</span>
 
-Come, all you peoples, and let us honour with hymns and spirituals songs ChristÂ’s Champions, the beacons of the world and heralds of the Faith, the everflowing source from which healings spring up for the faithful. At their intercessions, Christ our God, grant peace to your world and to our souls your great mercy.
+Come, all you peoples, and let us honour with hymns and spirituals songs Christ’s Champions, the beacons of the world and heralds of the Faith, the everflowing source from which healings spring up for the faithful. At their intercessions, Christ our God, grant peace to your world and to our souls your great mercy.
 
 These soldiers of the great King opposed the decrees of tyrants, nobly despised their torments, and having trampled on every error, been fittingly crowned, they ask of the saviour peace and for our souls his great mercy.
 
@@ -96,6 +96,6 @@ Implore Christ, your child, O Virgin Mother, to grant pardon of offences to your
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

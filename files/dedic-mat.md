@@ -349,6 +349,6 @@ The Bishop’s white garment, the ‘katasarkion’ of the Table, the four piece
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

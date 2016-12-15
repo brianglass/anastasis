@@ -758,6 +758,6 @@ Your people, O Christ, brings your Mother to intercede; at her entreaties grant 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

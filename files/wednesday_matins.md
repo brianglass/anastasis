@@ -25,7 +25,7 @@ letter-spacing:-.1pt;mso-bidi-font-style:italic">After the 2nd Reading from the 
 
 <span style="color:red">When the stone had been sealed.</span>
 
-We worship the tree of your Cross, lover of humankind, because you, the Life of all, were nailed upon it. You opened Paradise to the Thief who approached you in faith, O Saviour, and he was found worthy of its delight when he confessed you, Â‘Remember me, LordÂ’.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[3]</span></a> Like him receive us too as we cry, Â‘We have all sinned; in your compassion do not despise usÂ’.
+We worship the tree of your Cross, lover of humankind, because you, the Life of all, were nailed upon it. You opened Paradise to the Thief who approached you in faith, O Saviour, and he was found worthy of its delight when he confessed you, ‘Remember me, Lord’.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[3]</span></a> Like him receive us too as we cry, ‘We have all sinned; in your compassion do not despise us’.
 
 <span style="color:red;
 mso-bidi-font-style:italic">Verse:</span> God is our king from of old; he has worked salvation in the midst of the earth.
@@ -36,7 +36,7 @@ The weapon of the Cross was once revealed in war to the devout King Constantine 
 
 <span style="mso-bidi-font-style:italic">Glory. Both now</span>. <span style="color:red">Cross-Theotokion.</span>
 
-Â‘O strange wonder! O fearful mystery!Â’, cried the Ewe-lamb, the all-blameless Maiden, as she saw the Lord stretched out upon the Tree. Â‘He who bears the whole universe in the hollow of his hand<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[6]</span></a>, how is he condemned by lawless men and condemned to a cross!Â’
+‘O strange wonder! O fearful mystery!’, cried the Ewe-lamb, the all-blameless Maiden, as she saw the Lord stretched out upon the Tree. ‘He who bears the whole universe in the hollow of his hand<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[6]</span></a>, how is he condemned by lawless men and condemned to a cross!’
 
 <span style="color:red;
 mso-bidi-font-style:italic">After the 3rd reading, Kathismata.</span>
@@ -55,13 +55,13 @@ Be entreated by the sufferings, which the Saints endured for you, O Lord; and he
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Cross-Theotokion.
 The soldiers watching.</span>
 
-The spotless Ewe-lamb, seeing the Lamb and Shepherd hanging dead upon the tree, cried out with tears, and lamenting as a mother aid, Â‘How shall I hymn your condescension, my Son,<span style="mso-spacerun: yes">  </span>which is beyond understanding, and your voluntary sufferings, my God supremely good?Â’
+The spotless Ewe-lamb, seeing the Lamb and Shepherd hanging dead upon the tree, cried out with tears, and lamenting as a mother aid, ‘How shall I hymn your condescension, my Son,<span style="mso-spacerun: yes">  </span>which is beyond understanding, and your voluntary sufferings, my God supremely good?’
 
 <span style="color:red">Canon of the Cross, whose acrostic is:</span>
 I shall be saved by the Cross of the Master who suffered. Joseph.
 
 <span style="color:red">Ode 1. Tone 1. Irmos.
-To the tune of</span> Â‘Christ is bornÂ’.<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[8]</span></a>
+To the tune of</span> ‘Christ is born’.<a href="#_ftn8" id="_ftnref8"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[8]</span></a>
 
 Delivered from bitter slavery, Israel crossed the impassable as on dry land. Seeing the enemy drowning, as to a benefactor he sang a hymn to God who works wonders with uplifted arm, for he has been glorified.<a href="#_ftn9" id="_ftnref9"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[9]</span></a>
 
@@ -98,7 +98,7 @@ Delivered from bitter slavery, Israel crossed the impassable as on dry land. See
 <span style="color:red">Ode 3. Irmos.
 To the tune: </span>To the Son begotten of the Father.
 
-Let no mortal boast in their wisdom or their wealth<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[17]</span></a>, but in faith of the Lord, crying out with right belief to Christ our God and ever singing, Â‘Establish me, Master, on the rock of your comÂ­mandÂ­ments.Â’
+Let no mortal boast in their wisdom or their wealth<a href="#_ftn17" id="_ftnref17"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[17]</span></a>, but in faith of the Lord, crying out with right belief to Christ our God and ever singing, ‘Establish me, Master, on the rock of your com­mand­ments.’
 
 <span style="color:red">Troparia</span>
 
@@ -114,7 +114,7 @@ Let no mortal boast in their wisdom or their wealth<a href="#_ftn17" id="_ftnref
 
 <span style="color:red">Cross-Theotokion</span>
 
-<span style="color:red">Ω</span> At the hour of the Passion, as you looked on the One who is comely in beauty<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[27]</span></a> without form or beauty<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[28]</span></a>, you cried out with bitter lamentation, pure Virgin, Â‘Alas, how do you suffer, my Son, who wish to deliver all from passionsÂ’.
+<span style="color:red">Ω</span> At the hour of the Passion, as you looked on the One who is comely in beauty<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[27]</span></a> without form or beauty<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[28]</span></a>, you cried out with bitter lamentation, pure Virgin, ‘Alas, how do you suffer, my Son, who wish to deliver all from passions’.
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
@@ -129,9 +129,9 @@ Let no mortal boast in their wisdom or their wealth<a href="#_ftn17" id="_ftnref
 <span style="color:red">Z</span> Snatch me, O Virgin, from a tempest of disgraceful thoughts, dangers, afflictions, and temptations; guide me straight to divine havens and fill my mind with calm, O only All-praised.
 
 <span style="color:red">Ode 4. Irmos.
-To the tune: </span>Rod out of JesseÂ’s root.
+To the tune: </span>Rod out of Jesse’s root.
 
-Wondrous Avvakoum of old heard your report, O Christ, and cried out in fear, Â‘O God, you will come from Theman, and O Holy One from a shaded, wooded mountain to save your anointed ones. Glory to your power, O Lord!Â’<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[30]</span></a>
+Wondrous Avvakoum of old heard your report, O Christ, and cried out in fear, ‘O God, you will come from Theman, and O Holy One from a shaded, wooded mountain to save your anointed ones. Glory to your power, O Lord!’<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[30]</span></a>
 
 <span style="color:red">Troparia.</span>
 
@@ -147,7 +147,7 @@ Wondrous Avvakoum of old heard your report, O Christ, and cried out in fear, Â�
 
 <span style="color:red">Cross-Theotokion.</span>
 
-<span style="color:red">Τ</span> As she who gave you birth, O Christ, watched your unjust slaughter, she cried out to you with grief, Â‘My Son, just Judge, why have you been unjustly condemned, who wish to justify those who had been formerly condemned and slipped down into corruption.
+<span style="color:red">Τ</span> As she who gave you birth, O Christ, watched your unjust slaughter, she cried out to you with grief, ‘My Son, just Judge, why have you been unjustly condemned, who wish to justify those who had been formerly condemned and slipped down into corruption.
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
@@ -170,7 +170,7 @@ Light in the hearts of those who sing your praise with faith, O Christ, your lig
 
 <span style="color:red">Ο</span> The sun was stripped bare of light,<a href="#_ftn45" id="_ftnref45"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[45]</span></a> O Saviour, when it saw you, who hung the earth upon the waters,<a href="#_ftn46" id="_ftnref46"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[46]</span></a> stripped naked on the Tree; with fear rocks were split apart<a href="#_ftn47" id="_ftnref47"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[47]</span></a> upon a rock, when they saw you made away with, and the foundations of the earth were shaken.<a href="#_ftn48" id="_ftnref48"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[48]</span></a>
 
-<span style="color:red">Υ</span> You were lifted up on a Tree, long-suffering Lord, and fixed with nails you drenched your fingers in blood. Your side was pierced, transfixed by a lance,<a href="#_ftn49" id="_ftnref49"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[49]</span></a> so healing AdamÂ’s wound, which he suffered when he obeyed his side<a href="#_ftn50" id="_ftnref50"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[50]</span></a> and disobeyed his Maker.
+<span style="color:red">Υ</span> You were lifted up on a Tree, long-suffering Lord, and fixed with nails you drenched your fingers in blood. Your side was pierced, transfixed by a lance,<a href="#_ftn49" id="_ftnref49"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[49]</span></a> so healing Adam’s wound, which he suffered when he obeyed his side<a href="#_ftn50" id="_ftnref50"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[50]</span></a> and disobeyed his Maker.
 
 <span style="color:red">Of the Martyrs</span>
 
@@ -180,7 +180,7 @@ Light in the hearts of those who sing your praise with faith, O Christ, your lig
 
 <span style="color:red">Cross-Theotokion</span>
 
-<span style="color:red">Θ</span> When she saw Christ lifted up on the Tree by his own will, the Blameless Virgin was amazed, and weeping she cried out, Â‘My Son and God, when I gave birth I knew no pangs, but now I suffer pains as you are unjustly<a href="#_ftn53" id="_ftnref53"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[53]</span></a> crucified by lawless menÂ’.
+<span style="color:red">Θ</span> When she saw Christ lifted up on the Tree by his own will, the Blameless Virgin was amazed, and weeping she cried out, ‘My Son and God, when I gave birth I knew no pangs, but now I suffer pains as you are unjustly<a href="#_ftn53" id="_ftnref53"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[53]</span></a> crucified by lawless men’.
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
@@ -213,7 +213,7 @@ I am wholly in the grip of numberless passions, I have fallen together with a se
 
 <span style="color:red">Cross-Theotokion</span>
 
-<span style="color:red">Σ</span> When the All-pure saw your crucifixion, she cried, Â‘My Son, what is this strange sight that I behold? How do you, who heal the sufferings of the sick, endure unprecedented suffering? How have your enemies repaid you, O Benefactor, for all the benefits they have received?Â’
+<span style="color:red">Σ</span> When the All-pure saw your crucifixion, she cried, ‘My Son, what is this strange sight that I behold? How do you, who heal the sufferings of the sick, endure unprecedented suffering? How have your enemies repaid you, O Benefactor, for all the benefits they have received?’
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
@@ -221,7 +221,7 @@ I am wholly in the grip of numberless passions, I have fallen together with a se
 
 <span style="color:red">Troparia.</span>
 
-<span style="color:red">N</span> The enemy has been put to death by your life-bearing Fruit, O Full of GodÂ’s grace, death has Hell been clearly trampled on and those in bonds set free. And so I cry, Â‘Do away with the passions of my heartÂ’.
+<span style="color:red">N</span> The enemy has been put to death by your life-bearing Fruit, O Full of God’s grace, death has Hell been clearly trampled on and those in bonds set free. And so I cry, ‘Do away with the passions of my heart’.
 
 <span style="color: red">X</span> Estranged as I am from God through badness and set far away, All-blameless Bride of God, by your wondrous<a href="#_ftn60" id="_ftnref60"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[60]</span></a> mediation make me his friend, that I may sing the praise of the mighty acts<a href="#_ftn61" id="_ftnref61"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[61]</span></a> of your power.
 
@@ -230,23 +230,23 @@ I am wholly in the grip of numberless passions, I have fallen together with a se
 <span style="color:red">Ode 7. Irmos</span>
 <span style="color:red">To the tune,</span> The Youths brought up together
 
-The Youths, who of old were clearly revealed as holy, entered the unbearable flame of the furnace as if it were a bridal chamber, and singing with one accord they raised the hymn, Â‘God of our Fathers, blessed are youÂ’.<a href="#_ftn63" id="_ftnref63"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[63]</span></a>
+The Youths, who of old were clearly revealed as holy, entered the unbearable flame of the furnace as if it were a bridal chamber, and singing with one accord they raised the hymn, ‘God of our Fathers, blessed are you’.<a href="#_ftn63" id="_ftnref63"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[63]</span></a>
 
 <span style="color:red">Troparia</span>
 
-<span style="color:red">Ο</span> Though you are Master, my Jesu, you accepted a blow from a slave<a href="#_ftn64" id="_ftnref64"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[64]</span></a>, as you sought to free from my enslavement to the fiend<a href="#_ftn65" id="_ftnref65"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[65]</span></a>; while nailed to the Cross you save me as I sing, Â‘God of our Fathers, blessed are youÂ’.
+<span style="color:red">Ο</span> Though you are Master, my Jesu, you accepted a blow from a slave<a href="#_ftn64" id="_ftnref64"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[64]</span></a>, as you sought to free from my enslavement to the fiend<a href="#_ftn65" id="_ftnref65"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[65]</span></a>; while nailed to the Cross you save me as I sing, ‘God of our Fathers, blessed are you’.
 
-<span style="color:red">Ν</span> All creation was shaken<a href="#_ftn66" id="_ftnref66"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[66]</span></a> when you were crucified, compassionate Lord. When you were wounded by a lance, the enemy received an all-embracing<a href="#_ftn67" id="_ftnref67"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[67]</span></a> blow, but stricken Adam was made whole, crying out, Â‘God of our Fathers, blessed are youÂ’.
+<span style="color:red">Ν</span> All creation was shaken<a href="#_ftn66" id="_ftnref66"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[66]</span></a> when you were crucified, compassionate Lord. When you were wounded by a lance, the enemy received an all-embracing<a href="#_ftn67" id="_ftnref67"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[67]</span></a> blow, but stricken Adam was made whole, crying out, ‘God of our Fathers, blessed are you’.
 
 <span style="color:red">Of the Martyrs</span>
 
-<span style="color:red">Τ</span> The inspired army of Champions, walled about with the Cross, by grace utterly destroyed the battle lines of the foe, and received crowns of victory as they cried, Â‘God of our Fathers, blessed are youÂ’.
+<span style="color:red">Τ</span> The inspired army of Champions, walled about with the Cross, by grace utterly destroyed the battle lines of the foe, and received crowns of victory as they cried, ‘God of our Fathers, blessed are you’.
 
-<span style="color:red">Ο</span> GodÂ’s Athletes, having valiantly made the choice of fire, you were not consumed when you encountered fire, but you burnt up all the evil fuel of impiety, as you cried out, Â‘God of our Fathers, blessed are youÂ’.
+<span style="color:red">Ο</span> God’s Athletes, having valiantly made the choice of fire, you were not consumed when you encountered fire, but you burnt up all the evil fuel of impiety, as you cried out, ‘God of our Fathers, blessed are you’.
 
 <span style="color:red">Cross-Theotokion</span>
 
-<span style="color:red">Σ</span> Your Offspring, O Virgin, wondrously gave birth to the ages, and raised up on the Cross he raised up with himself those who had fallen and declared them citizens of heaven, as they cried, Â‘God of our Fathers, blessed are youÂ’.
+<span style="color:red">Σ</span> Your Offspring, O Virgin, wondrously gave birth to the ages, and raised up on the Cross he raised up with himself those who had fallen and declared them citizens of heaven, as they cried, ‘God of our Fathers, blessed are you’.
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
@@ -258,40 +258,40 @@ The Youths, who of old were clearly revealed as holy, entered the unbearable fla
 
 <span style="color: red">R</span> With the drops of your compassion, all-pure Virgin, wash away the filth of my soul that afflicts through my inattention, and purify the eye of my mind, that with unceasing praises I may hymn your mighty deeds.
 
-<span style="color: red">S</span> Immaculate, All-blameless, who bore the Source of life, by your prayers give life to me who have been grievously put to death by the attacks of the demons, as I sing to your Son, Â‘God of the Fathers, praised and highly glorified!Â’
+<span style="color: red">S</span> Immaculate, All-blameless, who bore the Source of life, by your prayers give life to me who have been grievously put to death by the attacks of the demons, as I sing to your Son, ‘God of the Fathers, praised and highly glorified!’
 
 <span style="color:red">Ode 8. Irmos
 To the tune, </span>The furnace moist with dew.
 
-The furnace bedewed<a href="#_ftn70" id="_ftnref70"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[70]</span></a> with fire revealed of old an image of a wonder beyond nature, for the fire did not consume the young Men, depicting the ChristÂ’s divine Nativity without seed from a Virgin. Therefore let us raise the hymn and sing, Â‘Let all creation bless the Lord and highly exalt him to all the agesÂ’.
+The furnace bedewed<a href="#_ftn70" id="_ftnref70"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[70]</span></a> with fire revealed of old an image of a wonder beyond nature, for the fire did not consume the young Men, depicting the Christ’s divine Nativity without seed from a Virgin. Therefore let us raise the hymn and sing, ‘Let all creation bless the Lord and highly exalt him to all the ages’.
 
 <span style="color:red">Troparia</span>
 
-<span style="color:red">Τ</span> He that by the Spirit stretched out the sky<a href="#_ftn71" id="_ftnref71"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[71]</span></a>, has been willingly stretched out on a Cross; while he has been fastened with nails, longing to unfasten AdamÂ’s propensities to passions. Therefore let us raise the hymn and sing, Â‘Let all creation bless the Lord and highly exalt him to all the agesÂ’.
+<span style="color:red">Τ</span> He that by the Spirit stretched out the sky<a href="#_ftn71" id="_ftnref71"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[71]</span></a>, has been willingly stretched out on a Cross; while he has been fastened with nails, longing to unfasten Adam’s propensities to passions. Therefore let us raise the hymn and sing, ‘Let all creation bless the Lord and highly exalt him to all the ages’.
 
-<span style="color:red">Ο</span> When a stony hearted people, O Word of God, lifted you, the Rock, upon a rock, mountains were tumbled in confusion, earth quaked, and souls that had been shaken were made steady for divine life, ever singing, Â‘Let all creation bless the Lord and highly exalt him to all the agesÂ’.
+<span style="color:red">Ο</span> When a stony hearted people, O Word of God, lifted you, the Rock, upon a rock, mountains were tumbled in confusion, earth quaked, and souls that had been shaken were made steady for divine life, ever singing, ‘Let all creation bless the Lord and highly exalt him to all the ages’.
 
 <span style="color:red">Of the Martyrs</span>
 
-<span style="color:red">Υ</span> The Champions wove for themselves a robe of salvation, when they struggled bravely in bodily nakedness and underwent storm showers of torments; and so they raised a hymn and sang, Â‘Let all creation bless the Lord and highly exalt him to all the agesÂ’.
+<span style="color:red">Υ</span> The Champions wove for themselves a robe of salvation, when they struggled bravely in bodily nakedness and underwent storm showers of torments; and so they raised a hymn and sang, ‘Let all creation bless the Lord and highly exalt him to all the ages’.
 
-<span style="color:red">Ο</span> Though mercilessly rent with iron claws, their limbs relentlessly hacked off, acquainted with tortures of every kind, the Champions did not offer sacrifice to wooden gods, but for believers were revealed as pillars of courage, as they cried, Â‘Bless Christ, all you his works, and highly exalt him to all the agesÂ’.
+<span style="color:red">Ο</span> Though mercilessly rent with iron claws, their limbs relentlessly hacked off, acquainted with tortures of every kind, the Champions did not offer sacrifice to wooden gods, but for believers were revealed as pillars of courage, as they cried, ‘Bless Christ, all you his works, and highly exalt him to all the ages’.
 
 <span style="color:red">Cross-Theotokion</span>
 
-<span style="color:red">Ι</span> Â‘So that a rebellious foolish people might, as they supposed, remove you from the earth, I have become childless, I am troubled and as a mother am anguished in heartÂ’, cried she who knew not wedlock, Â‘when she saw you lifted up on a CrossÂ’. With her creation glorifies you, Jesu, Redeemer of all, to the ages.
+<span style="color:red">Ι</span> ‘So that a rebellious foolish people might, as they supposed, remove you from the earth, I have become childless, I am troubled and as a mother am anguished in heart’, cried she who knew not wedlock, ‘when she saw you lifted up on a Cross’. With her creation glorifies you, Jesu, Redeemer of all, to the ages.
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
-\[In the furnace as in a smelter the Israelite Youths shone with the beauty of godliness brighter than gold as they said, Â‘All you his works bless the Lord, praise and highly exalt him to all the agesÂ’.\]
+\[In the furnace as in a smelter the Israelite Youths shone with the beauty of godliness brighter than gold as they said, ‘All you his works bless the Lord, praise and highly exalt him to all the ages’.\]
 
 <span style="color:red">Troparia.</span>
 
-<span style="color:red">T</span> The acquisition of passions, the abuse of demons tyrannise me, but with you as refuge I am saved, O Immaculate, as I sing to your Son, Â‘All you his works bless the Lord, praise and highly exalt him to all the agesÂ’.
+<span style="color:red">T</span> The acquisition of passions, the abuse of demons tyrannise me, but with you as refuge I am saved, O Immaculate, as I sing to your Son, ‘All you his works bless the Lord, praise and highly exalt him to all the ages’.
 
-<span style="color:red">Y</span> Pure Virgin, higher than the heavens, make higher than matter and than lifeÂ’s transgressions my mind that sings, Â‘Let all creation bless the Lord, praise and highly exalt him to all the agesÂ’.
+<span style="color:red">Y</span> Pure Virgin, higher than the heavens, make higher than matter and than life’s transgressions my mind that sings, ‘Let all creation bless the Lord, praise and highly exalt him to all the ages’.
 
-<span style="color: red">F</span> Virgin wholly light, who gave birth to God, the Giver of light, illuminate the eyes of my heart with the light of the knowledge of God, that I may chant, Â‘All you his works bless the Lord, praise and highly exalt him to all the agesÂ’.<a href="#_ftn72" id="_ftnref72"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[72]</span></a>
+<span style="color: red">F</span> Virgin wholly light, who gave birth to God, the Giver of light, illuminate the eyes of my heart with the light of the knowledge of God, that I may chant, ‘All you his works bless the Lord, praise and highly exalt him to all the ages’.<a href="#_ftn72" id="_ftnref72"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[72]</span></a>
 
 <span style="color:red">Ode 9. Irmos
 To the tune,</span> A strange and wonderful mystery.
@@ -300,19 +300,19 @@ Ineffable is the mystery of the Virgin. For she has been revealed as heaven, the
 
 <span style="color:red">Troparia</span>
 
-<span style="color:red">Ω</span> When of old he saw you hung upon a Tree, O Saviour, who hung the earth on limitless waters<a href="#_ftn75" id="_ftnref75"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[75]</span></a>, the good Thief cried out to you with faith, Â‘RememberÂ’.<a href="#_ftn76" id="_ftnref76"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[76]</span></a> With him we devoutly glorify your sufferings.
+<span style="color:red">Ω</span> When of old he saw you hung upon a Tree, O Saviour, who hung the earth on limitless waters<a href="#_ftn75" id="_ftnref75"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[75]</span></a>, the good Thief cried out to you with faith, ‘Remember’.<a href="#_ftn76" id="_ftnref76"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[76]</span></a> With him we devoutly glorify your sufferings.
 
 <span style="color:red">Σ</span> When crucified you shook the foundations of the earth; pierced by a lance you poured out drops of immortality, blood and water<a href="#_ftn77" id="_ftnref77"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[77]</span></a>, through which you purified humanity of passions, O Jesu, whom fittingly we magnify.
 
 <span style="color:red">Of the Martyrs</span>
 
-<span style="color:red">Η</span> The Saints rejoiced in their torments, urging themselves forward as to enjoyment. Â‘Let us take our stand!Â’<a href="#_ftn78" id="_ftnref78"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[78]</span></a> cried the heroes, Â‘See, the stadium is open. Christ now holds out crowns for those he has lovedÂ’.
+<span style="color:red">Η</span> The Saints rejoiced in their torments, urging themselves forward as to enjoyment. ‘Let us take our stand!’<a href="#_ftn78" id="_ftnref78"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[78]</span></a> cried the heroes, ‘See, the stadium is open. Christ now holds out crowns for those he has loved’.
 
 <span style="color:red">Φ</span> The whole throng of believers is radiant as it honours the contests of all the invincible Martyrs, the ten thousand pains, through which they were found worthy of delight without pain, of life and unending contentment.
 
 <span style="color:red">Cross-Theotokion</span>
 
-<span style="color:red">Φ</span> Maiden, who bore ineffably the Word who loves humankind, when you saw him suffering willingly for humanity, you cried, Â‘What is this? God, who knows no passion, endures his Passion, that he may deliver from passions those who worship him with faithÂ’.
+<span style="color:red">Φ</span> Maiden, who bore ineffably the Word who loves humankind, when you saw him suffering willingly for humanity, you cried, ‘What is this? God, who knows no passion, endures his Passion, that he may deliver from passions those who worship him with faith’.
 
 <span style="color:red">Another, of the Mother of God. Irmos.</span>
 
@@ -351,7 +351,7 @@ All-praised Martyrs, nor tribulation, nor suffering, nor starvation, nor persecu
 <span style="mso-bidi-font-style:italic">Glory. Both now<span style="color:red">.</span></span>*<span style="color:red"> </span>*<span style="color:red">Cross-Theotokion.
 Joy of the heavenly ranks.</span>
 
-As she stood by your Cross, O Word of God, the Ewe-lamb, your blameless Mother, cried in lamentation, Â‘How can you be dying on a Cross, my Son? Alas my sweetest light, where has the beauty of your form now set, that was lovelier than all mortals?Â’
+As she stood by your Cross, O Word of God, the Ewe-lamb, your blameless Mother, cried in lamentation, ‘How can you be dying on a Cross, my Son? Alas my sweetest light, where has the beauty of your form now set, that was lovelier than all mortals?’
 
  
 
@@ -367,7 +367,7 @@ footnote">[2]</span></a> Cf. Isaias 63:9.
 footnote">[3]</span></a> Luke 23:40-43.
 
 <a href="#_ftnref4" id="_ftn4"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[4]</span></a> The story is told in great detail by Eusebius in his life of Constantine (Book 1, Chapters 28-31). He says he it from Constantine himself. The other contemporary account is by Lactantius in chapter 44 of his *De Mortibus Persecutorum*. This speaks only of a Â‘dreamÂ’ and nothing of the appearance of the Cross in the sky. Both writers agree that the standard consisted of the *Chi-Rho*, in Eusebius this is made into a banner, or *labarum*, in Lactantius the soldiers are ordered to mark it on their shields.
+footnote">[4]</span></a> The story is told in great detail by Eusebius in his life of Constantine (Book 1, Chapters 28-31). He says he it from Constantine himself. The other contemporary account is by Lactantius in chapter 44 of his *De Mortibus Persecutorum*. This speaks only of a ‘dream’ and nothing of the appearance of the Cross in the sky. Both writers agree that the standard consisted of the *Chi-Rho*, in Eusebius this is made into a banner, or *labarum*, in Lactantius the soldiers are ordered to mark it on their shields.
 
 <a href="#_ftnref5" id="_ftn5"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[5]</span></a> Galatians 6:14.
@@ -387,7 +387,7 @@ footnote">[9]</span></a> Exodus 14-15.
 <a href="#_ftnref10" id="_ftn10"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[10]</span></a> This phrase is from 1 Corinthians 2:6 and is therefore almost always used in connection with the Crucifixion. It is frequently inscribed on pectoral crosses and other depictions of the crucified Lord.
 
-<a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[11]</span></a> <span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">St Romanos speaks of human nature as Â‘thornyÂ’ in a number of his Kontakia. For example in *On the Apostle Thomas* (Strophe 2): Â‘For from ThomasÂ’s hand I believe in MosesÂ’ story; For though it was perishable and thorny it was not consumed As it handled the side like a burning flameÂ’. See also *On the Nativity* (Strophe 11). The idea very probably derives from St Ephrem the Syrian.</span>
+<a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[11]</span></a> <span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">St Romanos speaks of human nature as ‘thorny’ in a number of his Kontakia. For example in *On the Apostle Thomas* (Strophe 2): ‘For from Thomas’s hand I believe in Moses’ story; For though it was perishable and thorny it was not consumed As it handled the side like a burning flame’. See also *On the Nativity* (Strophe 11). The idea very probably derives from St Ephrem the Syrian.</span>
 
 <a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[12]</span></a> Luke 2:35.
@@ -399,10 +399,10 @@ footnote">[13]</span></a> John 19:34.
 footnote">[14]</span></a> Genesis 3:24.
 
 <a href="#_ftnref15" id="_ftn15"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[15]</span></a> In Greek <span style="font-family:&quot;Symbol Accentuated&quot;">tÃ©menoV</span>, which means the sacred area in which a temple stood.
+footnote">[15]</span></a> In Greek <span style="font-family:&quot;Symbol Accentuated&quot;">témenoV</span>, which means the sacred area in which a temple stood.
 
 <a href="#_ftnref16" id="_ftn16"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[16]</span></a> One of the features of this Canon is a series of plays on cognate words. In this troparion we have <span style="font-family:&quot;Symbol Accentuated&quot;">Ã€gioV, Ã¼perÃ¡gioV </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">Ã¤giasmÃ³V.</span>
+footnote">[16]</span></a> One of the features of this Canon is a series of plays on cognate words. In this troparion we have <span style="font-family:&quot;Symbol Accentuated&quot;">ÀgioV, üperágioV </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">ägiasmóV.</span>
 
 <a href="#_ftnref17" id="_ftn17"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[17]</span></a> Jeremias 9:22. I Reigns 2:10, which is part of Ode 3 (I Reigns 2:1-10). The Greek of the latter passage is quite different from, and much longer than, the Hebrew. The Latin Vulgate here follows the Hebrew, and so do all English translations of the Bible.
@@ -414,25 +414,25 @@ footnote">[18]</span></a> Psalm 21:17.
 footnote">[19]</span></a> Genesis 2:7. The word is used of a potter working with clay and is used in the OT especially of God in creation, and by contrast also of the fashioners of idols.
 
 <a href="#_ftnref20" id="_ftn20"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[20]</span></a> Jesus (Â‘JoshuaÂ’) 10:12-13. In the Orthodox Scriptures MosesÂ’ successor, who saved the people of Israel after MosesÂ’ death and led them in the conquest of the Promised Land, is called Â‘JesusÂ’, and because of his name he is frequently evoked typologically in the liturgical texts. The use of the Protestant pseudo-Hebrew word Â‘JoshuaÂ’ obscures this and it, and other Protestant pseudo-Hebraisms, should be shunned by the Orthodox.
+footnote">[20]</span></a> Jesus (‘Joshua’) 10:12-13. In the Orthodox Scriptures Moses’ successor, who saved the people of Israel after Moses’ death and led them in the conquest of the Promised Land, is called ‘Jesus’, and because of his name he is frequently evoked typologically in the liturgical texts. The use of the Protestant pseudo-Hebrew word ‘Joshua’ obscures this and it, and other Protestant pseudo-Hebraisms, should be shunned by the Orthodox.
 
 <a href="#_ftnref21" id="_ftn21"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[21]</span></a> Cf. Genesis 1:14-16, where the sun and moon are not named but simply referred to as Â‘luminariesÂ’.**
+footnote">[21]</span></a> Cf. Genesis 1:14-16, where the sun and moon are not named but simply referred to as ‘luminaries’.**
 
 <a href="#_ftnref22" id="_ftn22"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[22]</span></a> The darkening of the sun and moon is an echo of Amos 8:9. Matthew 27:45, Luke 23:44-45, who mentions the sun specifically.
 
 <a href="#_ftnref23" id="_ftn23"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[23]</span></a> This could also refer to the<span style="mso-spacerun: yes">  </span>Cross, but since Â‘MasterÂ’ is the nearer antecedent in Greek, I have taken it as referring to Christ.
+footnote">[23]</span></a> This could also refer to the<span style="mso-spacerun: yes">  </span>Cross, but since ‘Master’ is the nearer antecedent in Greek, I have taken it as referring to Christ.
 
 <a href="#_ftnref24" id="_ftn24"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[24]</span></a> This verb, *paradeigmatizein*, occurs only twice in Scripture, once of St JosephÂ’s not wishing to put Mary to public shame (Matt. 1:19, where modern critical texts have the simple verb *deigmatizein*, not the compound), and at Hebrews 6:6, where the Apostle says that apostates, Â‘crucify the Son of God again and put him to public contemptÂ’. The poet has the latter passage in mind.
+footnote">[24]</span></a> This verb, *paradeigmatizein*, occurs only twice in Scripture, once of St Joseph’s not wishing to put Mary to public shame (Matt. 1:19, where modern critical texts have the simple verb *deigmatizein*, not the compound), and at Hebrews 6:6, where the Apostle says that apostates, ‘crucify the Son of God again and put him to public contempt’. The poet has the latter passage in mind.
 
 <a href="#_ftnref25" id="_ftn25"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[25]</span></a> Â‘BeliarÂ’ is one of the frequent names used for the devil in the liturgical texts, yet it only occurs once in the Orthodox Bible, at 2 Cor. 6:15. In the OT the word Â‘belialÂ’, which in Hebrew means Â‘worthlessnessÂ’, Â‘good for nothingÂ’, occurs many times, but it is never taken to be a proper name in the lxx, which translates it by Â‘lawlessÂ’, Â‘pestilentÂ’ and other such words. The Vulgate and older English versions tended to treat the word as a proper name, but most modern versions do not so regard it. In later writings, such as the Dead Sea Scrolls, the *Testament of Levi* and the *Ascension of Isaias*, it has become a name for the devil. In the latter we read (2:4), Â‘And Manasses turned away his own heart to serve Beliar Â—for the angel of lawlessness, who is the ruler of this world, is BeliarÂ’. The source of the usage of the liturgical texts is, therefore, almost certainly 2 Corinthians.
+footnote">[25]</span></a> ‘Beliar’ is one of the frequent names used for the devil in the liturgical texts, yet it only occurs once in the Orthodox Bible, at 2 Cor. 6:15. In the OT the word ‘belial’, which in Hebrew means ‘worthlessness’, ‘good for nothing’, occurs many times, but it is never taken to be a proper name in the lxx, which translates it by ‘lawless’, ‘pestilent’ and other such words. The Vulgate and older English versions tended to treat the word as a proper name, but most modern versions do not so regard it. In later writings, such as the Dead Sea Scrolls, the *Testament of Levi* and the *Ascension of Isaias*, it has become a name for the devil. In the latter we read (2:4), ‘And Manasses turned away his own heart to serve Beliar —for the angel of lawlessness, who is the ruler of this world, is Beliar’. The source of the usage of the liturgical texts is, therefore, almost certainly 2 Corinthians.
 
 <a href="#_ftnref26" id="_ftn26"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[26]</span></a> This word, used here in the plural, means literally Â‘a nod or inclination of the headÂ’ and so Â‘assent or approvalÂ’. The Latin equivalent is *nutus*. Whereas superior persons, kings, popes, bishops and suchlike, are *Dei providentia*, or *Dei gratia*, minor dignitaries are sometimes described as *Dei nutu*.
+footnote">[26]</span></a> This word, used here in the plural, means literally ‘a nod or inclination of the head’ and so ‘assent or approval’. The Latin equivalent is *nutus*. Whereas superior persons, kings, popes, bishops and suchlike, are *Dei providentia*, or *Dei gratia*, minor dignitaries are sometimes described as *Dei nutu*.
 
 <a href="#_ftnref27" id="_ftn27"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[27]</span></a> Psalm 44:3.
@@ -441,10 +441,10 @@ footnote">[27]</span></a> Psalm 44:3.
 footnote">[28]</span></a> Isaias 53:2.
 
 <a href="#_ftnref29" id="_ftn29"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[29]</span></a> This troparion plays <span style="font-family:&quot;Symbol Accentuated&quot;">DÃ©spothV, DÃ©spoina </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">despoteÃ­a.</span>
+footnote">[29]</span></a> This troparion plays <span style="font-family:&quot;Symbol Accentuated&quot;">DéspothV, Déspoina </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">despoteía.</span>
 
 <a href="#_ftnref30" id="_ftn30"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[30]</span></a> Avvakoum 3:1-3. The notes in *La Bible dÂ’Alexandrie*, XXIII: 4-9, are particularly valuable on these verses. Because Theman is in the south, for the Fathers it signifies Bethlehem, south of Jerusalem, the place where Christ was born. The words Â‘shadedÂ’ and Â‘woodedÂ’ are both Â‘translationsÂ’ of the Hebrew name *Paran*, which was linked by the translator with a rare Hebrew word meaning Â‘boughÂ’.
+footnote">[30]</span></a> Avvakoum 3:1-3. The notes in *La Bible d’Alexandrie*, XXIII: 4-9, are particularly valuable on these verses. Because Theman is in the south, for the Fathers it signifies Bethlehem, south of Jerusalem, the place where Christ was born. The words ‘shaded’ and ‘wooded’ are both ‘translations’ of the Hebrew name *Paran*, which was linked by the translator with a rare Hebrew word meaning ‘bough’.
 
 <a href="#_ftnref31" id="_ftn31"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[31]</span></a> Galatians 6:17, the only use of the word in the NT.
@@ -471,7 +471,7 @@ footnote">[37]</span></a> 1 Timothy 2:5.
 footnote">[38]</span></a> Psalm 73:12.
 
 <a href="#_ftnref39" id="_ftn39"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[39]</span></a> Greek <span style="font-family:&quot;Symbol Accentuated&quot;">nohtÃ³V.</span>
+footnote">[39]</span></a> Greek <span style="font-family:&quot;Symbol Accentuated&quot;">nohtóV.</span>
 
 <a href="#_ftnref40" id="_ftn40"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[40]</span></a> Cf. Exodus 14.
@@ -480,7 +480,7 @@ footnote">[40]</span></a> Cf. Exodus 14.
 footnote">[41]</span></a> Hebrews 11:9.
 
 <a href="#_ftnref42" id="_ftn42"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[42]</span></a> Cf. Exodus 13:21 and the numerous passages throughout the Old Testament which refer to the cloud overshadowing the temple; also the Â‘light/swift cloudÂ’ in Isaias 19:1.
+footnote">[42]</span></a> Cf. Exodus 13:21 and the numerous passages throughout the Old Testament which refer to the cloud overshadowing the temple; also the ‘light/swift cloud’ in Isaias 19:1.
 
 <a href="#_ftnref43" id="_ftn43"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[43]</span></a> Malachy 3:20.
@@ -513,19 +513,19 @@ footnote">[51]</span></a> Genesis 2:9.
 footnote">[52]</span></a> Genesis 3.
 
 <a href="#_ftnref53" id="_ftn53"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[53]</span></a> The musical punctuation suggests that the adverb could modify Â‘sufferÂ’. The grammar allows either. The many similar texts in the service books support the translation above.
+footnote">[53]</span></a> The musical punctuation suggests that the adverb could modify ‘suffer’. The grammar allows either. The many similar texts in the service books support the translation above.
 
 <a href="#_ftnref54" id="_ftn54"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[54]</span></a> Matt. 13:22, Mark 4:19, Luke 8:14. The only uses of this word in the Bible are these three in the parable of the sower.
 
 <a href="#_ftnref55" id="_ftn55"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[55]</span></a> This troparion plays on the words <span style="font-family:&quot;Symbol Accentuated&quot;">lÃ³goV, </span>Â’wordÂ’, but also Â‘reasonÂ’ and <span style="font-family:&quot;Symbol Accentuated&quot;">Ã?logoV, </span>Â’irrationalÂ’.
+footnote">[55]</span></a> This troparion plays on the words <span style="font-family:&quot;Symbol Accentuated&quot;">lógoV, </span>’word’, but also ‘reason’ and <span style="font-family:&quot;Symbol Accentuated&quot;">ÁlogoV, </span>’irrational’.
 
 <a href="#_ftnref56" id="_ftn56"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[56]</span></a> The first half of the troparion develops a horticultural metaphor, based on the story of the FallÂ—Â‘sin which sprouted by a treeÂ’Â—with an allusion to the CrossÂ—Â‘your shootÂ’.
+footnote">[56]</span></a> The first half of the troparion develops a horticultural metaphor, based on the story of the Fall—‘sin which sprouted by a tree’—with an allusion to the Cross—‘your shoot’.
 
 <a href="#_ftnref57" id="_ftn57"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[57]</span></a> Jonas 2:1-10. There is a number of verbal echoes of JonasÂ’s prayer in this troparion. The image in the second clause is, as the commentators say, Â‘boldÂ’.
+footnote">[57]</span></a> Jonas 2:1-10. There is a number of verbal echoes of Jonas’s prayer in this troparion. The image in the second clause is, as the commentators say, ‘bold’.
 
 <a href="#_ftnref58" id="_ftn58"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[58]</span></a> Exodus 17:11-13.
@@ -534,34 +534,34 @@ footnote">[58]</span></a> Exodus 17:11-13.
 footnote">[59]</span></a> Ps. 115:6.
 
 <a href="#_ftnref60" id="_ftn60"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[60]</span></a> Literally Â‘strangeÂ’, with a play on the first word of the troparion, but this really does not work in contemporary English.
+footnote">[60]</span></a> Literally ‘strange’, with a play on the first word of the troparion, but this really does not work in contemporary English.
 
 <a href="#_ftnref61" id="_ftn61"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[61]</span></a> Appropriately this is the word used by the Mother of God in the ChurchÂ’s text of the *Magnificat*, Â‘For he that is mighty has done great things for meÂ’ (Luke 1:49).
+footnote">[61]</span></a> Appropriately this is the word used by the Mother of God in the Church’s text of the *Magnificat*, ‘For he that is mighty has done great things for me’ (Luke 1:49).
 
 <a href="#_ftnref62" id="_ftn62"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[62]</span></a> A further series of plays on words, here on the words <span style="font-family:&quot;Symbol Accentuated&quot;">Ã?cronoV</span>Â—Â‘timelessÂ’Â—, <span style="font-family:&quot;Symbol Accentuated&quot;">crÃ³noV</span>Â—Â‘timeÂ’ and <span style="font-family:&quot;Symbol Accentuated&quot;">crÃ³nioV</span>Â—Â‘chronicÂ’.
+footnote">[62]</span></a> A further series of plays on words, here on the words <span style="font-family:&quot;Symbol Accentuated&quot;">ÁcronoV</span>—‘timeless’—, <span style="font-family:&quot;Symbol Accentuated&quot;">crónoV</span>—‘time’ and <span style="font-family:&quot;Symbol Accentuated&quot;">crónioV</span>—‘chronic’.
 
 <a href="#_ftnref63" id="_ftn63"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[63]</span></a> Daniel 3:51-52.
 
 <a href="#_ftnref64" id="_ftn64"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[64]</span></a> John 18:22. The word only occurs four times in the Bible, here and in the plural at Mark 14:65, John 19:3 and Isaias 50:6, Â‘I gave my back to scourges and my cheeks to blowsÂ’.
+footnote">[64]</span></a> John 18:22. The word only occurs four times in the Bible, here and in the plural at Mark 14:65, John 19:3 and Isaias 50:6, ‘I gave my back to scourges and my cheeks to blows’.
 
 <a href="#_ftnref65" id="_ftn65"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[65]</span></a> The word *alastor* is used frequently of the devil in the liturgical texts, but it only occurs four times in the Septuagint, three of them in 4 Maccabees and one in 2 Maccabees, where it is used of Antiochus Epiphanes and once of the Â‘avengerÂ’ who will punish him. In classical Greek it seems to have originally meant an Â‘avenging deityÂ’.
+footnote">[65]</span></a> The word *alastor* is used frequently of the devil in the liturgical texts, but it only occurs four times in the Septuagint, three of them in 4 Maccabees and one in 2 Maccabees, where it is used of Antiochus Epiphanes and once of the ‘avenger’ who will punish him. In classical Greek it seems to have originally meant an ‘avenging deity’.
 
 <a href="#_ftnref66" id="_ftn66"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[66]</span></a> Matt. 27:51.
 
 <a href="#_ftnref67" id="_ftn67"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[67]</span></a> Literally Â‘of the whole bodyÂ’, but the devil has no body.
+footnote">[67]</span></a> Literally ‘of the whole body’, but the devil has no body.
 
 <a href="#_ftnref68" id="_ftn68"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[68]</span></a> This is the title of one of the best known Ethiopic hymns to the Mother of God.
 
 <a href="#_ftnref69" id="_ftn69"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[69]</span></a> The phrase Â‘gates of repentanceÂ’ is not scriptural, nor does it occur in any of the principal Fathers. It is, of course, well known from the Troparion after Psalm 50 at Sunday Matins in the Triodion. The nearest biblical text is Ps. 117:19, Â‘Open to me the gates of justiceÂ—<span style="font-family:&quot;Symbol Accentuated&quot;">dikaiosÃºnhV</span>Â’, and the liturgical text seems to be an adaptation of it.
+footnote">[69]</span></a> The phrase ‘gates of repentance’ is not scriptural, nor does it occur in any of the principal Fathers. It is, of course, well known from the Troparion after Psalm 50 at Sunday Matins in the Triodion. The nearest biblical text is Ps. 117:19, ‘Open to me the gates of justice—<span style="font-family:&quot;Symbol Accentuated&quot;">dikaiosúnhV</span>’, and the liturgical text seems to be an adaptation of it.
 
 <a href="#_ftnref70" id="_ftn70"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[70]</span></a> This word is only attested once in Greek, from the 7th century writer Leontios of Neapolis, as quoted by St John of Damascus, by whom it is used of the Burning Bush.
@@ -570,12 +570,12 @@ footnote">[70]</span></a> This word is only attested once in Greek, from the 7th
 footnote">[71]</span></a> Cf. Ps. 103:2.
 
 <a href="#_ftnref72" id="_ftn72"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[72]</span></a> Even in English the play on the word Â‘lightÂ’ is clear. In fact the Greek uses three different words, <span style="font-family:&quot;Symbol Accentuated&quot;">Ã¶lÃ³f</span>w<span style="font-family:&quot;Symbol Accentuated&quot;">toV</span>Â—Â‘wholly lightÂ’, <span style="font-family:&quot;Symbol Accentuated&quot;">fwtodÃ³toV</span>Â—Â‘giver of lightÂ’, and <span style="font-family:&quot;Symbol Accentuated&quot;">fÃ´V</span>Â—Â‘lightÂ’.
+footnote">[72]</span></a> Even in English the play on the word ‘light’ is clear. In fact the Greek uses three different words, <span style="font-family:&quot;Symbol Accentuated&quot;">ölóf</span>w<span style="font-family:&quot;Symbol Accentuated&quot;">toV</span>—‘wholly light’, <span style="font-family:&quot;Symbol Accentuated&quot;">fwtodótoV</span>—‘giver of light’, and <span style="font-family:&quot;Symbol Accentuated&quot;">fôV</span>—‘light’.
 
 <a href="#_ftnref73" id="_ftn73"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[73]</span></a> The Â‘cherubim throneÂ’ is a reference to the divine chariot in Ezekiel 1. Later, in chapter 10, the four living creatures are identified by the prophet as the cherubim: Â‘And the Cherubim were lifted up. This was the living creature I had seen by the river ChobarÂ’ (10,15).<span style="mso-spacerun: yes">  </span>The Greek text has a number of variant readings here. I translate what is most likely to have been the text known to the writer of the canon.
+footnote">[73]</span></a> The ‘cherubim throne’ is a reference to the divine chariot in Ezekiel 1. Later, in chapter 10, the four living creatures are identified by the prophet as the cherubim: ‘And the Cherubim were lifted up. This was the living creature I had seen by the river Chobar’ (10,15).<span style="mso-spacerun: yes">  </span>The Greek text has a number of variant readings here. I translate what is most likely to have been the text known to the writer of the canon.
 
-<a href="#_ftnref74" id="_ftn74"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[74]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word used here for a Â‘bridal chamberÂ’ is *pastas*, which does not occur in Scripture. In the liturgical texts it nearly always recalls Psalm 18,6, where the word is the related word *pastos*. In a fragment on Psalm 18, attributed to St Athanasios, both words are found together with the typology of the Mother of God. </span><span lang="EN-US" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;
+<a href="#_ftnref74" id="_ftn74"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[74]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word used here for a ‘bridal chamber’ is *pastas*, which does not occur in Scripture. In the liturgical texts it nearly always recalls Psalm 18,6, where the word is the related word *pastos*. In a fragment on Psalm 18, attributed to St Athanasios, both words are found together with the typology of the Mother of God. </span><span lang="EN-US" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">Παστὸν τὴν Παρθένον ἐκά</span><span lang="EL" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL">λεσεν</span><span lang="EN-US" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">, ἐξ ἧς ὁ νυμφίος Χριστὸς ἐπορεύετο, </span><span lang="EL" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
@@ -605,7 +605,7 @@ font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:EL">ἡ</span><span
 EN-US"> </span><span lang="EL" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EL">ἁγία</span><span lang="EL" style="font-size:12.0pt;
 font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US"> </span><span lang="EL" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
-EL">Παρθένος</span><span style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;">. </span><span style="font-size:12.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">Â‘He called the Virgin Â‘bridal chamberÂ’Â—*pastos*Â—, from whom Christ the Bridegroom proceeded, coming forth pure from every stain. ChristÂ’s bridal chamberÂ—*pastas*Â— is the holy VirginÂ’.</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-ansi-language:EN-US"></span>
+EL">Παρθένος</span><span style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;">. </span><span style="font-size:12.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">‘He called the Virgin ‘bridal chamber’—*pastos*—, from whom Christ the Bridegroom proceeded, coming forth pure from every stain. Christ’s bridal chamber—*pastas*— is the holy Virgin’.</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-ansi-language:EN-US"></span>
 
 <a href="#_ftnref75" id="_ftn75"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[75]</span></a> The same language is used in the 15th Antiphon of Matins of Good Friday. <span style="font-family:&quot;Symbol Accentuated&quot;"></span>
@@ -620,13 +620,13 @@ footnote">[77]</span></a> Matt. 27:51, John 19:34.
 footnote">[78]</span></a> As the deacon says at the opening of the anaphora.
 
 <a href="#_ftnref79" id="_ftn79"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[79]</span></a> This word presents a problem, though the meaning is clear. It is not in Liddell and Scott and in Lampe it is only given as an erroneous reading MigneÂ’s text of the seventh century George of PisidiaÂ’s *Hexaemeron*.**
+footnote">[79]</span></a> This word presents a problem, though the meaning is clear. It is not in Liddell and Scott and in Lampe it is only given as an erroneous reading Migne’s text of the seventh century George of Pisidia’s *Hexaemeron*.**
 
  
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

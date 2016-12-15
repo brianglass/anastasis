@@ -60,13 +60,13 @@ Christ the truth is coming to Jordan to be baptized by John, who says to him: I 
 
 Apolytikion. Tone 3.
 
-Holy ApostlesÂ¼
+Holy Apostles¼
 
 ****
 
 And Forefeast. Tone 4.
 
-Zavoulon prepareÂ¼
+Zavoulon prepare¼
 
 ****
 
@@ -84,7 +84,7 @@ On the long Thursday, I sing a long hymn.
 
 Ode 1. Tone 6. Irmos.
 
-Â‘The Red Sea was cut by a cutting rod, while the deep nurse of waves grew dry; it became a pathway for the unarmed, and a tomb for the fully armed; while a hymn pleasing to God was sung: Christ our God has been greatly glorifiedÂ’.
+‘The Red Sea was cut by a cutting rod, while the deep nurse of waves grew dry; it became a pathway for the unarmed, and a tomb for the fully armed; while a hymn pleasing to God was sung: Christ our God has been greatly glorified’.
 
 The infinite Wisdom of God, cause of all and productive of life, has built itself a house from a pure Mother who knew not man; now it is coming to the streams of Jordan, asking for baptism for the refashioning of mortals.
 
@@ -96,7 +96,7 @@ Let us now give ear to the prophetic voices as they are fulfilled through the Sp
 
 Ode 3. Irmos.
 
-Â‘God without passions, though Lord and Creator of all things, you made yourself poor by uniting to yourself that which is created, and to the streams to which you were yourself about to come, to the peoples you cried out: Draw the water of life, and you will be established in the faithÂ’.
+‘God without passions, though Lord and Creator of all things, you made yourself poor by uniting to yourself that which is created, and to the streams to which you were yourself about to come, to the peoples you cried out: Draw the water of life, and you will be established in the faith’.
 
 You are coming, Saviour, to bestow the grace of Baptism, which delivers both souls and bodies; and so you now award us grace for grace as you cry: Draw the water of life, and you will be established in the faith.
 
@@ -106,7 +106,7 @@ Senseless man who knows not God; for he is destroyed by unnatural habits, he fal
 
 Ode 4. Irmos.
 
-Â‘Foreseeing your ineffable mystery, O Christ, the Prophet cried out: You have ordained the mighty grace of Baptism for all those who receive it with faith, for the redemption of our offencesÂ’.
+‘Foreseeing your ineffable mystery, O Christ, the Prophet cried out: You have ordained the mighty grace of Baptism for all those who receive it with faith, for the redemption of our offences’.
 
 You are hastening for baptism, which is source of forgiveness for all mortals burdened by wicked falls and living wickedly in depravity, having promised to grant them repose of soul as you are pitying.
 
@@ -118,7 +118,7 @@ Drink and anointing and Spirit are the tokens of your seal, O Saviour, and its m
 
 Ode 5. Irmos.
 
-Â‘Held back by the bond of fear the Forerunner now reverently begs to be allowed not to baptize, as he looks on Christ, who roofs his upper chambers in the waters, standing naked in the waterÂ’.
+‘Held back by the bond of fear the Forerunner now reverently begs to be allowed not to baptize, as he looks on Christ, who roofs his upper chambers in the waters, standing naked in the water’.
 
 The Wisdom of God, which hold the boundless upper water in the air, which reins in the deeps and holds back the seas, is coming to Jordan; while he accepts Baptism from the hand of a slave.
 
@@ -128,7 +128,7 @@ Having taken form, Christ has come to purify the first Adam by Baptism; while he
 
 Ode 6. Irmos.
 
-Â‘The final abyss of sins has encircled me, and no longer able to endure its billows, as Jonas I cry to you, Master: Bring me up from corruptionÂ’.
+‘The final abyss of sins has encircled me, and no longer able to endure its billows, as Jonas I cry to you, Master: Bring me up from corruption’.
 
 Knowing you as Lord, the heavens declared your glory at your birth, O Saviour; while now the Father proclaims you the beloved Son as you are baptized.
 
@@ -138,7 +138,7 @@ Let everyone who bears a stain be thoroughly cleansed by founts of tears, and le
 
 Ode 7. Irmos.
 
-Â‘In Babylon the Youths did not quail at the flame of the furnace, but cast into the midst of the flame they were refreshed with dew and sang: Blessed are you, O Lord, the God of our FathersÂ’.
+‘In Babylon the Youths did not quail at the flame of the furnace, but cast into the midst of the flame they were refreshed with dew and sang: Blessed are you, O Lord, the God of our Fathers’.
 
 Assenting to a hostile head, let no one move craftily to render wickedly to their neighbour, meditating wickedness for wickedness; but with love let us honour the Lord who has appeared.
 
@@ -150,7 +150,7 @@ Whoever goes down with me and is entombed by Baptism, with me will enjoy glory a
 
 Ode 8. Irmos.
 
-Â‘The most blest Young Men in Babylon, accepting danger for their ancestral laws, scorned the irrational order of the ruler; and standing united in the fire, by which they were not smelted, they sang a hymn worthy of the Mighty One: You his works bless the Lord, and highly exalt him to all the agesÂ’.
+‘The most blest Young Men in Babylon, accepting danger for their ancestral laws, scorned the irrational order of the ruler; and standing united in the fire, by which they were not smelted, they sang a hymn worthy of the Mighty One: You his works bless the Lord, and highly exalt him to all the ages’.
 
 Guests of the food of God, having delighted in Bethlehem by the word and given glorified the Incarnate One with Angels, Shepherds and Magi, let us now go towards Jordan to see the great mystery which Christ has come to accomplish; him we highly exalt to all the ages.
 
@@ -162,7 +162,7 @@ He greeted with honour the one who came to cleanse the sins of all in the waters
 
 Ode 9. Irmos.
 
-Â‘Having first tasted delight on the MasterÂ’s welcome and his immortal table in the poor Cave, now let us run to Jordan to see the strange mystery, host to the splendour from aboveÂ’.
+‘Having first tasted delight on the Master’s welcome and his immortal table in the poor Cave, now let us run to Jordan to see the strange mystery, host to the splendour from above’.
 
 Leave Bethlehem for the country of Jordan, you who delight in wonders, and there you will see deeds mystically accomplished, and Christ advancing for Baptism; for he has taken flesh to refashion Adam.
 
@@ -182,7 +182,7 @@ After the 1st Reading from the Psalter, Kathisma.
 
 Tone 4.
 
-See, Christ approaches Jordan, and cries out to the Forerunner: Come, baptize me, who cleanse every sin of the world in a riverÂ’s streams; stretch out your hand to my divine head; for I have come to heal a handÂ’s offence.
+See, Christ approaches Jordan, and cries out to the Forerunner: Come, baptize me, who cleanse every sin of the world in a river’s streams; stretch out your hand to my divine head; for I have come to heal a hand’s offence.
 
 Glory. Both now.
 
@@ -210,7 +210,7 @@ Joseph. ****
 
 Ode 1. Tone 6. Irmos.
 
-Â‘Crossing the deep on foot as on dry land, Israel saw their pursuer Pharao drowning in the deep and cried aloud: Let us sing a song of victory to GodÂ’.
+‘Crossing the deep on foot as on dry land, Israel saw their pursuer Pharao drowning in the deep and cried aloud: Let us sing a song of victory to God’.
 
 Let creation rejoice, let the families of the Nations sing: Jesus, the King of all the earth, is approaching the streams of Jordan to bring bout our cleansing.
 
@@ -222,7 +222,7 @@ Offspring though you are of the Father without beginning, O Compassionate, you a
 
 Ode 3. Irmos.
 
-Â‘None is Holy as you, O Lord my God, who have exalted the horn of your faithful, O Good one, and established me on the rock of confession of you.Â’
+‘None is Holy as you, O Lord my God, who have exalted the horn of your faithful, O Good one, and established me on the rock of confession of you.’
 
 Mastering all things as God, you bear the image of a slave, and in flesh, O Pitying one, you approach a slave, so taking us from the slavery of the foe by the divine work of Baptism.
 
@@ -244,7 +244,7 @@ When Jesus had been born of the Virgin Mary and baptized in the Jordan by John, 
 
 Ode 4. Irmos.
 
-Â‘Christ is my power, my God and Lord, the holy Church sings in a manner fitting God, as she cries out from a pure mind and keeps festival in the LordÂ’.
+‘Christ is my power, my God and Lord, the holy Church sings in a manner fitting God, as she cries out from a pure mind and keeps festival in the Lord’.
 
 When the stream of Jordan saw you, Lord, it was turned back; while our nature, stained by many passions, was turned up towards heaven as it worshipped you.
 
@@ -256,7 +256,7 @@ See, the cleansing; see, the redemption, the refashioning, the illumination of a
 
 Ode 5. Irmos.
 
-Â‘With your divine light shine, O Good One, I beg, on the souls of those who with love seek you early in the morning, that they may know you, O Word of God, as truly God, who call them back from the gloom of faultsÂ’.
+‘With your divine light shine, O Good One, I beg, on the souls of those who with love seek you early in the morning, that they may know you, O Word of God, as truly God, who call them back from the gloom of faults’.
 
 Let us for Christ bear the fruit of a pure life; for he is coming, cleansing with the waters the stain of sins by grace, he the only Benefactor and Sinless One.
 
@@ -268,7 +268,7 @@ Accomplishing a great mystery, O Lord of great gifts, you are coming to your gre
 
 Ode 6. Irmos.
 
-Â‘Seeing lifeÂ’s sea rising with a tempest of temptations, as I flee to your calm haven, I cry out to you: Bring my life up from corruption, O Most merciful.Â’
+‘Seeing life’s sea rising with a tempest of temptations, as I flee to your calm haven, I cry out to you: Bring my life up from corruption, O Most merciful.’
 
 As filled with mystic waters, as a river of peace, O only Lord, you, the only sinless one, have come to a river and ask from a little drop to be baptized.
 
@@ -280,7 +280,7 @@ The Full has been emptied; see, the Invisible has appeared embodied. River Jorda
 
 Irmos.
 
-Â‘Surrounded by an abyss of offences, I call upon the unfathomable abyss of your compassion: O God, bring me up from corruptionÂ’.
+‘Surrounded by an abyss of offences, I call upon the unfathomable abyss of your compassion: O God, bring me up from corruption’.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">On the 4th day of the same month, Assembly of the holy and glorious Seventy Apostles.</span>
 
@@ -298,9 +298,9 @@ font-family:&quot;Book Antiqua&quot;"></span>
 mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses
 </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;letter-spacing:-.15pt;layout-grid-mode:line;mso-bidi-font-weight:
-bold">GodÂ’s \[<span style="color:blue">theou</span>\] uncreated \[<span style="color:blue">aktistos</span>\] Word, to Theoctist
+bold">God’s \[<span style="color:blue">theou</span>\] uncreated \[<span style="color:blue">aktistos</span>\] Word, to Theoctist
 </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:
-&quot;Book Antiqua&quot;">In EdenÂ’s</span><span style="font-size:14.0pt;mso-bidi-font-size:
+&quot;Book Antiqua&quot;">In Eden’s</span><span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.15pt;layout-grid-mode:line;
 mso-bidi-font-weight:bold"> verdant land his lot you give.</span>
 
@@ -341,7 +341,7 @@ For worthy was she found to dwell in heaven.</span>
 
 Ode 7. Irmos.
 
-Â‘An Angel made the furnace moist with dew for the holy Youths; while GodÂ’s command consuming the Chaldeans in the flame persuaded the tyrant to cry out: Blessed are you, O God of our FathersÂ’.
+‘An Angel made the furnace moist with dew for the holy Youths; while God’s command consuming the Chaldeans in the flame persuaded the tyrant to cry out: Blessed are you, O God of our Fathers’.
 
 How will the streams receive you, O Christ, who are the torrent of delight? How will the Forerunner stretch out his hand upon you, who fashioned him with your hand, and who have brought us out of the hand of the evil one?
 
@@ -353,9 +353,9 @@ Let the mountains drop down gladness and the mountains leap for joy as they exul
 
 Ode 8. Irmos.
 
-Â‘You made dew fall from the flames for the Holy Ones, and burnt up the sacrifice of the Just with water; for you do all things, O Christ, simply by willing them. We highly exalt you to all the agesÂ’.
+‘You made dew fall from the flames for the Holy Ones, and burnt up the sacrifice of the Just with water; for you do all things, O Christ, simply by willing them. We highly exalt you to all the ages’.
 
-Elisaios cut the riverÂ’s streams with his cloak, foreshadowing the grace of Baptism which Christ, the only Benefactor, wrought when he entered them.
+Elisaios cut the river’s streams with his cloak, foreshadowing the grace of Baptism which Christ, the only Benefactor, wrought when he entered them.
 
 The glorious Prophet of old prefigured the grace of Baptism when he rendered the waters, which before were barren through salt, fruitful by the power of our God who has appeared.
 
@@ -365,13 +365,13 @@ Every valley will be filled with divine gifts, and every hostile hill made low, 
 
 Irmos.
 
-Â‘The God, who came down into the furnace of fire with the Hebrew Youths and turned the flame to dew, praise him his works as Lord, and highly exalt him to all the agesÂ’.
+‘The God, who came down into the furnace of fire with the Hebrew Youths and turned the flame to dew, praise him his works as Lord, and highly exalt him to all the ages’.
 
 ****
 
 Ode 9. Irmos.
 
-Â‘It is impossible for humans to see God, on whom the ranks of Angels dare not gaze. But through you, All-pure one, the incarnate Word has been seen by mortals. As we magnify Him, with the heavenly armies we call you blessed.Â’
+‘It is impossible for humans to see God, on whom the ranks of Angels dare not gaze. But through you, All-pure one, the incarnate Word has been seen by mortals. As we magnify Him, with the heavenly armies we call you blessed.’
 
 Christ, who fashioned mankind with your hands, as a man you bow beneath the hand of the Forerunner, humbling yourself that you may exalt me, who of old was humbled and destroyed; glory to your glorious and fearful dispensation.
 
@@ -389,7 +389,7 @@ The Son, born timelessly from the Father before the ages, and beyond nature bear
 
 ****
 
-At Lauds we insert 6 Verses, and we sing Prosomia \[which continue yesterdayÂ’s acrostic, and are sung to the same melody\].
+At Lauds we insert 6 Verses, and we sing Prosomia \[which continue yesterday’s acrostic, and are sung to the same melody\].
 
 Tone 6.
 
@@ -399,7 +399,7 @@ I can in no way fathom the height of heaven; I cannot measure the number of the 
 
 I am enthroned with the Father and the Spirit, I am escorted by the angelic hosts; but through compassion I was exiled, being brought to birth in a little cave in Bethlehem; and so now lend me your right hand, that I my wash away in my own person the faults of the world.
 
-Once in the days of NoÃ« you abolished sins when you opened with a word the cataracts of heaven; how then will Jordan when it sees you hold its place? For already its stream is turning back; all creation has recognised you; and I cry to you: Blessed are you, our God, who have appeared, glory to you.
+Once in the days of Noë you abolished sins when you opened with a word the cataracts of heaven; how then will Jordan when it sees you hold its place? For already its stream is turning back; all creation has recognised you; and I cry to you: Blessed are you, our God, who have appeared, glory to you.
 
 Glory.
 
@@ -417,7 +417,7 @@ You once led Israel to light through a pillar and a cloud, and bedewed him in th
 
 Aposticha. Tone 2. House of Ephratha.
 
-The brightness of the FatherÂ’s glory has appeared in JordanÂ’s streams, cleansing by Baptism the stain of our souls.
+The brightness of the Father’s glory has appeared in Jordan’s streams, cleansing by Baptism the stain of our souls.
 
 ****
 
@@ -450,6 +450,6 @@ The rest of the office of Matins, as usual, and Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

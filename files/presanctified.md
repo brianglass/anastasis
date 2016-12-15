@@ -2,7 +2,7 @@
 
 INTRODUCTION
 
-This provisional translation of the Liturgy of the Presanctified is intended to be practical, rather than critical. It is based for the most part on the 3rd volume of the *Hieratikon* published by the Monastery of Simonos Petra in 1992, together with second edition of the Greek text published by Professor Phountoulis in 1986 and the 3rd edition of *Megali Tessarakosti* by the *Apostoliki Diakonia* in 1991. The earlier edition by Rigopoulis 1977 and the Slavonic  *Sluzebnik*, Moscow 1996. There are many variations in the various editions and I hope to provide more detailed annotation shortly, together with translations of St Theodore the Studite’s *Commentary* and St Symeon of ThessalonikaÂ‘s *Answers.* The ReaderÂ‘s and SingersÂ‘ parts of the service will be found elsewhere on these pages, [The Holy and Divine Liturgy of the Presanctified Gifts](lenten_vespers_2.md).
+This provisional translation of the Liturgy of the Presanctified is intended to be practical, rather than critical. It is based for the most part on the 3rd volume of the *Hieratikon* published by the Monastery of Simonos Petra in 1992, together with second edition of the Greek text published by Professor Phountoulis in 1986 and the 3rd edition of *Megali Tessarakosti* by the *Apostoliki Diakonia* in 1991. The earlier edition by Rigopoulis 1977 and the Slavonic  *Sluzebnik*, Moscow 1996. There are many variations in the various editions and I hope to provide more detailed annotation shortly, together with translations of St Theodore the Studite’s *Commentary* and St Symeon of Thessalonika‘s *Answers.* The Reader‘s and Singers‘ parts of the service will be found elsewhere on these pages, [The Holy and Divine Liturgy of the Presanctified Gifts](lenten_vespers_2.md).
 
 ------------------------------------------------------------------------
 
@@ -12,7 +12,7 @@ THE DIVINE LITURGY OF THE PRESANCTIFIED
 
 When the moment for the service arrives, after the ekphonesis
 
-For yours is the kingdomÂ… ** **by the Priest at the beginning of the 9th Hour, the Deacon joins the Priest and they go and make a metania to the Superior, or to his stall. Then, going to the middle of the church, they make three bows, saying,**
+For yours is the kingdom… ** **by the Priest at the beginning of the 9th Hour, the Deacon joins the Priest and they go and make a metania to the Superior, or to his stall. Then, going to the middle of the church, they make three bows, saying,**
 
 Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us.
 
@@ -22,11 +22,11 @@ Then, having kissed the holy icons of Christ and the Mother of God, and having a
 
 The Priest takes his priestly vestments and puts them on, saying nothing, or only
 
-Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us. Amen. **It is customary not to wear marks of honour, such as pectoral crosses and epigonatia. The Priest blesses the DeaconÂ’s vestments simply with his right hand, likewise saying nothing.**
+Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us. Amen. **It is customary not to wear marks of honour, such as pectoral crosses and epigonatia. The Priest blesses the Deacon’s vestments simply with his right hand, likewise saying nothing.**
 
 After they have vested they take their stand before the holy Table and make three metanias, saying,
 
-** O God be merciful to me, a sinner. **The Priest, having kissed the holy Gospel and made the sign of the Cross on the DeaconÂ’s head, gives the Dismissal of the 9th Hour.**
+** O God be merciful to me, a sinner. **The Priest, having kissed the holy Gospel and made the sign of the Cross on the Deacon’s head, gives the Dismissal of the 9th Hour.**
 
 Then the Deacon begins:
 
@@ -317,7 +317,7 @@ Deacon:
 
 Reader:
 
-Prokeimenon. Tone Â… Psalm Â… \[**from the Triodion, followed by the Readings\]**
+Prokeimenon. Tone … Psalm … \[**from the Triodion, followed by the Readings\]**
 
 Deacon:
 
@@ -339,7 +339,7 @@ Priest:
 
 Reader:
 
-** Prokeimenon. Tone Â… PsalmÂ… ****
+** Prokeimenon. Tone … Psalm… ****
 
 After the Prokeimenon the Reader says in a loud voice:
 
@@ -413,7 +413,7 @@ Priest/Reader:
 
 The Priest, returning to the front of the holy Table, takes up again:
 
-Let my prayer be directed like incense before you Â…
+Let my prayer be directed like incense before you …
 
 ****
 
@@ -429,7 +429,7 @@ Prayer of Saint Ephrem the Syrian**, once.**
 
 ------------------------------------------------------------------------
 
-If there is a Â‘feastedÂ’ Saint, the Apostle and Gospel of the Feast (in Holy Week only the Gospel) are now read according the following order,
+If there is a ‘feasted’ Saint, the Apostle and Gospel of the Feast (in Holy Week only the Gospel) are now read according the following order,
 
 After the final
 
@@ -862,7 +862,7 @@ Having asked for the unity of the faith and the communion of the Holy Spirit, le
 
 The priest bows and says the following prayer after setting the Holy Gifts on the holy Table.
 
-O God of ineffable and unseen mysteries, with whom are the hidden treasures of wisdom and knowledge, who have revealed to us the service of this ministry and through your great love for humankind appointed us sinners to offer you gifts and sacrifices for our own sins and those committed in ignorance by the people, do you, invisible king, who do great and unfathomable things, things glorious an extraordinary that are without number, look upon us, your unworthy servants, who stand before this your holy altar, as before the throne of the Cherubim, on which, though the dread mysteries here set forth, rests your Son and our God. And, having freed us and your faithful people from all uncleanness, sanctify the souls and bodies of us all with a sanctification that cannot be taken away, so that receiving communion of these divine and holy things with a pure conscience, a face unashamed, an enlightened heart and being given life them, we may be united to your Christ, our true God, who said, Â‘One who eats my flesh and drinks my blood abides in me and I in themÂ’. So that, with your Word, Lord, dwelling in us and living among us, we may become a temple of your holy and adorable Spirit, having been rescued from every wile of the devil effected by word or deed or in the mind; and that we may obtain the good things promised to us, with all your Saints, who have been well-pleasing to you since time began.
+O God of ineffable and unseen mysteries, with whom are the hidden treasures of wisdom and knowledge, who have revealed to us the service of this ministry and through your great love for humankind appointed us sinners to offer you gifts and sacrifices for our own sins and those committed in ignorance by the people, do you, invisible king, who do great and unfathomable things, things glorious an extraordinary that are without number, look upon us, your unworthy servants, who stand before this your holy altar, as before the throne of the Cherubim, on which, though the dread mysteries here set forth, rests your Son and our God. And, having freed us and your faithful people from all uncleanness, sanctify the souls and bodies of us all with a sanctification that cannot be taken away, so that receiving communion of these divine and holy things with a pure conscience, a face unashamed, an enlightened heart and being given life them, we may be united to your Christ, our true God, who said, ‘One who eats my flesh and drinks my blood abides in me and I in them’. So that, with your Word, Lord, dwelling in us and living among us, we may become a temple of your holy and adorable Spirit, having been rescued from every wile of the devil effected by word or deed or in the mind; and that we may obtain the good things promised to us, with all your Saints, who have been well-pleasing to you since time began.
 
 (
 
@@ -1218,7 +1218,7 @@ Turn away from evil and do good, seek peace and pursue it.
 
 The eyes of the Lord are on the just, and his ears towards their supplication.
 
-The LordÂ’s face is set against those who do evil, to destroy their memory from the earth.
+The Lord’s face is set against those who do evil, to destroy their memory from the earth.
 
 The just cried and the Lord heard them, and delivered them from all their afflictions.
 
@@ -1293,6 +1293,6 @@ Amen.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

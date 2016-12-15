@@ -10,6 +10,6 @@ The background to this page is from one of David Roberts’s paintings of Bethle
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

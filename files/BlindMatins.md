@@ -44,7 +44,7 @@ O Bride who knew not wedlock, Mother of God, who turned Eve’s grief to joy, we
 
 ****
 
-After Psalm 118, the Evlogitaria. Then the YpakoÃ¯. Tone 5.
+After Psalm 118, the Evlogitaria. Then the Ypakoï. Tone 5.
 
 Amazed in mind by the vision of the Angel and enlightened in soul by the divine Rising, the Myrrhbearers gave the good news to the Apostles: ‘Announce among the nations the Lord’s Resurrection, who works with you by wonders and grants us his great mercy’
 
@@ -736,6 +736,6 @@ Mary’s hot tears did not flow in vain, for she was granted Angels to teach her
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

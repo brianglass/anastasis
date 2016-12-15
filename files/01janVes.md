@@ -110,7 +110,7 @@ The Saviour in coming down to aid the human race accepted circumvolution in swad
 Aposticha. Idiomel Stichera.
 Tone 1. By Vyzas.
 
-O godly and sacred bee of ChristÂ’s Church, all-blessed Basil; for you armed yourself with the sting of divine longing and wounded the blasphemies of heresies hated by God; and you treasured up for the souls of the faithful the sweetness of true religion; and now, as you pass through the divine meadows of inviolate pasture, remember us also as you stand before the consubstantial Trinity.
+O godly and sacred bee of Christ’s Church, all-blessed Basil; for you armed yourself with the sting of divine longing and wounded the blasphemies of heresies hated by God; and you treasured up for the souls of the faithful the sweetness of true religion; and now, as you pass through the divine meadows of inviolate pasture, remember us also as you stand before the consubstantial Trinity.
 
 ****
 
@@ -168,6 +168,6 @@ And Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

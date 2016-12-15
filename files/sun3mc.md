@@ -48,7 +48,7 @@ Mystically you contained in your womb the Incomprehensible and the Uncircumscrib
 
 ****
 
-After Psalm 118, the YpakoÃ¯.
+After Psalm 118, the Ypakoï.
 
 Causing amazement by his appearing, and refreshment by his words the dazzling Angel said the myrrh-bearing women, ‘Why do you seek the living in a grave? He has risen, emptying the graves. Know that the unchanging has changed corruption. Say to God: How fearful are your works! For you have saved the human race.’
 
@@ -461,6 +461,6 @@ Glory,
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

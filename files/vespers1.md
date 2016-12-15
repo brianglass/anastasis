@@ -27,13 +27,13 @@ Prophets inspired by God preached you in word and honoured you in works, and gat
 
 Uncircumscribed, Master, in your divine nature, and incarnate in the last times, you were pleased to be circumscribed; for in assuming flesh, you also took on all its properties. Therefore, depicting the form of your likeness, we give it a relative salutation and are exalted to love of you, and following the godly traditions of the apostles, we draw from it the grace of healings.
 
-The Church of Christ has received a precious adornment: the radiant restoration of the venerable and holy ikons of Christ the Saviour, of GodÂ’s Mother and of all the saints. Through this she is made bright and resplendent with grace and rejects the throng of heretics as she drives them out and joyfully gives glory to God who loves humankind, and who for her sake endured his voluntary sufferings.
+The Church of Christ has received a precious adornment: the radiant restoration of the venerable and holy ikons of Christ the Saviour, of God’s Mother and of all the saints. Through this she is made bright and resplendent with grace and rejects the throng of heretics as she drives them out and joyfully gives glory to God who loves humankind, and who for her sake endured his voluntary sufferings.
 
 Glory. **
 
 **Tone 6.**
 
-The grace of truth has shone out; the things prefigured in shadows in times of old have now been openly fulfilled. For see, the Church is clothed in a beauty that surpasses all earthly beauty, the physical ikon of Christ, as she displays the type of the Tent of Witness and maintains the Orthodox faith, so that, holding fast to the ikon of the One we worship, we may not go astray. Let all who do not believe like this be covered with shame; but our glory is the form of the One made flesh, which is devoutly worshipped but not made a god. As we kiss it, let us believers cry aloud, Â‘O God, save your people and bless your inheritanceÂ’.
+The grace of truth has shone out; the things prefigured in shadows in times of old have now been openly fulfilled. For see, the Church is clothed in a beauty that surpasses all earthly beauty, the physical ikon of Christ, as she displays the type of the Tent of Witness and maintains the Orthodox faith, so that, holding fast to the ikon of the One we worship, we may not go astray. Let all who do not believe like this be covered with shame; but our glory is the form of the One made flesh, which is devoutly worshipped but not made a god. As we kiss it, let us believers cry aloud, ‘O God, save your people and bless your inheritance’.
 
 Both now*.*
 
@@ -49,7 +49,7 @@ Glory.
 
 **Idiomel. Tone 2.**
 
-Hail, honoured Prophets, who rightly ordered the law of God and by your faith were shown to be indestructible and unshakeable pillars, for you appeared as mediators of ChristÂ’s new Covenant, and having passed over into heaven, implore him to give to the world and to save our souls.
+Hail, honoured Prophets, who rightly ordered the law of God and by your faith were shown to be indestructible and unshakeable pillars, for you appeared as mediators of Christ’s new Covenant, and having passed over into heaven, implore him to give to the world and to save our souls.
 
 Both now.
 
@@ -71,7 +71,7 @@ Both now. **
 
 **Theotokion. Same Tone.**
 
-O new wonder, greater than all the wonders of old! For who has ever known of a Mother has given birth without a man and carries in her arms the One who holds all creation in his grasp? That which was conceived is the Counsel of God, whom you, All-pure, carried as a babe in your embrace and with whom, as you have gained a motherÂ’s freedom to speak, do not cease to intercede on behalf of those who honour you, that he take pity and save our souls.
+O new wonder, greater than all the wonders of old! For who has ever known of a Mother has given birth without a man and carries in her arms the One who holds all creation in his grasp? That which was conceived is the Counsel of God, whom you, All-pure, carried as a babe in your embrace and with whom, as you have gained a mother’s freedom to speak, do not cease to intercede on behalf of those who honour you, that he take pity and save our souls.
 
 ****
 
@@ -92,6 +92,6 @@ We worship your most pure icon, loving Lord, as we ask pardon of our offences, C
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

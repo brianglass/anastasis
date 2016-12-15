@@ -78,7 +78,7 @@ Great is the power of your Cross.
 
 The passions of both soul and body rising terribly in revolt, my Saviour, are drowning me and dragging me down to the deep of despair; but lull them, as once you did the sea, and give me calm.
 
-Condemned, I have no boldness at all to gaze on heavenÂ’s height, dragged down by the multitude of my faults; so as the Publican I cry, Â‘Have mercy on me in my wretchedness, O SaviourÂ’.
+Condemned, I have no boldness at all to gaze on heaven’s height, dragged down by the multitude of my faults; so as the Publican I cry, ‘Have mercy on me in my wretchedness, O Saviour’.
 
 Great and fearful will be your coming, Master, when you take your seat and pass just judgement. Do not judge me then as one condemned, but as God spare me and free me from the constraint to come.
 
@@ -86,7 +86,7 @@ Great and fearful will be your coming, Master, when you take your seat and pass 
 
 Of the Forerunner. Same melody.
 
-As the dawn you rose on all the ends of the earth, enlightening the hearts of those who sing your praise, glorious Prophet; and so enlighten our minds and our souls to honour you, the SaviourÂ’s Baptist.
+As the dawn you rose on all the ends of the earth, enlightening the hearts of those who sing your praise, glorious Prophet; and so enlighten our minds and our souls to honour you, the Saviour’s Baptist.
 
 Blessed Forerunner, do not cease to intercede for all the world, we all beseech you; so that we, enriched with you as intercessor, may receive grace from on high to trample down the head of the evil-intentioned.
 
@@ -147,13 +147,13 @@ I lying on the bed of my indifference, I have passed the length of my life in sl
 
 Heal the pain of my heart, O Pure one, stop the wandering of my mind and grant that I may sing your praise with a pure heart, ask for grace and find mercy on the day of judgement.
 
-Cast away, my humble soul, the burdens of wickedness that are hard to bear, and draw near, weeping and crying out, Â‘Grant, pure Virgin, that I may bear the light yoke of your Son and GodÂ’.
+Cast away, my humble soul, the burdens of wickedness that are hard to bear, and draw near, weeping and crying out, ‘Grant, pure Virgin, that I may bear the light yoke of your Son and God’.
 
 Glory, Both now.
 
 **Cross-Theotokion. Same melody.**
 
-A sword passed through your heart, O All-pure, when you looked towards your Son on the Cross, and you cried out, Â‘Do not leave me childless, my Son and my God, who kept me virgin after childbirth!Â’
+A sword passed through your heart, O All-pure, when you looked towards your Son on the Cross, and you cried out, ‘Do not leave me childless, my Son and my God, who kept me virgin after childbirth!’
 
 ****
 
@@ -170,7 +170,7 @@ Glory, Both now.
 **Cross-Theotokion.
 Great is the power of your Cross.**
 
-When she saw you nailed to the Cross, my Christ, the Lamb who gave you birth, without blemish and your Mother, with weeping lamented and cried out, Â‘Do not make me childless, whom you kept pure after childbirth!Â’
+When she saw you nailed to the Cross, my Christ, the Lamb who gave you birth, without blemish and your Mother, with weeping lamented and cried out, ‘Do not make me childless, whom you kept pure after childbirth!’
 
 ON WEDNESDAY EVENING
 ====================
@@ -211,7 +211,7 @@ Aposticha of the Apostles.
 
 Your sound has gone out into all the earth, holy Apostles; you abolished the error of idols by preaching the knowledge of God; this is your good fight, blessed Saints, and so we hymn and glorify your memories.
 
-Blamelessly keeping ChristÂ’s commands, holy Apostles, freely you received, freely you give, curing the passions of our souls and bodies; and so as you have freedom to speak, implore him to have mercy on our souls.
+Blamelessly keeping Christ’s commands, holy Apostles, freely you received, freely you give, curing the passions of our souls and bodies; and so as you have freedom to speak, implore him to have mercy on our souls.
 
 ****
 
@@ -256,7 +256,7 @@ Glory. Both now.
 
 **Theotokion. Great is the power of your Cross.**
 
-When you saw him who was born of you hanging on the Tree, All-Blameless, you cried aloud with lamentations, Â‘My Child, so deeply loved, where has your beauty set, that beauty bearing light which gave beauty to the human race?Â’
+When you saw him who was born of you hanging on the Tree, All-Blameless, you cried aloud with lamentations, ‘My Child, so deeply loved, where has your beauty set, that beauty bearing light which gave beauty to the human race?’
 
 ****
 
@@ -276,7 +276,7 @@ Glory. Both now.
 
 **Cross-Theotokion.**
 
-Â‘The world has found mercy, O Word, by your Crucifixion, creation has been enlightened, the nations have found salvation, O MasterÂ’, cried the All-pure Virgin, Â‘but now I am wounded, as I see your voluntary passionÂ’.
+‘The world has found mercy, O Word, by your Crucifixion, creation has been enlightened, the nations have found salvation, O Master’, cried the All-pure Virgin, ‘but now I am wounded, as I see your voluntary passion’.
 
 ON FRIDAY EVENING
 =================
@@ -341,7 +341,7 @@ Blessed are those whom you have chosen and taken; they will dwell in your courts
 
 Of the Dead.
 
-All things human which do not survive after death are vanity; wealth does not endure, glory does journey with us; for when death arrives all these things vanish. And so let us cry out to Christ the immortal King, Â‘Give rest to those who have passed from us to the place where all who rejoice in you have their dwellingÂ’.
+All things human which do not survive after death are vanity; wealth does not endure, glory does journey with us; for when death arrives all these things vanish. And so let us cry out to Christ the immortal King, ‘Give rest to those who have passed from us to the place where all who rejoice in you have their dwelling’.
 
 Glory. Both now.
 
@@ -352,6 +352,6 @@ Mother of God, holy among women, Mother without bridegroom, intercede with the K
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

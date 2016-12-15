@@ -3,7 +3,7 @@
 Introductory Note
 -----------------
 
-The first Proemium and first Strophe are still used in the Triodion for [Palm Sunday](palm.md) as Kontakion and Ikos. The second Proemium is used as the YpakoÃ¯ for the feast. It is written in the Plagal of the 2nd \[6th\] Tone. There is a problem over the refrain, which the Oxford editors take to be ‘Blessed are you who come to call back Adam’. For reasons that are set in the notes to a number of stanzas, I take it to be simply, ‘Who come to call back Adam’. The basic texts from the Gospel are Matt. 21,1-17; Mark 11,1-18; Luke 19,29-46; John 12,12-19.
+The first Proemium and first Strophe are still used in the Triodion for [Palm Sunday](palm.md) as Kontakion and Ikos. The second Proemium is used as the Ypakoï for the feast. It is written in the Plagal of the 2nd \[6th\] Tone. There is a problem over the refrain, which the Oxford editors take to be ‘Blessed are you who come to call back Adam’. For reasons that are set in the notes to a number of stanzas, I take it to be simply, ‘Who come to call back Adam’. The basic texts from the Gospel are Matt. 21,1-17; Mark 11,1-18; Luke 19,29-46; John 12,12-19.
 
 In order not to clutter up the text with notes, I have linked them to the text by hyperlinks. As there are not many notes to each stanza, it should be clear to which note each hyperlink refers.
 
@@ -258,6 +258,6 @@ Show me to be a [skilled cultivator](notes.md) to cry, ‘Blessed are you
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

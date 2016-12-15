@@ -235,13 +235,13 @@ He preached the word of God to Medes and Parthians, Persians and Indians; he was
 
 From his journeys \[which occupy five pages of small print in the Menaion\].
 
-On the same day, commemoration of the holy Martyr, EroiÃ¯s.
+On the same day, commemoration of the holy Martyr, Eroiïs.
 
 ****
 
 Verses.
 
-Virgin ErotiÃ¯s they burn with fire
+Virgin Erotiïs they burn with fire
 
 Who was on fire with the love of Christ.
 
@@ -370,6 +370,6 @@ At the Liturgy, the Typika and rest as usual.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

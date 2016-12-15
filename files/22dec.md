@@ -259,13 +259,13 @@ Verses.
 Fire Theodoti with her loved ones bears,
 Burning with fiercer love for God than fire.
 
-On the same day, Commemoration of the holy Martyr ZoÃ¯los.
+On the same day, Commemoration of the holy Martyr Zoïlos.
 
 ****
 
 Verses.
 
-ZoÃ¯los, leaving passing life \[zoÃª\] behind,
+Zoïlos, leaving passing life \[zoê\] behind,
 In land of living found enduring life.
 
 On the same day the Opening of the doors of the Great Church of God.
@@ -408,6 +408,6 @@ The rest of the Office of Matins as usual and Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

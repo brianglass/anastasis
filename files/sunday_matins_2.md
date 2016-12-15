@@ -10,6 +10,6 @@ This is the full text of Sunday Matins with a fairly full annotation, many of th
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

@@ -166,6 +166,6 @@ Taking from your most pure womb, O Mother of God, mind and soul and the matter o
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

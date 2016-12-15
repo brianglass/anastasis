@@ -1063,7 +1063,7 @@ Reader:
 
 Amen. ****
 
-Then the Kontakion of the day. On Sunday the YpakoÃ¯.
+Then the Kontakion of the day. On Sunday the Ypakoï.
 
 Lord, have mercy.
 
@@ -1327,6 +1327,6 @@ If there is no Apolytikion or Kontakion given in the Menaion, then those for the
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -251,6 +251,6 @@ At the Liturgy, see the Apostle and Gospel and Communion for the 26th of October
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

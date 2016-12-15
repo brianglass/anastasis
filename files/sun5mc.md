@@ -45,7 +45,7 @@ Bride without wedlock, Mother of God, who turned Eve’s grief to joy, we the fa
 
 ****
 
-After Psalm 118 the YpakoÃ¯.
+After Psalm 118 the Ypakoï.
 
 The Myrrhbearers, astounded in mind by the vision of the Angel yet enlightened in soul by the divine Resurrection, announced the good tidings to the Apostles: Tell among the nations the Lord’s Resurrection, who works with us through wonders, and grants us his great mercy.
 
@@ -500,17 +500,17 @@ AT THE LITURGY
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">The Typika and the Beatitudes.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**8.** ** The Thief on the cross, believing you to be God, O Christ, confessed you sincerely from his heart, crying, Â‘Remember me, Lord, in your kingdom!Â’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**8.** ** The Thief on the cross, believing you to be God, O Christ, confessed you sincerely from his heart, crying, ‘Remember me, Lord, in your kingdom!’</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**7.** ** Let us in harmony praise as Saviour and Master him who flowered with life for our race on the tree of the Cross, and withered up the curse that came from the tree.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**6.** ** By your death, O Christ, you destroyed the power of death, and raised up those who were dead from every age, who praise you as the true God and our Saviour.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**5. ** The holy women, as they came to your grave, were seeking to anoint you, the Giver of life, and an Angel appeared to them crying, Â‘The Lord has risen!Â’**</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**5. ** The holy women, as they came to your grave, were seeking to anoint you, the Giver of life, and an Angel appeared to them crying, ‘The Lord has risen!’**</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**4. ** When you were crucified, O Christ, between two condemned thieves, the one blaspheming you was justly condemned, but the other, confessing you, dwelt in Paradise.**</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**3.** ** The holy women as they came to the choir of Apostles cried out, Â‘Christ has risen! Let us worship him as Master and CreatorÂ’.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**3.** ** The holy women as they came to the choir of Apostles cried out, ‘Christ has risen! Let us worship him as Master and Creator’.</span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Glory.</span>
 
@@ -526,7 +526,7 @@ AT THE LITURGY
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">Resurrection Kontakion.</span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">You descended into Hell, my Saviour, and having smashed the gates as all-powerful, as Creator you raised the dead with you and smashed the sting of death, O Christ, and as Lover of mankind delivered Adam from the curse. Therefore we all cry to you, Â‘Save us, O Lord!Â’</span><span style="font-size:13.0pt;
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">You descended into Hell, my Saviour, and having smashed the gates as all-powerful, as Creator you raised the dead with you and smashed the sting of death, O Christ, and as Lover of mankind delivered Adam from the curse. Therefore we all cry to you, ‘Save us, O Lord!’</span><span style="font-size:13.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold"></span>
 
  
@@ -534,6 +534,6 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-wei
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -23,7 +23,7 @@ Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your nameÂ’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
+All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -97,7 +97,7 @@ And immediately we read from The Ladder.
 
 And after the reading
 
-For your holy nameÂ’s sake do not finally reject us, do not annul your covenant, do not take your mercy from us for the sake of Abraham, your beloved, and for the sake of Isaac, your servant, and Israel, your holy one.
+For your holy name’s sake do not finally reject us, do not annul your covenant, do not take your mercy from us for the sake of Abraham, your beloved, and for the sake of Isaac, your servant, and Israel, your holy one.
 
 ****
 
@@ -159,7 +159,7 @@ Blessed are the pure in heart, for they shall see God.
 
 Blessed are the peacemakers, for they shall be called the children of God.
 
-Blessed are those who are persecuted for justiceÂ’s sake, for theirs is the kingdom of heaven.
+Blessed are those who are persecuted for justice’s sake, for theirs is the kingdom of heaven.
 
 Blessed are you when men shall revile you and persecute you and say all manner of evil against you falsely for my sake.
 
@@ -245,7 +245,7 @@ You have taken, Lord, the sure, the God-inspired heralds, the high peak of your 
 
 And of Saint Nicholas. 3rd Tone.
 
-In Myra, holy one, you were proved a true priest, for you fulfilled, venerable Father, the gospel of Christ, you laid down your life for you people, you saved the innocent from death; therefore you have been hallowed as a great initiate of GodÂ’s grace.
+In Myra, holy one, you were proved a true priest, for you fulfilled, venerable Father, the gospel of Christ, you laid down your life for you people, you saved the innocent from death; therefore you have been hallowed as a great initiate of God’s grace.
 
 ****
 
@@ -277,7 +277,7 @@ Lord, have mercy (
 
 Priest:
 
-May God take pity on usÂ… ****
+May God take pity on us… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
@@ -285,7 +285,7 @@ We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion
 
 Prayer of Saint Basil the Great
 
-Master, Lord Jesus Christ, our God, who have long endured our transgressions, and brought us to this hour in which hanging on the life-giving tree you showed the good Thief the way into Paradise and destroyed death by death, have mercy also on us sinners and your unworthy servants. For we have sinned and trespassed and are not worthy to raise our eyes and look on the height of heaven; because we have abandoned the way of your justice and walked in the will of our hearts. But we implore your unbounded goodness: spare us, O Lord, according to the multitude of your mercy, and save us for your holy nameÂ’s sake, for our days have been wasted in vanity. Rescue us from the hand of our opponent, forgive us our sins, slay our carnal will, that we, having put off the old man, may put on the new, and live for you, our Master and benefactor; and that thus following your precepts we may reach eternal rest, where those who rejoice have their dwelling. For you are the true joy and gladness of those who love you, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and always and to ages of ages. Amen.
+Master, Lord Jesus Christ, our God, who have long endured our transgressions, and brought us to this hour in which hanging on the life-giving tree you showed the good Thief the way into Paradise and destroyed death by death, have mercy also on us sinners and your unworthy servants. For we have sinned and trespassed and are not worthy to raise our eyes and look on the height of heaven; because we have abandoned the way of your justice and walked in the will of our hearts. But we implore your unbounded goodness: spare us, O Lord, according to the multitude of your mercy, and save us for your holy name’s sake, for our days have been wasted in vanity. Rescue us from the hand of our opponent, forgive us our sins, slay our carnal will, that we, having put off the old man, may put on the new, and live for you, our Master and benefactor; and that thus following your precepts we may reach eternal rest, where those who rejoice have their dwelling. For you are the true joy and gladness of those who love you, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and always and to ages of ages. Amen.
 
 ****
 
@@ -296,6 +296,6 @@ Come, let us worship (***x3***) **and 3 prostrations and we chant Psalm 103 of V
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

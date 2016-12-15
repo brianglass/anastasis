@@ -281,7 +281,7 @@ Come let us drink a new drink, not one marvellously brought forth from a barren 
 
 ****
 
-The YpakoÃ¯. Tone 6.
+The Ypakoï. Tone 6.
 
 As you were present in the midst of your Disciples, O Christ, and gave them peace; come, be with us too and save us.
 
@@ -652,6 +652,6 @@ Blessed be the name of the Lord, **as usual.**
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

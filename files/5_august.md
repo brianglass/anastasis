@@ -80,7 +80,7 @@ font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Christ our God, 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold;font-style:normal;mso-bidi-font-style:italic">Apolytikion. Tone 4. Speedily anticipate. </span>
 
-<span style="mso-bidi-font-style:normal">Let us believers, as we radiantly celebrate the forefeast, go out to meet the Transfiguration of Christ, and let us cry, Â‘The day of joy inspired is near; the Master ascends mount Thabor to make the beauty of his Godhead blaze forthÂ’.</span>
+<span style="mso-bidi-font-style:normal">Let us believers, as we radiantly celebrate the forefeast, go out to meet the Transfiguration of Christ, and let us cry, ‘The day of joy inspired is near; the Master ascends mount Thabor to make the beauty of his Godhead blaze forth’.</span>
 
 ### <span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-weight:normal;mso-bidi-font-weight:bold">AT MATINS</span>
@@ -96,7 +96,7 @@ Glory. Both. <span style="color:red">The same.</span>
 <span style="color:red"> After the second Reading, Kathisma.
 Tone 1. The soldiers watching.</span>
 
-Let all of us believers go up to Mount Thabor together with ChristÂ’s chosen Disciples, and let us in mind contemplate his Transfiguration, and let us glorify his supreme condescension towards us, through which he grants the world eternal life.
+Let all of us believers go up to Mount Thabor together with Christ’s chosen Disciples, and let us in mind contemplate his Transfiguration, and let us glorify his supreme condescension towards us, through which he grants the world eternal life.
 
 <span style="color:red">Then the Canons of the Forefeast and of the Saint.</span>
 
@@ -151,7 +151,7 @@ font-family:&quot;Book Antiqua&quot;">You, the Master of all creation, appeared 
 font-family:&quot;Book Antiqua&quot;">Christ the sun of glory hastens to blaze forth on the mountain and to darken by his light the beacon which shines from on high. Made radiant by his beams, let us today celebrate the forefeast.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">About to fulfil the words of eternal life Christ is present; as by deeds he shows that he was well-pleased for his friends to recognize in himself the FatherÂ’s glory blazing forth.</span>
+font-family:&quot;Book Antiqua&quot;">About to fulfil the words of eternal life Christ is present; as by deeds he shows that he was well-pleased for his friends to recognize in himself the Father’s glory blazing forth.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Kathisma of the Saint.</span>
@@ -230,9 +230,9 @@ font-family:&quot;Book Antiqua&quot;">On the 5th of the month, Forefeast of the 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Verses.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">
-They execute Efsignios, ChristÂ’s friend,
+They execute Efsignios, Christ’s friend,
 Who cries until the blow: To Christ my worship!
-And on the fifth of the month EfsigniosÂ’ head with dust mingled.</span>
+And on the fifth of the month Efsignios’ head with dust mingled.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">On the same day Saints Kattidios and Kattidianos, Martyrs and blood brothers, died by being stoned.</span>
@@ -259,7 +259,7 @@ font-family:&quot;Book Antiqua&quot;">On the same day Saint Soleb the Egyptian w
 color:red">Verses.</span>
 
 If backwards, Soleb, you should spell your name,
-Â‘BelosÂ’ youÂ’ll get, instrument of your end.
+‘Belos’ you’ll get, instrument of your end.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">On the same day the holy Bishop and Martyr Fabius (or Fabian), Bishop of Rome, died by the sword.</span>
@@ -267,7 +267,7 @@ font-family:&quot;Book Antiqua&quot;">On the same day the holy Bishop and Martyr
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Verses.
 </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;">Fabius lies dead, ChristÂ’s sacrificing priest,
+&quot;Book Antiqua&quot;">Fabius lies dead, Christ’s sacrificing priest,
 New sacrifice offered to Christ by sword.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -298,7 +298,7 @@ font-family:&quot;Book Antiqua&quot;">Who would not be amazed, O Word, Sovereign
 font-family:&quot;Book Antiqua&quot;">Grant the height of a heavenly way of life and the divine brilliance of the eternal glory to your servants, who now celebrate the radiant festival of your Transfiguration; on which, blazing with light, you make radiant those who sing your praise, Christ the giver of light.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">You are light and giver of unapproachable<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[13]</span></a> and eternal light, Lord without beginning, who wrap yourself in light as in a garment; you shed light on the world when you came with flesh; and you blaze with light on the mountain revealing the imprint of the FatherÂ’s glory.</span>
+font-family:&quot;Book Antiqua&quot;">You are light and giver of unapproachable<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[13]</span></a> and eternal light, Lord without beginning, who wrap yourself in light as in a garment; you shed light on the world when you came with flesh; and you blaze with light on the mountain revealing the imprint of the Father’s glory.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Of the Saint.</span>
@@ -405,7 +405,7 @@ color:red">And Dismissal.</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[1]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Psalm 35:10. Some editions of the Menaion have a subjunctive, Â‘let us/may we seeÂ’. The Psalter has the indicative. The subjunctive in the third sticheron suggests that the original text may have had a subjunctive here also. </span>
+<a href="#_ftnref1" id="_ftn1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[1]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Psalm 35:10. Some editions of the Menaion have a subjunctive, ‘let us/may we see’. The Psalter has the indicative. The subjunctive in the third sticheron suggests that the original text may have had a subjunctive here also. </span>
 
 <a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[2]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:12.</span>
 
@@ -427,7 +427,7 @@ color:red">And Dismissal.</span>
 
 <a href="#_ftnref11" id="_ftn11"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[11]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Moses died before entering the Promised Land; Elias was taken up alive into heaven on a fiery chariot.</span>
 
-<a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[12]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> An allusion to the tradition that fire appeared in the Jordan at the moment of ChristÂ’s baptism.</span>
+<a href="#_ftnref12" id="_ftn12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[12]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> An allusion to the tradition that fire appeared in the Jordan at the moment of Christ’s baptism.</span>
 
 <a href="#_ftnref13" id="_ftn13"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-family: Book Antiqua">[13]</span></a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. 1 Timothy 6:16.</span>
 
@@ -444,6 +444,6 @@ color:red">And Dismissal.</span>
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

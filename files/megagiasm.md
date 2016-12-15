@@ -184,7 +184,7 @@ Therefore, O King, lover of mankind, be present now too through the visitation o
 
 **x3**)
 
-And give to it the grace of redemption and the blessing of Jordan. Make it a source of incorruption, a gift of sanctification, a deliverance from sins, an averting of diseases, unapproachable by hostile powers, filled with angelic strength. That all who draw from it and partake of it may have it for cleansing of souls and bodies, for healing of passions, for sanctification of homes, for every suitable purpose. For you are our God, who through water and Spirit renewed our nature made old by sin. You are our God, who in the days of NoÃ« drowned sin through the water of the flood. You are our God, who through Moses freed the Hebrew race from the slavery of Pharao through the sea. You are our God who split open the rock in the desert, and waters rushed out and torrents flooded down, and you satisfied your thirsty people. You are our God, who through Elias turned Israel from the error of Baal.
+And give to it the grace of redemption and the blessing of Jordan. Make it a source of incorruption, a gift of sanctification, a deliverance from sins, an averting of diseases, unapproachable by hostile powers, filled with angelic strength. That all who draw from it and partake of it may have it for cleansing of souls and bodies, for healing of passions, for sanctification of homes, for every suitable purpose. For you are our God, who through water and Spirit renewed our nature made old by sin. You are our God, who in the days of Noë drowned sin through the water of the flood. You are our God, who through Moses freed the Hebrew race from the slavery of Pharao through the sea. You are our God who split open the rock in the desert, and waters rushed out and torrents flooded down, and you satisfied your thirsty people. You are our God, who through Elias turned Israel from the error of Baal.
 
 And now, Master, do you yourself sanctify this water by your Holy Spirit. (
 
@@ -279,6 +279,6 @@ Then the full Dismissal.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

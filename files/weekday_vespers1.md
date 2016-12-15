@@ -12,23 +12,23 @@ italic">Lord, I have cried,</span> <span style="color:red">Prosomia of the Lord.
 
 Give me the thought of repentance, give too the desire for compunction to my lowly soul; rouse me from the sleep of dread hardness, drive away the darkness of sloth, and banish the fog of despair, that I, poor wretch, may raise my head and cling to you, O Word, and walk in your wishes.
 
-O Christ, alone easy to be entreated, comÂ­passionate Word, alone supremely good and alone forbearing, I fall before you, I fervently implore you; in supÂ­plication I cry to you, Â‘I have sinned, save, save me, the Prodigal,<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[1]</span></a> in your compassion, that with thanksgiving I may cry: Lord, give me pardon, and I shall walk in your goodnessÂ’.
+O Christ, alone easy to be entreated, com­passionate Word, alone supremely good and alone forbearing, I fall before you, I fervently implore you; in sup­plication I cry to you, ‘I have sinned, save, save me, the Prodigal,<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[1]</span></a> in your compassion, that with thanksgiving I may cry: Lord, give me pardon, and I shall walk in your goodness’.
 
-All that I have sinned against you, my God,<span style="mso-spacerun: yes">  </span>in words and deeds and in desires, all I confess, now I tell you all; for I have passed through the day and the whole time, but reached the night, full of wickedness; therefore I fall before you as I cry, Â‘My Master, Master and Saviour, I have sinned, pardon and save meÂ’.
+All that I have sinned against you, my God,<span style="mso-spacerun: yes">  </span>in words and deeds and in desires, all I confess, now I tell you all; for I have passed through the day and the whole time, but reached the night, full of wickedness; therefore I fall before you as I cry, ‘My Master, Master and Saviour, I have sinned, pardon and save me’.
 
 <span style="color:red">Others, of the Bodiless Powers. Same melody.</span>
 
-Come, let us praise in spiritual songs the princes of the Angels, for, as leaders of all the Bodiless choirs, they are both called Chief Captains and Archangels; for Gabriel is ruler of grace,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[2]</span></a> and the prince of Archangels, Michael, is recognized as comÂ­mander of law and those before Moses.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[3]</span></a>
+Come, let us praise in spiritual songs the princes of the Angels, for, as leaders of all the Bodiless choirs, they are both called Chief Captains and Archangels; for Gabriel is ruler of grace,<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[2]</span></a> and the prince of Archangels, Michael, is recognized as com­mander of law and those before Moses.<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[3]</span></a>
 
 Hail, beacon of the Bodiless Powers, hail, Chief Captain of the immaterial choir, initiate and chief messenger of the ineffable mysteries of God, all-blessed Michael, eye-witness of things on high. We entreat you to rescue from all difficulties and dangers those who have recourse to you. For we all present you to the Lord as our kindly defender.
 
-Hail, Captain of the Angels, initiate of ineffable mysteries and minister of God; exalted prince of the Bodiless Choirs, most glorious Gabriel; for you appeared as servant of dread mysteries of the secret, mystical counsel; for you came down to announce to us beforehand for our salvaÂ­tion the supreme condescension of God towards humankind.
+Hail, Captain of the Angels, initiate of ineffable mysteries and minister of God; exalted prince of the Bodiless Choirs, most glorious Gabriel; for you appeared as servant of dread mysteries of the secret, mystical counsel; for you came down to announce to us beforehand for our salva­tion the supreme condescension of God towards humankind.
 
 <span style="color:red">Aposticha of Compunction.</span>
 
 I have sinned against you, O Saviour, like the Prodigal son, receive me repentant, my Father, and have mercy on me, O God<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[4]</span></a>.
 
-I cry to you, Christ Saviour, with the words of the Publican, Â‘Be merciful to me, as to him, and have mercy on me, O GodÂ’<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[5]</span></a>.
+I cry to you, Christ Saviour, with the words of the Publican, ‘Be merciful to me, as to him, and have mercy on me, O God’<a href="#_ftn5" id="_ftnref5"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[5]</span></a>.
 
 <span style="color:red">Verse 1.</span> To you I lift up my eyes, to you who are enthroned in the heavens. As the eyes of servants look to the hand of their master: or as the eyes of a maid toward the hand of her mistress, so our eyes look to the Lord our God: until he show us his mercy.
 
@@ -51,9 +51,9 @@ italic">Lord, I have cried</span> <span style="color:red">Prosomia of the Lord.<
 
 O Christ, alone without sin, alone forbearing, alone source of goodness, see my constraint, see my affliction and wipe away all the scars of my wounds; and in mercy save your servant; that when I have driven the clouds of despondency far away I may glorify you, my Saviour supremely good.
 
-Look, O my miserable soul, see your deeds, how utterly defiled they are; see your nakedness, alas, and your isolation, for you are about to be parted from God and Angels and cast into unending torment. Be vigilant, rouse yourself, hurry, cry out, Â‘I have sinned, O Saviour, grant me pardon and save meÂ’.
+Look, O my miserable soul, see your deeds, how utterly defiled they are; see your nakedness, alas, and your isolation, for you are about to be parted from God and Angels and cast into unending torment. Be vigilant, rouse yourself, hurry, cry out, ‘I have sinned, O Saviour, grant me pardon and save me’.
 
-I have dreadfully defiled my body, I have corrupted my soul and heart with foul thoughts; I have wounded all my senses, I have befouled my eyes, stained my ears, polluted my tongue with words, and I possess all that is base. Therefore I fall down before you and cry, Â‘Master Christ, I have sinned, I have sinned. Pardon and save meÂ’.
+I have dreadfully defiled my body, I have corrupted my soul and heart with foul thoughts; I have wounded all my senses, I have befouled my eyes, stained my ears, polluted my tongue with words, and I possess all that is base. Therefore I fall down before you and cry, ‘Master Christ, I have sinned, I have sinned. Pardon and save me’.
 
 <span style="color:red">Others of the Forerunner. Same melody.</span>
 
@@ -97,7 +97,7 @@ You accept judgement, only King, who are going to judge the universe at your com
 
 <span style="color:red">Others, of the Mother of God. When from the Tree.</span>
 
-Wealth of the beggared, delight and refuge of the poor and hope of orphans are you, Sovereign Lady, and we glorify you, crying out in affliction, Â‘Holy of Holies, come now and rescue your servants from all assaults of demons, dread punishment and eternal condemnationÂ’.
+Wealth of the beggared, delight and refuge of the poor and hope of orphans are you, Sovereign Lady, and we glorify you, crying out in affliction, ‘Holy of Holies, come now and rescue your servants from all assaults of demons, dread punishment and eternal condemnation’.
 
 Truly the multitudes of my offences engulf my head, Pure Maiden, my iniquities are greatly multiplied and I, wretch and uncorrected, have acquired insupportable and numberless burdens. Therefore, only correction of sinners, by your fervent intercession, come now and save me.
 
@@ -105,7 +105,7 @@ As to a harbour I hasten under your holy protection, pure Virgin Mother, and I b
 
 Glory. Both now.<span style="color:red"> Cross-Theotokion. Same melody.</span>
 
-Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn12" id="_ftnref12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[12]</span></a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, Â‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionateÂ’.
+Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn12" id="_ftnref12"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[12]</span></a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, ‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionate’.
 
 <span style="color:red">Aposticha of the Cross.</span>
 
@@ -115,11 +115,11 @@ You have revealed the Tree of your Cross as a tree of life,<a href="#_ftn14" id=
 
 <span style="color:red">Of the Martyrs.</span>
 
-Choirs of Martyrs stood before the tyrants saying, Â‘We are soldiers for the King of powers. Even if you destroy us by fire and torments, we will not deny the power of the TrinityÂ’.
+Choirs of Martyrs stood before the tyrants saying, ‘We are soldiers for the King of powers. Even if you destroy us by fire and torments, we will not deny the power of the Trinity’.
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span><span style="color:red"> Cross-Theotokion. When from the Tree.</span>
 
-Having endured many pains by the crucifixion of your Son and God, with tears and lamentations you groaned, O Immaculate, Â‘Alas, my sweetest Child, how do you suffer, wishing to redeem those born of earth from Adam?Â’ Therefore, all-holy Virgin, we entreat you in faith, make him merciful to us.
+Having endured many pains by the crucifixion of your Son and God, with tears and lamentations you groaned, O Immaculate, ‘Alas, my sweetest Child, how do you suffer, wishing to redeem those born of earth from Adam?’ Therefore, all-holy Virgin, we entreat you in faith, make him merciful to us.
 
 ##### <span style="font-size:18.0pt;
 mso-bidi-font-size:10.0pt;font-weight:normal;mso-bidi-font-weight:bold">ON WEDNESDAY EVENING</span>
@@ -131,7 +131,7 @@ italic">Lord, I have cried<span style="color:red">,</span></span> <span style="c
 
 When the Word had appeared upon earth, godly Apostles, you were seen like trumpets, you made his salvation manifest to all and you gathered peoples to the inspired Faith, laying waste the fortresses of error. Therefore, blessed ones, you have worthily received the honours and crowns of victory.
 
-Companies of Angels, truly rejoicing, clapped their hands on high as they saw the sacred Disciples proclaiming with boldness the incarnation of the Lord and crying out to all, Â‘This is our God, who is before the ages; he has willingly taken flesh, yet he is enthroned with the Father and equal in honour with the SpiritÂ’.
+Companies of Angels, truly rejoicing, clapped their hands on high as they saw the sacred Disciples proclaiming with boldness the incarnation of the Lord and crying out to all, ‘This is our God, who is before the ages; he has willingly taken flesh, yet he is enthroned with the Father and equal in honour with the Spirit’.
 
 Fishermen of the inhabited world, speedily rescue my soul, caught on the hook by the devices of the foe, and save me now, who am in despair, giving me strength, godly Apostles, to bear fruits of repentance, so that I may not experience the fire of hell, but be found worthy of the Kingdom of heaven.
 
@@ -151,7 +151,7 @@ You are the whole strength of our life and our refuge, Immaculate Mother. You ar
 
 You have magnified the names of the Princes of the Apostles in the inhabited world, O Saviour. They learned the ineffable mysteries of heaven, they gave healings to those on earth, and their shadows<a href="#_ftn15" id="_ftnref15"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[15]</span></a> alone cured the passions. The one who was a fisherman worked wonders; the one who was a Jew taught the doctrines of grace. Through them, O Compassionate, grant us your great mercy.
 
-We who are warred upon from every side and take refuge in you, who alone are truly God, offer you the words of your Disciples as we say, Â‘Save us, Teacher, we are perishingÂ’.<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[16]</span></a> Show now also to our enemies, we beg, that you protect your people and, at the intercession of the Apostles, save them from dangers, overlooking their sins through your great goodness. Lord, glory to you.
+We who are warred upon from every side and take refuge in you, who alone are truly God, offer you the words of your Disciples as we say, ‘Save us, Teacher, we are perishing’.<a href="#_ftn16" id="_ftnref16"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[16]</span></a> Show now also to our enemies, we beg, that you protect your people and, at the intercession of the Apostles, save them from dangers, overlooking their sins through your great goodness. Lord, glory to you.
 
 <span style="color:red">Of the Martyrs.</span>
 
@@ -159,7 +159,7 @@ Great the glory that you gained through faith, O Saints! For not only did you de
 
 <span style="mso-bidi-font-style:italic">Glory. Both now. </span><span style="color:red">Theotokion. When from the Tree.</span>
 
-You protect all those who with faith take refuge in your mighty hand, loving Lady; for we sinners, bowed down by many faults, have no other constant mediation but you before God in dangers and afflictions, Mother of God most high. Therefore we fall down before you, Â‘Deliver your servants from every disasterÂ’.
+You protect all those who with faith take refuge in your mighty hand, loving Lady; for we sinners, bowed down by many faults, have no other constant mediation but you before God in dangers and afflictions, Mother of God most high. Therefore we fall down before you, ‘Deliver your servants from every disaster’.
 
 <span style="text-transform: uppercase">on Thursday evening</span>
 ------------------------------------------------------------------
@@ -173,13 +173,13 @@ Saviour, when you were nailed to the Cross, the sun, seeing it, was darkened fro
 
 The all-evil serpent was utterly cast down to earth, utterly routed and lay a lifeless corpse, when you were lifted up on the Tree, O Lover of mankind. Adam is freed from the curse, and he, before condemned, is saved.<a href="#_ftn18" id="_ftnref18"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[18]</span></a> Therefore, we beg, save us too, take pity on all and make us worthy of your Kingdom.<span style="font-family: Times New Roman; letter-spacing: 0pt"> </span>
 
-When, by a Tree, the lawless people, slew you, the life of all, O Saviour, then all creation trembled with fear, the palaces of Hell and the might of death were utterly destroyed by your divine power. Then too Adam the forefather cried out to you with joy, Â‘Glory to your condescension, O Lover of humankindÂ’.
+When, by a Tree, the lawless people, slew you, the life of all, O Saviour, then all creation trembled with fear, the palaces of Hell and the might of death were utterly destroyed by your divine power. Then too Adam the forefather cried out to you with joy, ‘Glory to your condescension, O Lover of humankind’.
 
 <span style="color:red">Of the Mother of God. Same melody.</span>
 
 Assent to the prayers of your suppliants, Pure Virgin, and grant us springs of tears, that we may wash away the stains of our offences, O All-blameless, and quench the flame of everlasting and most bitter fire. For you fulfil the requests of those who with their whole heart call on you, the Mother of the Master.
 
-Storm-tossed by a tempest of contrary thoughts and by lifeÂ’s waves, borne hither and thither by disordered spirits of the dread ruler of this world,<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[19]</span></a> I cry to you, O Virgin, Â‘Hasten to rescue me from the dangers that hold me fastÂ’, so that with a thankful heart I may proclaim your mighty deeds to all the faithful, O Full of GodÂ’s grace.
+Storm-tossed by a tempest of contrary thoughts and by life’s waves, borne hither and thither by disordered spirits of the dread ruler of this world,<a href="#_ftn19" id="_ftnref19"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[19]</span></a> I cry to you, O Virgin, ‘Hasten to rescue me from the dangers that hold me fast’, so that with a thankful heart I may proclaim your mighty deeds to all the faithful, O Full of God’s grace.
 
 Pure Sovereign Lady, see my weakness and the misery of my wretched soul and the affliction of my heart, and scatter the counsels of invisible foes, who assail me and make fearful war on me. For you, who gave birth to God, can grant redemption to those in mortal dangers.
 
@@ -195,7 +195,7 @@ The Champions did not long for earthly pleasure and so were found worthy of heav
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Cross-Theotokion. When from the Tree.</span>
 
-Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[22]</span></a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, Â‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionateÂ’.
+Pure Virgin, when you saw the ripe grape Cluster<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[22]</span></a> that you had bore unhusbanded in your womb hanging upon the Tree, lamenting you bewailed him and cried out, ‘My Child, who drop down sweetness; Benefactor, through whom may all the drunkenness of the passions be abolished by divine consolations, through me who gave you birth, for you are compassionate’.
 
 <span style="text-transform:none"></span>
 
@@ -215,11 +215,11 @@ Consider in your mind, my soul, that most dreaded hour of the judgement, when fe
 
 <span style="color:red">Others, of the Mother of God. Same melody.</span>
 
-Wholly enslaved since my youth to shameful passions and great depravity, I have completely blackened that which is in GodÂ’s image<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[25]</span></a> and I quail, All-praised Lady, at the judgement to come, when I shall stand before your Son and God. Now therefore, before the end, Pure Virgin, give me cleansing of my passions and redemption of offences.
+Wholly enslaved since my youth to shameful passions and great depravity, I have completely blackened that which is in God’s image<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[25]</span></a> and I quail, All-praised Lady, at the judgement to come, when I shall stand before your Son and God. Now therefore, before the end, Pure Virgin, give me cleansing of my passions and redemption of offences.
 
 I tremble at the judgement seat, the eternal penalty of the fire, the sentence, against which there is truly no appeal, the gnashing of teeth<a href="#_ftn26" id="_ftnref26"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[26]</span></a> and the savagery of the worm that does not sleep,<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[27]</span></a> All-blameless Virgin. Therefore in anguish of heart I implore you to deliver me from the fearful condemnation.
 
-When my soul is about to be forcibly parted from my bodyÂ’s limbs, then stand by my side and scatter the counsels of my bodiless foes and smash the teeth of those who implacably seek to swallow me down, so that I may pass unhindered through the rulers of darkness who wait in the air,<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[28]</span></a> O Bride of God.
+When my soul is about to be forcibly parted from my body’s limbs, then stand by my side and scatter the counsels of my bodiless foes and smash the teeth of those who implacably seek to swallow me down, so that I may pass unhindered through the rulers of darkness who wait in the air,<a href="#_ftn28" id="_ftnref28"><span class="MsoFootnoteReference" style="mso-special-character: footnote; mso-bidi-font-size: 10.0pt">[28]</span></a> O Bride of God.
 
 <span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Theotokion.</span>
 
@@ -227,11 +227,11 @@ The shadow of the law<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteRe
 
 <span style="color:red">Aposticha of the Martyrs.</span>
 
-As the holy Martyrs intercede for us and sing ChristÂ’s praises, all error has ended and the human race is saved by faith.
+As the holy Martyrs intercede for us and sing Christ’s praises, all error has ended and the human race is saved by faith.
 
 <span style="color:red">Verse 1:</span> ** God is wonderful in his Saints.
 
-Choirs of Martyrs stood against tyrants, saying, Â‘We soldier for the King of powers; though you destroy us by fire and torments, we shall not deny the power of the TrinityÂ’.
+Choirs of Martyrs stood against tyrants, saying, ‘We soldier for the King of powers; though you destroy us by fire and torments, we shall not deny the power of the Trinity’.
 
 <span style="color:red">Verse 2:</span> For the Saints in his land the Lord has done wonders.
 
@@ -253,7 +253,7 @@ All my hope I place in you, O Mother of the light; guard me beneath your protect
 footnote">[1]</span></a> Luke 15,18.
 
 <a href="#_ftnref2" id="_ftn2"><span class="MsoFootnoteReference" style="mso-special-character:
-footnote">[2]</span></a> Cf. John 1,17 and Luke 1,28 Â‘Hail, full of graceÂ’.
+footnote">[2]</span></a> Cf. John 1,17 and Luke 1,28 ‘Hail, full of grace’.
 
 <a href="#_ftnref3" id="_ftn3"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[3]</span></a> Cf. John 1,17.
@@ -356,6 +356,6 @@ footnote">[34]</span></a> Cf. Psalm 117,15.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

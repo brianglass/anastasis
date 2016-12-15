@@ -26,7 +26,7 @@ The corruption of the passions tyrannises over me and clouds the pupils of my he
 
 The Evil One, who at first shone with you as the Morning Star, had the same degree of glory as you, Chief Captains. But out of evil the opponent was borne down to earth and became murky in darkness, and he was eager to dash me down with him, I who had been honoured with the image of the Maker. Nevertheless, though I fell headlong, Christ raised me up. Appear then for me in my wretchedness as defenders and providers and wise protectors, asking also for his great mercy.
 
-I should have become in accordance with GodÂ’s image and been numbered with you, and not, alas, bowed down entirely to the evil foe; but by the advice of the boaster I did not rival you, I spurned the commandment and fell from the honour of the Maker, O Archangels, and I am dragged down by slavery. Nevertheless, seeing me wholly yielded to the passions, give me your hand to the path which bears me upwards, as you beg that I may find salvation and the ancient glory of my beauty.
+I should have become in accordance with God’s image and been numbered with you, and not, alas, bowed down entirely to the evil foe; but by the advice of the boaster I did not rival you, I spurned the commandment and fell from the honour of the Maker, O Archangels, and I am dragged down by slavery. Nevertheless, seeing me wholly yielded to the passions, give me your hand to the path which bears me upwards, as you beg that I may find salvation and the ancient glory of my beauty.
 
 Glory. Both now.
 
@@ -62,7 +62,7 @@ Glory. Both now.
 
 **Theotokion.**
 
-Fearful, marvellous and great the mystery! The Uncontainable was contained in a womb, and the Mother after child-birth remained still a virgin; for she gave birth to God, incarnate from her. To him let us cry, to him let us speak our praise, as with the Angels we sing out: Â‘Holy are you, Christ God, who became man for our sake; glory to you!Â’
+Fearful, marvellous and great the mystery! The Uncontainable was contained in a womb, and the Mother after child-birth remained still a virgin; for she gave birth to God, incarnate from her. To him let us cry, to him let us speak our praise, as with the Angels we sing out: ‘Holy are you, Christ God, who became man for our sake; glory to you!’
 
 ON MONDAY EVENING
 
@@ -86,7 +86,7 @@ Others, of the Forerunner. Same melody.
 
 A violent and most dreadful storm of the tempest of the passions of my heart has been poured out and overflows and forces me into a gloomy deep of harmful despair. With your invisible oversight appear and with the strength of your revered compassion dry it up and make it finally disappear, granting me copious streams, honoured Saint, to water my mind and intellect and all my understanding. Through which, O Forerunner, grant that pardon and salvation blossom for me.
 
-I have entrusted my whole heart and mind to you, wise Forerunner. Become for me fervent protector and hope of salvation, helper and guard, rampart, safest guardian, best pilot, harbour and wall, delivering me from dangers, snatching me from terrible foes. For you have invincible intercession and power. You have immeasurable compassion and sympathy, All-blessed, through which protect, guard and defend me, granting me GodÂ’s great mercy.
+I have entrusted my whole heart and mind to you, wise Forerunner. Become for me fervent protector and hope of salvation, helper and guard, rampart, safest guardian, best pilot, harbour and wall, delivering me from dangers, snatching me from terrible foes. For you have invincible intercession and power. You have immeasurable compassion and sympathy, All-blessed, through which protect, guard and defend me, granting me God’s great mercy.
 
 Grant that I may enjoy your resplendent and radiant beauty, when, through my tears and repentance, I have cleansed all the filth of my way of living that is subject to the passions. For you know the love of my soul, its godly longing and measureless affection, which I have acquired in magnifying you, O Forerunner. Fulfil my desire, though my request is great, though it far exceeds the measure of my wretched deserving, and intercede with Christ who grants the world his great mercy.
 
@@ -94,7 +94,7 @@ Glory. Both now.
 
 **Theotokion. Same melody.**
 
-Stem the rivers of the passions, dry up the ocean of my sin with the stream of your intercession and bring me to anchor in the harbour of GodÂ’s divine wishes. Drown in deeps of destruction the enemies that afflict my soul every day and trouble it with unseemly pleasures. Fill my heart with joy and gladness, dispel the cloud of despair, O All-pure, as you implore Christ who grants the world his great mercy.
+Stem the rivers of the passions, dry up the ocean of my sin with the stream of your intercession and bring me to anchor in the harbour of God’s divine wishes. Drown in deeps of destruction the enemies that afflict my soul every day and trouble it with unseemly pleasures. Fill my heart with joy and gladness, dispel the cloud of despair, O All-pure, as you implore Christ who grants the world his great mercy.
 
 ****
 
@@ -138,15 +138,15 @@ Of the Mother of God. Same melody.
 
 I weep bitterly and look downcast as I consider the fearful reckoning of accounts, for from my works I have not gained the beginnings of a small defence, wretch that I am. Therefore, before the hidden end of life overtakes me, before the sickle, before death, before judgement, before I am to embark on the paths to the unquenchable fire and the exterior darkness, where that worm is found that devours those who offend, I implore you, pure Lady, give me release from faults and great mercy.
 
-As higher than all creatures you have truly become the cherubim Throne, for in you the divine Word dwelt willingly to refashion our form, and he came forth from you bearing flesh, as he is compassionate he accepted cross and passion for our sake, and as God granted Resurrection. Therefore as it transformed our condemned nature to the Creator, with thanksgiving we cry to you, Â‘By your prayers grant us pardon of faults and GodÂ’s mercyÂ’.
+As higher than all creatures you have truly become the cherubim Throne, for in you the divine Word dwelt willingly to refashion our form, and he came forth from you bearing flesh, as he is compassionate he accepted cross and passion for our sake, and as God granted Resurrection. Therefore as it transformed our condemned nature to the Creator, with thanksgiving we cry to you, ‘By your prayers grant us pardon of faults and God’s mercy’.
 
-Â‘The streams of weeping from my eyes, my Son so dearly loved, time will never have the strength to dry up whollyÂ’ cried the Pure Virgin in her grief, Â‘for you are the light that never sets, who enlighten by giving light, through whom the great lights of heaven were fixed in place and the universe was given being. What does it mean to me to see the sun now my light has set? My sweet light, the enlightenment of my face, how have you been put out? But I will wipe the pupils of your eyes with the streams of my tearsÂ’.
+‘The streams of weeping from my eyes, my Son so dearly loved, time will never have the strength to dry up wholly’ cried the Pure Virgin in her grief, ‘for you are the light that never sets, who enlighten by giving light, through whom the great lights of heaven were fixed in place and the universe was given being. What does it mean to me to see the sun now my light has set? My sweet light, the enlightenment of my face, how have you been put out? But I will wipe the pupils of your eyes with the streams of my tears’.
 
 Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
-When the Ewe-lamb saw her Lamb hastening to the slaughter, she followed eagerly, crying out to him, Â‘Where are you going, my sweetest child? For whose sake, my Christ, beloved Jesu, sinless and most merciful Lord, are you tirelessly running this course? Give a word to your servant, my Son so dearly loved, do not in silence disregard me, who awesomely gave you birth, compassionate God, Giver of life, who grant the world your great mercyÂ’.
+When the Ewe-lamb saw her Lamb hastening to the slaughter, she followed eagerly, crying out to him, ‘Where are you going, my sweetest child? For whose sake, my Christ, beloved Jesu, sinless and most merciful Lord, are you tirelessly running this course? Give a word to your servant, my Son so dearly loved, do not in silence disregard me, who awesomely gave you birth, compassionate God, Giver of life, who grant the world your great mercy’.
 
 ****
 
@@ -182,7 +182,7 @@ Sent out as sharpened arrows of the Master into the whole world, truly blessed A
 
 You were made disciples of the Word of God, who lived with mortals, one with them in substance, through his great love for humankind, and truly took their nature and made it divine. Therefore, all-wise, glorious Apostles, you followed him with godly steps and imitated his poverty, considering all things to be rubbish. And so you threw away your second tunic, taking no staff or purse on the road, and now you have been found worthy to inherit treasures in heaven.
 
-By your entreaties to the Lord, All-blessed Apostles, rescue us all from the swell of temptations, the dread sophistry of impious heresies, the bitter ill counsel of demons and humans, the twisting and storming of the fire with no light, the worm that lives for ever, the gnashing of teeth and every other punishment. Implore him that through self-mastery and the toils we may obtain the rewards of virtue and gain the inheritance of the Kingdom of heaven and GodÂ’s great mercy.
+By your entreaties to the Lord, All-blessed Apostles, rescue us all from the swell of temptations, the dread sophistry of impious heresies, the bitter ill counsel of demons and humans, the twisting and storming of the fire with no light, the worm that lives for ever, the gnashing of teeth and every other punishment. Implore him that through self-mastery and the toils we may obtain the rewards of virtue and gain the inheritance of the Kingdom of heaven and God’s great mercy.
 
 ****
 
@@ -198,7 +198,7 @@ Glory Both now.
 
 **Theotokion. Same melody.**
 
-Beset by a multitude of sins, hardened and darkened in mind, I cry to you with compunction and contrition of thoughts, Â‘Bring light to the eyes of my soul, O Immaculate, for you bore the Light that knows no evening and illumines the ends of the earth with the fires of his knowledge. Enlighten my mind, O All-blameless, with the radiance of your intercession, making me worthy to become a child of light, as you implore Christ to grant the world his great mercy.
+Beset by a multitude of sins, hardened and darkened in mind, I cry to you with compunction and contrition of thoughts, ‘Bring light to the eyes of my soul, O Immaculate, for you bore the Light that knows no evening and illumines the ends of the earth with the fires of his knowledge. Enlighten my mind, O All-blameless, with the radiance of your intercession, making me worthy to become a child of light, as you implore Christ to grant the world his great mercy.
 
 ****
 
@@ -234,13 +234,13 @@ Lord supremely good, my Saviour, wishing to put an end to the toils and shames o
 
 Foreshadowing your passion, O Christ, Moses, your great servant, lifted up the serpent of bronze, rescuing mortals from the harm of the poisonous bite of serpents, and now when you were crucified, O Long-suffering, you redeemed the world from the harm of the serpent and raised it up from earth to things of heaven. Therefore rejoicing we sing the praise of your might, Lover of mankind, and we honour and bow down to your Cross, through which all creation has found worth without toil and your great mercy.
 
-Wishing to unfasten the condition of Adam, the first-formed, in the end every pain, O sinless Christ, Lover of mankind, AdamÂ’s Fashioner, you were pierced with nails; and wounded in your divine side by the lance for our sake, you prevent the flaming sword from barring the entrance to us, your servants. Therefore as we glorify you, we sing the praise of your might, Lover of mankind, and we honour and bow down to your Cross, through which all creation has found worth without toil and your great mercy.
+Wishing to unfasten the condition of Adam, the first-formed, in the end every pain, O sinless Christ, Lover of mankind, Adam’s Fashioner, you were pierced with nails; and wounded in your divine side by the lance for our sake, you prevent the flaming sword from barring the entrance to us, your servants. Therefore as we glorify you, we sing the praise of your might, Lover of mankind, and we honour and bow down to your Cross, through which all creation has found worth without toil and your great mercy.
 
 ****
 
 Others, of the Mother of God.
 
-Having the yoke of my soul burdened with a multitude of sins and dread disasters, Sovereign Lady, I dare not raise my eyes on high, and so, bowed low to earth, I cry to you, Â‘Have mercy on me, who made God, the greatly compassionate, dawn from your womb, show me the limitless multitude of your wonders and stretching out your immaculate and godly hands to your Son, grant me salvation, O Virgin, by your intercessions.
+Having the yoke of my soul burdened with a multitude of sins and dread disasters, Sovereign Lady, I dare not raise my eyes on high, and so, bowed low to earth, I cry to you, ‘Have mercy on me, who made God, the greatly compassionate, dawn from your womb, show me the limitless multitude of your wonders and stretching out your immaculate and godly hands to your Son, grant me salvation, O Virgin, by your intercessions.
 
 A fierce storm of sins has seized my on the ocean of life, and a tempest and billow of despair pushes my heart down to the deep. Pure Maiden, by your prayers pilot my life to the calm harbour of life, to repentance, to perfect correction. See my weakness, attend to my judgement, give me hand of help as I lie sick, All-praised Virgin, who gave birth to Christ, who grants the world his great mercy.
 
@@ -250,7 +250,7 @@ Glory. Both now. **
 
 **Cross-Theotokion. Same melody.**
 
-Taking up my whole form, the Fashioner and God clothed himself, wishing to give form to AdamÂ’s fallen form of old. He was lifted up on a Cross, as though guilty, and, willingly nailed by his hands, he heals the hands weakened of old by the tree from which they ate. When the All-pure saw him she cried with loud lament, Â‘What is this great, long-suffering beyond imagination, my Son? I cannot bear to see you raised on a cross, my Christ, who hold the whole universe in the hollow of your handÂ’.
+Taking up my whole form, the Fashioner and God clothed himself, wishing to give form to Adam’s fallen form of old. He was lifted up on a Cross, as though guilty, and, willingly nailed by his hands, he heals the hands weakened of old by the tree from which they ate. When the All-pure saw him she cried with loud lament, ‘What is this great, long-suffering beyond imagination, my Son? I cannot bear to see you raised on a cross, my Christ, who hold the whole universe in the hollow of your hand’.
 
 ****
 
@@ -270,7 +270,7 @@ Glory. Both now.
 
 **Cross-Theotokion.**
 
-When I see your side pierced by a lance, my Son, I am wounded by the fearful sword of grief, and I have been wholly unable to abandon the lament from my soul, said the All-pure, as I stand in the presence of your suffering and watch your unjust slaughter, O supremely good, long-suffering Lord. Where for me are the good news, I cry amid my tears? Where is the one whose greeting to me was Â‘Rejoice!Â’ Where the ineffable child-bearing? Where is your friend Peter? But glory to your ineffable long-suffering.
+When I see your side pierced by a lance, my Son, I am wounded by the fearful sword of grief, and I have been wholly unable to abandon the lament from my soul, said the All-pure, as I stand in the presence of your suffering and watch your unjust slaughter, O supremely good, long-suffering Lord. Where for me are the good news, I cry amid my tears? Where is the one whose greeting to me was ‘Rejoice!’ Where the ineffable child-bearing? Where is your friend Peter? But glory to your ineffable long-suffering.
 
 ON FRIDAY EVENING
 
@@ -284,9 +284,9 @@ Hail, of Ascetics.
 
 Spare your servant, O Christ, when my soul is about to be parted from the body at your command, who brought into one dust and spirit by divine decree. When invisible enemies assail me with their assault and wickedness to tear me fiercely asunder and make me their fodder, deliver me count me worthy to find refreshment where sorrow and groaning have fled, where there is the torrent of delight, the sound of those who feast and rejoicing.
 
-Fearful of the final hour and the dread assault of the demons, from a soul in agony, wretch that I am, I cry to you, Â‘Smash their snares and stumbling blocks, Lord and Master, and do not me, your servant, be a victim of their perversity. See my dejection, attend to my affliction and free my wretched soul from griefs, all-compassionate God, who great the world great mercyÂ’.
+Fearful of the final hour and the dread assault of the demons, from a soul in agony, wretch that I am, I cry to you, ‘Smash their snares and stumbling blocks, Lord and Master, and do not me, your servant, be a victim of their perversity. See my dejection, attend to my affliction and free my wretched soul from griefs, all-compassionate God, who great the world great mercy’.
 
-Like the woman of Canaan, Saviour, I too cry out to you, Â‘Cure my soul and deliver it from the harm of demons and the assault of enemies who ever trouble me unnaturally, destroy that which is according to your image, Lord, and draw the judgement of my thought to senseless and blameworthy desires. Wipe them from my heart, I pray, and plant in it your purest fear and grant that I may end my life in peace in humility of soul.
+Like the woman of Canaan, Saviour, I too cry out to you, ‘Cure my soul and deliver it from the harm of demons and the assault of enemies who ever trouble me unnaturally, destroy that which is according to your image, Lord, and draw the judgement of my thought to senseless and blameworthy desires. Wipe them from my heart, I pray, and plant in it your purest fear and grant that I may end my life in peace in humility of soul.
 
 ****
 
@@ -335,6 +335,6 @@ We beg you, Blessed One, as Mother of God, intercede that we may be saved.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

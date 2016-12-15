@@ -5,10 +5,10 @@ INTRODUCTORY NOTE
 This little known Canon in preparation for Confession is to be found in the Greek *Great Euchologion.* As the concluding prayer makes clear, the Confession is in preparation for Holy Communion. The prayer might well be used as a prayer of absolution when penitents come for Confession before the Liturgy.
 
 The Gospel, from that according to St Mark, is translated from the Church<span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Â‘</span>s text. Virtually all modern editions of the Greek and all modern translations, following the reading of the best manuscripts, omit the final verse, <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">‘</span>s text. Virtually all modern editions of the Greek and all modern translations, following the reading of the best manuscripts, omit the final verse, <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;Times New Roman&quot;;
 mso-bidi-font-family:&quot;Times New Roman&quot;;mso-ansi-language:EN-GB;mso-fareast-language:
-EN-US;mso-bidi-language:AR-SA;mso-bidi-font-weight:bold">Â“But if you do not forgive, neither will your Father in heaven forgive you your offencesÂ“.</span>
+EN-US;mso-bidi-language:AR-SA;mso-bidi-font-weight:bold">“But if you do not forgive, neither will your Father in heaven forgive you your offences“.</span>
 
 ------------------------------------------------------------------------
 
@@ -55,7 +55,7 @@ color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">Ode 3. None is h
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">I have shamefully befouled my soul, Sovereign Lady, Mother of God, through numberless offences, wretch that I am. And, wholly in the grip of despair, as I am, where may I now go?</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Alas, I have defaced that which is according to GodÂ’s image by my proud disposition, wretch that I am! And where now may I go? But hasten, O Virgin help me.</span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Alas, I have defaced that which is according to God’s image by my proud disposition, wretch that I am! And where now may I go? But hasten, O Virgin help me.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">There is altogether none born in this life among mortals who has done the lawless deeds of dire licentiousness as I, loving Lady; for I have befouled divine Baptism.</span>
@@ -94,7 +94,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-wei
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">By your divine light, O Good One, heal the passions of the soul, which the Corrupter has sown in me. Deliver me from his bitter captivity. For he laughs as he sees me leaderless.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">Ode 6. Watching lifeÂ’s sea.</span>
+color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">Ode 6. Watching life’s sea.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">My life is dissolute, my soul filthy and my life utterly wretched, while I have defiled my whole body by wicked deeds. Therefore hasten, O Virgin and help me.</span>
@@ -133,7 +133,7 @@ color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">Ode 8. From the 
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Virgin Mother, who gave birth to God, one of the Trinity, and carried him in your arms, quench the fiercely flaming furnace of the passions and wash my soul with streams of tears.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">I tremble at deathÂ’s coming, O all-pure, and do not wholly fear that judgement; while I do not wholly cease from doing evils. Take pity and save me by your prayers before the end.</span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">I tremble at death’s coming, O all-pure, and do not wholly fear that judgement; while I do not wholly cease from doing evils. Take pity and save me by your prayers before the end.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Grant me never silent groans and a fount of tears, Sovereign Lady, that I may wash away my many faults and incurable wounds, so that I may reach eternal life.</span>
@@ -176,7 +176,7 @@ mso-bidi-font-weight:bold">
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold"></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">The Lord said: Have faith in God, for Amen I say to you, if anyone tells this mountain, Â‘Be taken up and thrown into the seaÂ’, and does not doubt in their heart, but believes that it will happen, it will be done for them. So I tell you, whatever you ask for in prayer, believe that you are receiving it, and it will be yours. Whenever you stand praying, forgive, if you have anything against anyone; so that your Father in heaven may also forgive you your offences. But if you do not forgive, neither will your Father in heaven forgive you your offences.</span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">The Lord said: Have faith in God, for Amen I say to you, if anyone tells this mountain, ‘Be taken up and thrown into the sea’, and does not doubt in their heart, but believes that it will happen, it will be done for them. So I tell you, whatever you ask for in prayer, believe that you are receiving it, and it will be yours. Whenever you stand praying, forgive, if you have anything against anyone; so that your Father in heaven may also forgive you your offences. But if you do not forgive, neither will your Father in heaven forgive you your offences.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">Then:</span>
@@ -216,6 +216,6 @@ EN-US;mso-bidi-language:AR-SA;mso-bidi-font-weight:bold">.</span> 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

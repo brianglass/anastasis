@@ -422,6 +422,6 @@ At the Liturgy, Typika and Beatitudes from the 3rd and 6th Odes of the Canon of 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

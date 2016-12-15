@@ -21,7 +21,7 @@ PREFACE
 
 **It should be noted that the Office of Supplication is celebrated for the living, and the departed should not be commemorated in the litanies.**
 
-**The icon of the GorgoÃ¿pikoos,** ’**She Who Responds Quickly**’**, Proctectress of the Monastery of Docheiariou on the Holy Mountain, was painted for Archimandrite Ephrem by Monk Silouan of the Monastery of St Arsenios in Chalkidiki. This icon is an icon of the Mother of God ’Hodegitria’, in whose honour the service is sung, as the penultimate Megalynarion makes clear.**
+**The icon of the Gorgoÿpikoos,** ’**She Who Responds Quickly**’**, Proctectress of the Monastery of Docheiariou on the Holy Mountain, was painted for Archimandrite Ephrem by Monk Silouan of the Monastery of St Arsenios in Chalkidiki. This icon is an icon of the Mother of God ’Hodegitria’, in whose honour the service is sung, as the penultimate Megalynarion makes clear.**
 
 ------------------------------------------------------------------------
 
@@ -31,7 +31,7 @@ TO THE MOST HOLY MOTHER OF GOD**
 
 <img src="Gorg00.gif" alt="Gorg00.gif (41200 bytes)" width="241" height="282" />
 
-****Icon of the Holy Mother of God GorgoÃ¿pikoos****
+****Icon of the Holy Mother of God Gorgoÿpikoos****
 
 Sung in every trouble and affliction of soul.
 
@@ -767,11 +767,11 @@ Through the prayers of our holy fathers, Lord Jesus Christ our God, have mercy o
 
 ------------------------------------------------------------------------
 
-The Translation is Â© by Archimandrite Ephrem and David Melling 
+The Translation is © by Archimandrite Ephrem and David Melling 
 
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

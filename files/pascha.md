@@ -151,7 +151,7 @@ Conclusion:
 
 For you are our God, and to you we give glory… ****
 
-The YpakoÃ¯. 4th Tone.
+The Ypakoï. 4th Tone.
 
 When those who were with Mary came, anticipating the dawn, and found the stone rolled away from the sepulchre, they heard from the Angel, ‘Why do you seek among the dead, as though he were mortal, the One who exists in everlasting light. See the grave clothes. Run and proclaim to the world that the Lord has been raised, and has put death to death; for he is the Son of God, who saves the human race.
 
@@ -858,7 +858,7 @@ Apolytikion. Tone 5. (Three times)
 
 ****
 
-The YpakoÃ¯. 4th Tone.
+The Ypakoï. 4th Tone.
 
 When they who were with Mary came, anticipating the dawn, and found the stone rolled away from the sepulchre, they heard from the Angel: Why do you seek among the dead, as though he were mortal man, Him who abides for in everlasting light. Behold the grave clothes. Go quickly and proclaim to the world that the Lord has risen, and has put death to death; for he is the Son of God, who saves human race.
 
@@ -1211,6 +1211,6 @@ And the rest, exactly as at Matins.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

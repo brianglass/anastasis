@@ -8,18 +8,18 @@ INTRODUCTION
 
 A number of Orthodox Christians like to make daily Vespers their evening prayer and so we hope provide over the next few weeks the texts for Vespers for weekdays in the eight tones from the Octoichos.
 
-On weekdays there are always six stichera at Â‘Lord, I have criedÂ’, of which three are normally taken from the Octoichos and three from the Menaion. In some monasteries two are taken from the first set in the Octoichos and one from the second. If the Menaia are not to hand, the General Menaion may be used, or, if one prefers, all six from the Octoichos, which was probably the older use. If the Saints of the day have their own doxastikon, then the strict Typikon orders all six stichera to be from the Menaion, with the stichera doubled.
+On weekdays there are always six stichera at ‘Lord, I have cried’, of which three are normally taken from the Octoichos and three from the Menaion. In some monasteries two are taken from the first set in the Octoichos and one from the second. If the Menaia are not to hand, the General Menaion may be used, or, if one prefers, all six from the Octoichos, which was probably the older use. If the Saints of the day have their own doxastikon, then the strict Typikon orders all six stichera to be from the Menaion, with the stichera doubled.
 
 On Friday evening the first Theotokion is always that used on the preceding Saturday evening, regardless of the tone of the doxastikon, if there is one.
 
 The Psalm verses for the Aposticha can be found on Sunday, except for those for Friday, which are special.
 
-The phrase which ends many troparia in Greek, literally Â‘the great mercyÂ‘, I translate by Â‘his/your great mercyÂ‘, because it echoes the opening of Psalm 50, which in Greek literally means Â‘the great mercy of youÂ‘; in English, Â‘your great mercyÂ‘.
+The phrase which ends many troparia in Greek, literally ‘the great mercy‘, I translate by ‘his/your great mercy‘, because it echoes the opening of Psalm 50, which in Greek literally means ‘the great mercy of you‘; in English, ‘your great mercy‘.
 
 TONE 1
 ------
 
-In Tone 1 all the stichera for Â‘Lord , I have criedÂ’ use one of two melodies, Â‘All-praised MartyrsÂ’ and Â‘Joy of the heavenly hostsÂ’. The Â‘AutomelaÂ’, or Â‘modelÂ’ troparia, can be found at the Aposticha; the former on both Wednesday and Friday and the latter on Sunday.  That on Friday occurs, somewhat curiously, among a set of Idiomela. None of the translations of these texts is metrical.
+In Tone 1 all the stichera for ‘Lord , I have cried’ use one of two melodies, ‘All-praised Martyrs’ and ‘Joy of the heavenly hosts’. The ‘Automela’, or ‘model’ troparia, can be found at the Aposticha; the former on both Wednesday and Friday and the latter on Sunday.  That on Friday occurs, somewhat curiously, among a set of Idiomela. None of the translations of these texts is metrical.
 
 ------------------------------------------------------------------------
 
@@ -34,13 +34,13 @@ mso-bidi-font-weight:bold">AT VESPERS</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt"></span>
 ===========================================================================
 
-<span style="color:red;mso-bidi-font-style:italic">At</span> Lord, I have cried, <span style="color:red;mso-bidi-font-style:italic">Stichera of ComÂ­punction, to the Lord.</span>
+<span style="color:red;mso-bidi-font-style:italic">At</span> Lord, I have cried, <span style="color:red;mso-bidi-font-style:italic">Stichera of Com­punction, to the Lord.</span>
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Tone 1. All-praised Martyrs.</span>
 
 Through goodness you brought all things into being, Lord, by your Word and Spirit<a href="#_ftn1" id="_ftnref1"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[1]</span></a>; then you made me, a rational animal<a href="#_ftn2" id="_ftnref2"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[2]</span></a>, that I might glorify your holy name, O All-powerful; but instead I ever dishonour it by my shameful deeds: but spare me I beg.
 
-<span style="letter-spacing:-.1pt">Learn, my wretched soul, of GodÂ’s kindness and the incorruptible fatherland, and ever hasten to obtain it by good works. Fix to yourself nothing of things which perish; your destiny is on high, while the body is earth and decays; may what is worse not defeat the better.</span>
+<span style="letter-spacing:-.1pt">Learn, my wretched soul, of God’s kindness and the incorruptible fatherland, and ever hasten to obtain it by good works. Fix to yourself nothing of things which perish; your destiny is on high, while the body is earth and decays; may what is worse not defeat the better.</span>
 
 <span style="letter-spacing:-.1pt">Come, my most miserable soul, with fervent tears approach the One who is supremely good; before your judgement confess all that you have done; make the Creator have pity on you, poor wretch, and ask pardon, before the Lord shuts the door against you<a href="#_ftn3" id="_ftnref3"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[3]</span></a>.</span>
@@ -51,7 +51,7 @@ footnote">[3]</span></a>.</span>
 
 <span style="letter-spacing:-.1pt">Immortal Angels of God, all-blessed ones, who from the first life have truly received life that cannot be destroyed, and, as revered beholders of eternal glory, have become filled with the light of eternal wisdom and revealed as torches in close serried ranks.</span>
 
-<span style="letter-spacing:-.1pt">Archangels, Angels, Principalities, Thrones, Dominions, six-winged Seraphim and many-eyed CheruÂ­bim, the godlike instruÂ­ments of wisdom, Powers and most godly Rulers<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a>, intercede with Christ that peace be given to our souls and his great mercy.</span>
+<span style="letter-spacing:-.1pt">Archangels, Angels, Principalities, Thrones, Dominions, six-winged Seraphim and many-eyed Cheru­bim, the godlike instru­ments of wisdom, Powers and most godly Rulers<a href="#_ftn4" id="_ftnref4"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[4]</span></a>, intercede with Christ that peace be given to our souls and his great mercy.</span>
 
 <span style="font-style:normal">Glory. Both now.</span> <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion. Same melody.</span>
 
@@ -62,9 +62,9 @@ footnote">[3]</span></a>.</span>
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Because I have sunk in the deep ocean of my transgressions, Saviour, and have been dreadfully overwhelmed by my offences, give me your hand, O God, as to Peter, and save me<a href="#_ftn6" id="_ftnref6"><span class="MsoFootnoteReference" style="mso-special-character:
 footnote">[6]</span></a>.</span>
 
-<span style="color:red;mso-bidi-font-style:italic">Verse 1.</span> ** I have lifted my eyes, to <span style="mso-bidi-font-weight:bold">you</span> who dwell in heaven. Behold as the eyes of servants look to their lordsÂ’ hands; as the eyes of a maid to her mistressÂ’s hands, so do our eyes to the Lord our God, until you take pity on us.
+<span style="color:red;mso-bidi-font-style:italic">Verse 1.</span> ** I have lifted my eyes, to <span style="mso-bidi-font-weight:bold">you</span> who dwell in heaven. Behold as the eyes of servants look to their lords’ hands; as the eyes of a maid to her mistress’s hands, so do our eyes to the Lord our God, until you take pity on us.
 
-<span style="letter-spacing:-.1pt">Because I have been condemned, O Saviour,<span style="mso-spacerun: yes">  </span>by my evil thoughts and deeds, grant me the idea of turning back, O God, that I may cry, Â‘Save me, good Benefactor, and have mercy on meÂ’.</span>
+<span style="letter-spacing:-.1pt">Because I have been condemned, O Saviour,<span style="mso-spacerun: yes">  </span>by my evil thoughts and deeds, grant me the idea of turning back, O God, that I may cry, ‘Save me, good Benefactor, and have mercy on me’.</span>
 
 <span style="color:red;mso-bidi-font-style:italic">Verse 2. </span>Have mercy on us, Lord, have mercy on us, for we have had our fill of contempt, our soul has been filled to overflowing. Let reproach be for the prosperous, and contempt for the proud.
 
@@ -86,7 +86,7 @@ mso-bidi-font-weight:bold">ON MONDAY EVENING</span>
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Tone 1. Joy of the heavenly hosts.</span>
 
-<span style="letter-spacing:-.1pt">Wholly drowned in a sea of sins and held fast in an abyss of offences, I cry to you, Master supremely good, Â‘Ransom me from troubles and from trials of many different kinds, and from the unquenchable fireÂ’.</span>
+<span style="letter-spacing:-.1pt">Wholly drowned in a sea of sins and held fast in an abyss of offences, I cry to you, Master supremely good, ‘Ransom me from troubles and from trials of many different kinds, and from the unquenchable fire’.</span>
 
 <span style="letter-spacing:-.1pt">Sunk deep in despair and full of hostile thoughts, in my wretchedness I have put all my hopes in you, O Word of God: ransom me from invisible and visible foes.</span>
 
@@ -110,12 +110,12 @@ footnote">[10]</span></a>; therefore I cry to you: Make bright my soul, darkened
 <span style="letter-spacing:
 0pt">Because the sea of my faults is great, O Saviour, and I have been drowned deep by my offences, give me your hand as once you did to Peter, save me, O God, and have mercy on me.</span>
 
-Because I have been condemned by evil ideas and deeds, O Saviour, grant me the thought of returning, O God, that I may cry, Â‘Good Benefactor, save me, and have mercy on meÂ’.
+Because I have been condemned by evil ideas and deeds, O Saviour, grant me the thought of returning, O God, that I may cry, ‘Good Benefactor, save me, and have mercy on me’.
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Of the Martyrs.</span>
 
 <span style="letter-spacing:
-0pt">Your confession in the stadium, O Saints, routed the power of the demons and freed humankind from error. And so, as your heads were cut off, you cried, Â‘May the sacrifice of our lives be acceptable to you, O Lord, because longing for you we despised this temporary life, O Lover of humankindÂ’.</span>
+0pt">Your confession in the stadium, O Saints, routed the power of the demons and freed humankind from error. And so, as your heads were cut off, you cried, ‘May the sacrifice of our lives be acceptable to you, O Lord, because longing for you we despised this temporary life, O Lover of humankind’.</span>
 
 <span style="font-style:normal">Glory. Both now.<span style="color:red;
 mso-bidi-font-style:italic"> Theotokion.</span><span style="mso-bidi-font-style:
@@ -151,13 +151,13 @@ My life has become full of many temptations, O All-pure, from the many evils wit
 
 Glory. Both now. <span style="color:red">Theotokion. Same melody.</span>
 
-The Virgin, when she saw your unjust slaughter, O Christ, cried out to you in bitter grief, Â‘My sweetest Child, how are you suffering unjustly? How hanging on the Tree, you that hung the whole earth on the waters? Do not, compassionate Benefactor, leave me alone, your Mother and your servant.
+The Virgin, when she saw your unjust slaughter, O Christ, cried out to you in bitter grief, ‘My sweetest Child, how are you suffering unjustly? How hanging on the Tree, you that hung the whole earth on the waters? Do not, compassionate Benefactor, leave me alone, your Mother and your servant.
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Aposticha of the Cross.</span>
 
-A Cross was fixed on Calvary and flowered with immortality for us from an inexhaustible spring, the SaviourÂ’s side.
+A Cross was fixed on Calvary and flowered with immortality for us from an inexhaustible spring, the Saviour’s side.
 
-The SaviourÂ’s precious Cross is for us an unbreachable wall; for by trusting in it we are all saved.
+The Saviour’s precious Cross is for us an unbreachable wall; for by trusting in it we are all saved.
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Of the Martyrs.</span>
 
@@ -166,7 +166,7 @@ O the excellence of your deeds, O Saints! For you shed your blood, and inherited
 <span style="font-style:normal">Glory. Both now.<span style="color:red;
 mso-bidi-font-style:italic"> Cross-Theotokion.</span></span>
 
-Â‘A sword has passed through my heartÂ’ said the Virgin, as she saw Christ hanging on the tree, Â‘and it rends me, as Symeon foretold to me of old<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[13]</span></a>. But arise, O Immortal, and glorify your Mother and handmaid with yourself, I prayÂ’.
+‘A sword has passed through my heart’ said the Virgin, as she saw Christ hanging on the tree, ‘and it rends me, as Symeon foretold to me of old<a href="#_ftn13" id="_ftnref13"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[13]</span></a>. But arise, O Immortal, and glorify your Mother and handmaid with yourself, I pray’.
 
 <span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;font-weight:normal;
 mso-bidi-font-weight:bold">ON WEDNESDAY EVENING</span>
@@ -184,7 +184,7 @@ mso-bidi-font-style:italic">we sing prosomia of the Holy Apostles.</span></span>
 
 <span style="letter-spacing:-.1pt">All-wise Apostles, intercede that I may shake off the folly of my soul, as you have been declared to be truly initiates and revealers of wisdom. Lighting the light of the Paraclete and burning out the rottenness of my mind, make me worthy to call you blessed.</span>
 
-<span style="letter-spacing:-.1pt">Apostles, who saw God, flooded the whole round world with divine teachings and dimmed the darkness of the idols, enlighten my soul, darkened by the passions; and now intercede that our souls may be given GodÂ’s peace and great mercy.<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[14]</span></a></span>
+<span style="letter-spacing:-.1pt">Apostles, who saw God, flooded the whole round world with divine teachings and dimmed the darkness of the idols, enlighten my soul, darkened by the passions; and now intercede that our souls may be given God’s peace and great mercy.<a href="#_ftn14" id="_ftnref14"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[14]</span></a></span>
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Others, of St Nicholas. Joy of the heavenly hosts.</span>
 
@@ -228,11 +228,11 @@ letter-spacing:-.1pt;mso-bidi-font-style:italic">At</span>*<span style="letter-s
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Tone 1. Joy of the heavenly hosts.</span>
 
-<span style="letter-spacing:-.1pt">Of old the Forefather tasted death through a tree<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a>; but now through a precious Tree all the faithful are ransomed from the condemÂ­nation of death. All that has breath<a href="#_ftn23" id="_ftnref23"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[23]</span></a>, let us glorify him who was willingly crucified for us, and who has given light to the ends of the earth<a href="#_ftn24" id="_ftnref24"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[24]</span></a>.</span>
+<span style="letter-spacing:-.1pt">Of old the Forefather tasted death through a tree<a href="#_ftn22" id="_ftnref22"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[22]</span></a>; but now through a precious Tree all the faithful are ransomed from the condem­nation of death. All that has breath<a href="#_ftn23" id="_ftnref23"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[23]</span></a>, let us glorify him who was willingly crucified for us, and who has given light to the ends of the earth<a href="#_ftn24" id="_ftnref24"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[24]</span></a>.</span>
 
-<span style="letter-spacing:-.1pt">Hardened in heart, wholly in despair with evil thoughts and being condemned, I cry out to you: Word of God, alleviate my hidden offences and the disordered moveÂ­ments of my thoughts, for you are compassionate.</span>
+<span style="letter-spacing:-.1pt">Hardened in heart, wholly in despair with evil thoughts and being condemned, I cry out to you: Word of God, alleviate my hidden offences and the disordered move­ments of my thoughts, for you are compassionate.</span>
 
-<span style="letter-spacing:-.1pt">We boast in your Cross, O merciful Christ; and, as through it we utterly destroy the enemyÂ’s deceit, we sing your praise without ceasing: for willingly lifted up on it in your goodness, O Compassionate, you have wrought our salvation in the midst of the earth<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[25]</span></a>.</span>
+<span style="letter-spacing:-.1pt">We boast in your Cross, O merciful Christ; and, as through it we utterly destroy the enemy’s deceit, we sing your praise without ceasing: for willingly lifted up on it in your goodness, O Compassionate, you have wrought our salvation in the midst of the earth<a href="#_ftn25" id="_ftnref25"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[25]</span></a>.</span>
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Of the Mother of God. Same melody.</span>
 
@@ -240,17 +240,17 @@ letter-spacing:-.1pt;mso-bidi-font-style:italic">At</span>*<span style="letter-s
 
 <span style="letter-spacing:-.1pt">Again I call on you, Virgin, Sovereign Lady, against this passion of love of money, for truly I fear its attacks more than those of a wild beast. For love of money<a href="#_ftn26" id="_ftnref26"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[26]</span></a>, even in little thrifty things, is condemned for them.</span>
 
-<span style="letter-spacing:-.1pt">Mother of God, give me mighty strength each day to look with a joyful purpose and generous disposition on paupers and strangers and the multitudes of poor, to embrace non-possession which can make me GodÂ’s own.</span>
+<span style="letter-spacing:-.1pt">Mother of God, give me mighty strength each day to look with a joyful purpose and generous disposition on paupers and strangers and the multitudes of poor, to embrace non-possession which can make me God’s own.</span>
 
 <span style="letter-spacing:-.1pt">Glory. Both now. <span style="color:red">Cross-Theotokion. Same melody.</span></span>
 
-<span style="letter-spacing:-.1pt">When the blameless Virgin saw the Lamb suspended on a Cross, she cried out in lamentation, Â‘My sweetest Child, what is this new and wondrous sight? How are you, the One who holds all things in the hollow of your hand, nailed in flesh to a tree?Â’ </span>
+<span style="letter-spacing:-.1pt">When the blameless Virgin saw the Lamb suspended on a Cross, she cried out in lamentation, ‘My sweetest Child, what is this new and wondrous sight? How are you, the One who holds all things in the hollow of your hand, nailed in flesh to a tree?’ </span>
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Aposticha of the Cross.</span>
 
-<span style="letter-spacing:-.1pt">The Cross was planted on Calvary, and blossomed for us with immortality from the ever-flowing spring of the SaviourÂ’s side.</span>
+<span style="letter-spacing:-.1pt">The Cross was planted on Calvary, and blossomed for us with immortality from the ever-flowing spring of the Saviour’s side.</span>
 
-<span style="letter-spacing:-.1pt">The SaviourÂ’s precious Cross is an unbreachable wall; for as we have trusted in it we are all saved.</span>
+<span style="letter-spacing:-.1pt">The Saviour’s precious Cross is an unbreachable wall; for as we have trusted in it we are all saved.</span>
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Of the Martyrs.</span>
 
@@ -258,7 +258,7 @@ letter-spacing:-.1pt;mso-bidi-font-style:italic">At</span>*<span style="letter-s
 
 <span style="font-style:normal">Glory. Both now</span>. <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Cross-Theotokion. All-praised Martyrs.</span>
 
-<span style="letter-spacing:-.1pt">Â‘Lifted up on the Cross as the just judge, my sweetest Child, by tasting vinegar and gall<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[27]</span></a> you have made sweet the bitterness that Adam tasted of old; therefore, Master, bring sweetness to me, who taste the bitter potion of your suffering, by rising again as All-powerfulÂ’, cried the Virgin as she wept.</span>
+<span style="letter-spacing:-.1pt">‘Lifted up on the Cross as the just judge, my sweetest Child, by tasting vinegar and gall<a href="#_ftn27" id="_ftnref27"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[27]</span></a> you have made sweet the bitterness that Adam tasted of old; therefore, Master, bring sweetness to me, who taste the bitter potion of your suffering, by rising again as All-powerful’, cried the Virgin as she wept.</span>
 
 <span style="font-size:18.0pt;mso-bidi-font-size:10.0pt">ON FRIDAY EVENING</span>
 
@@ -281,15 +281,15 @@ Holy Bride of God, make me holy, sanctified and sober, meek, still, well-ordered
 
 Most pure Virgin, I have become fuel for shameless prodigality, an investigator of transgression, a teacher of passions, a guide to lust, entertainer of licentiousness, advocate of intemperance, and I have also taken pleasure in the thought of them. But deliver me from all destruction.
 
-Dread torrents of sin dreadfully buffet me, pains of Hell<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> surround me, the spiritual snare of death awaits me. Merciful Lady, I cry out to you with grief in my heart, Â‘Hasten, snatch me now from the death of despair and from the destruction of Hell.**
+Dread torrents of sin dreadfully buffet me, pains of Hell<a href="#_ftn29" id="_ftnref29"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[29]</span></a> surround me, the spiritual snare of death awaits me. Merciful Lady, I cry out to you with grief in my heart, ‘Hasten, snatch me now from the death of despair and from the destruction of Hell.**
 
 <span style="font-style:normal">Glory. Both now</span>. <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion</span><span style="color:red">.</span>
 
-<span style="mso-bidi-font-weight:bold">L</span>et us hymn the whole worldÂ’s glory, engendered from humankind and who gave birth to the Master, the Gate of heaven<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[30]</span></a>, Mary the Virgin, the song of the Bodiless Powers and adornment of the faithful; for she has been proclaimed Heaven and Temple of the Godhead. She, by destroying the middle wall of enmity<a href="#_ftn31" id="_ftnref31"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[31]</span></a>, has brought peace instead and thrown open the KingÂ’s palace. Therefore, holding fast to her as anchor of the faith, we have as champion the Lord born from her. Take courage therefore, take courage, people of God<a href="#_ftn32" id="_ftnref32"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[32]</span></a>; for he will make war on the foe as All-powerful.
+<span style="mso-bidi-font-weight:bold">L</span>et us hymn the whole world’s glory, engendered from humankind and who gave birth to the Master, the Gate of heaven<a href="#_ftn30" id="_ftnref30"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[30]</span></a>, Mary the Virgin, the song of the Bodiless Powers and adornment of the faithful; for she has been proclaimed Heaven and Temple of the Godhead. She, by destroying the middle wall of enmity<a href="#_ftn31" id="_ftnref31"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[31]</span></a>, has brought peace instead and thrown open the King’s palace. Therefore, holding fast to her as anchor of the faith, we have as champion the Lord born from her. Take courage therefore, take courage, people of God<a href="#_ftn32" id="_ftnref32"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[32]</span></a>; for he will make war on the foe as All-powerful.
 
 <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Aposticha for the Martyrs.</span>
 
-Your brave confession in the stadium, O Saints, cowed the power of the demons and freed mankind from error; and therefore, as your heads were being struck off, you cried, Â‘May the sacrifice of our lives, Lord, be well-pleasing before you; for longing for you, we despised this temporary life, O Lover of mankindÂ’.
+Your brave confession in the stadium, O Saints, cowed the power of the demons and freed mankind from error; and therefore, as your heads were being struck off, you cried, ‘May the sacrifice of our lives, Lord, be well-pleasing before you; for longing for you, we despised this temporary life, O Lover of mankind’.
 
 <span style="color:red;mso-bidi-font-style:italic">Verse: </span>God is wonderful in his saints, the God of Israel.
 
@@ -311,7 +311,7 @@ All-praised Martyrs, earth did not hide you, but heaven received you. For you th
 
 <span style="font-style:normal">Glory. Both now.</span> <span style="color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span><span style="font-style:normal"></span>
 
-Holy Virgin Mother of God we greet you with our Â‘Hail!Â’<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[33]</span></a>, honoured treasure of the whole inhabited world, unquenchable lamp, place<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> that contained the Uncontainable, temple that cannot be destroyed<a href="#_ftn35" id="_ftnref35"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[35]</span></a>. Hail to you, from whom was born the Lamb who takes away the sin of the world<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[36]</span></a>.
+Holy Virgin Mother of God we greet you with our ‘Hail!’<a href="#_ftn33" id="_ftnref33"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[33]</span></a>, honoured treasure of the whole inhabited world, unquenchable lamp, place<a href="#_ftn34" id="_ftnref34"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[34]</span></a> that contained the Uncontainable, temple that cannot be destroyed<a href="#_ftn35" id="_ftnref35"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[35]</span></a>. Hail to you, from whom was born the Lamb who takes away the sin of the world<a href="#_ftn36" id="_ftnref36"><span class="MsoFootnoteReference" style="mso-special-character:footnote">[36]</span></a>.
 
 \[<span style="color:red;mso-bidi-font-style:italic">When it is</span> Alleluia*,* <span style="color:red;mso-bidi-font-style:italic">the Martyrika are sung at</span> ** Lord, I have cried, <span style="color:red;mso-bidi-font-style:italic">while at the Aposticha we say the 1st Martyrikon and the two for the Dead.</span>\]
 
@@ -383,8 +383,8 @@ Holy Virgin Mother of God we greet you with our Â‘Hail!Â’<a href="#_ftn33"
 
 <a href="#_ftnref33" id="_ftn33"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[33]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 1:28.</span>
 
-<a href="#_ftnref34" id="_ftn34"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[34]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Eze 3:12, where the words, Â‘</span><span lang="EN-US" style="font-size:12.0pt;mso-ansi-language:EN-US;
-mso-bidi-language:HE">Blessed be the glory of the Lord, from his placeÂ’ occur, when the divine Chariot, also used as a type of the Mother of God, at the end of his initial vision and call.</span><span style="font-size:12.0pt;mso-bidi-font-size:
+<a href="#_ftnref34" id="_ftn34"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[34]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Eze 3:12, where the words, ‘</span><span lang="EN-US" style="font-size:12.0pt;mso-ansi-language:EN-US;
+mso-bidi-language:HE">Blessed be the glory of the Lord, from his place’ occur, when the divine Chariot, also used as a type of the Mother of God, at the end of his initial vision and call.</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt"></span>
 
 <a href="#_ftnref35" id="_ftn35"><span class="MsoFootnoteReference" style="mso-special-character: footnote; font-size: 12.0pt; mso-bidi-font-size: 10.0pt">[35]</span></a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 2:19.</span>
@@ -396,6 +396,6 @@ mso-bidi-language:HE">Blessed be the glory of the Lord, from his placeÂ’ occu
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

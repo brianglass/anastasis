@@ -395,6 +395,6 @@ His sound has gone out into all the earth; and his words to the ends of the worl
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

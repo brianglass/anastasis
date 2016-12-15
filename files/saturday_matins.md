@@ -102,7 +102,7 @@ A fourth Canon remembering the end ****
 
 Irmos.
 
-Through the Red SeaÂ’s deep.
+Through the Red Sea’s deep.
 
 Grasping the right hand of your servants, O Christ, guide them to eternal life, to the contemplation of your beauty, entreated by the Martyrs, champions of truth.
 
@@ -174,7 +174,7 @@ Troparia
 
 The most sacred company of Martyrs was glorified when with their own songs they had glorified the Lord who is glorified by all the Angels, and they intercede that we may be delivered from every tribulation.
 
-Godlike Hierarchs, as your minds shone with the brightness of immaterial light, you abolished the night godlessness, and with unerring guidance you guided to the light ChristÂ’s flock chosen by God.
+Godlike Hierarchs, as your minds shone with the brightness of immaterial light, you abolished the night godlessness, and with unerring guidance you guided to the light Christ’s flock chosen by God.
 
 The numerous community of Ascetics has been made fair, the assembly of godlike Women has been magnified, the holy company of the Prophets has been honoured, united rejoicing with the companies of the Angels.
 
@@ -182,7 +182,7 @@ The numerous community of Ascetics has been made fair, the assembly of godlike W
 
 Of the Dead
 
-Named fellow citizens of the Angels, O Martyrs, for all who have fallen asleep entreat pardon, the dwelling of GodÂ’s Paradise and complete redemption of offences.
+Named fellow citizens of the Angels, O Martyrs, for all who have fallen asleep entreat pardon, the dwelling of God’s Paradise and complete redemption of offences.
 
 ****
 
@@ -218,7 +218,7 @@ You, Lord, my light, came into the world, a holy light turning from the darkness
 
 Troparia
 
-Lifted up on crosses, broken on wheels, hacked limb from limb, GodÂ’s valiant Champions appeared indivisible.
+Lifted up on crosses, broken on wheels, hacked limb from limb, God’s valiant Champions appeared indivisible.
 
 As beacons of the faithful, O Hierarchs, you brought to the Shepherd and Lamb those whom you had been entrusted to shepherd with holiness.
 
@@ -302,7 +302,7 @@ The Word, invisible as God, having taken a body from an unwedded virgin Maiden, 
 
 Ode 7. Irmos.
 
-AbrahamÂ’s Children once in Babylon trampled down the flame of a furnace, and as they sang their hymn they chanted, Blessed is the God of our Fathers.
+Abraham’s Children once in Babylon trampled down the flame of a furnace, and as they sang their hymn they chanted, Blessed is the God of our Fathers.
 
 In gladness of soul let us with one accord praise the hallowed vessels of the Master Christ, the ramparts of the Church, the Martyrs of the Lord.
 
@@ -410,7 +410,7 @@ Of that joy of which the Saints who served you well have been counted worthy, co
 
 Theotokion
 
-You appeared higher than the Cherubim on high, O All-blameless, for you carried the One who holds the universe in being. Make my mind higher than the passions of the flesh, empowering me to do the MasterÂ’s will.
+You appeared higher than the Cherubim on high, O All-blameless, for you carried the One who holds the universe in being. Make my mind higher than the passions of the flesh, empowering me to do the Master’s will.
 
 ****
 
@@ -536,6 +536,6 @@ The serried lines of dancers eulogise.
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

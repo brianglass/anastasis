@@ -386,6 +386,6 @@ It was fitting for the eye-witnesses and ministers of the Word to see the Fallin
 ------------------------------------------------------------------------
 
 All texts and translations on this page are copyright to
-Archimandrite Ephrem Â©
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**
