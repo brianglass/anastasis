@@ -49,20 +49,16 @@ def transform(filename):
                 node.set('href', '{}.{}'.format(basename, 'md'))
 
     # Convert footnotes to MD references
-    for node in tree.xpath('//div[@style="mso-element:footnote-list"]//p[@class="MsoFootnoteText"]'):
-        try:
-            link = node.xpath('descendant::a')[0]
-            number = etree.tostring(link, method='text', encoding='unicode').strip('[]')
-            link.getparent().remove(link)
-            #text = etree.tostring(node, method='text', encoding='unicode')
-            span = html.Element('span')
-            span.text = '[{}]:'.format(number)
-            #replace_tag(link, span)
-            node.insert(0, span)
-            #text = etree.tostring(node, method='text', encoding='unicode')
-            #print(text)
-        except IndexError:
-            pass
+    # for node in tree.xpath('//div[@style="mso-element:footnote-list"]//p[@class="MsoFootnoteText"]'):
+    #     try:
+    #         link = node.xpath('descendant::a')[0]
+    #         number = etree.tostring(link, method='text', encoding='unicode').strip('[]')
+    #         link.getparent().remove(link)
+    #         span = html.Element('span')
+    #         span.text = '[{}]:'.format(number)
+    #         node.insert(0, span)
+    #     except IndexError:
+    #         pass
 
     # Pandoc passes this through, cluttering up the final markdown. Must come
     # after footnore rewriting.
