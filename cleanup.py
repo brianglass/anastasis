@@ -48,7 +48,24 @@ def transform(filename):
             if extension.startswith('htm'):
                 node.set('href', '{}.{}'.format(basename, 'md'))
 
-    # Pandoc passes this through, cluttering up the final markdown
+    # Convert footnotes to MD references
+    for node in tree.xpath('//div[@style="mso-element:footnote-list"]//p[@class="MsoFootnoteText"]'):
+        try:
+            link = node.xpath('descendant::a')[0]
+            number = etree.tostring(link, method='text', encoding='unicode').strip('[]')
+            link.getparent().remove(link)
+            #text = etree.tostring(node, method='text', encoding='unicode')
+            span = html.Element('span')
+            span.text = '[{}]:'.format(number)
+            #replace_tag(link, span)
+            node.insert(0, span)
+            #text = etree.tostring(node, method='text', encoding='unicode')
+            #print(text)
+        except IndexError:
+            pass
+
+    # Pandoc passes this through, cluttering up the final markdown. Must come
+    # after footnore rewriting.
     for node in tree.xpath('//span[@class="MsoFootnoteReference"]'):
         node.drop_tag()
 
@@ -67,7 +84,10 @@ def convert_html_file(filepath):
 
 
 if __name__ == '__main__':
-    cpu_count = multiprocessing.cpu_count()
-    with multiprocessing.Pool(cpu_count) as pool:
-        convert_html_file('original/index.html')
-        pool.map(convert_html_file, glob.glob('original/*.htm'))
+    convert_html_file('original/tuesday_matins1.htm')
+
+    if False:
+        cpu_count = multiprocessing.cpu_count()
+        with multiprocessing.Pool(cpu_count) as pool:
+            convert_html_file('original/index.html')
+            pool.map(convert_html_file, glob.glob('original/*.htm'))

@@ -596,250 +596,243 @@ we ask you, as Mother of our God, to grant peace to the world.
 
 -----
 
-[\[1\]](#_ftnref1) Psalm 50:7.
+\[1\]: Psalm 50:7.
 
-[\[2\]](#_ftnref2) Luke 15:11-24.
+\[2\]: Luke 15:11-24.
 
-[\[3\]](#_ftnref3) Proverbs 11:31, 1 Peter 4:18.
+\[3\]: Proverbs 11:31, 1 Peter 4:18.
 
-[\[4\]](#_ftnref4) Matthew 20:12.
+\[4\]: Matthew 20:12.
 
-[\[5\]](#_ftnref5) Luke 15:11-24.
+\[5\]: Luke 15:11-24.
 
-[\[6\]](#_ftnref6) Matthew 25:31-46.
+\[6\]: Matthew 25:31-46.
 
-[\[7\]](#_ftnref7) Matthew 25:1-13.
+\[7\]: Matthew 25:1-13.
 
-[\[8\]](#_ftnref8) 2 Timothy 4:7.
+\[8\]: 2 Timothy 4:7.
 
-[\[9\]](#_ftnref9) Luke 1:41-42.
+\[9\]: Luke 1:41-42.
 
-[\[10\]](#_ftnref10) This acrostic has no letters for a second ode. The
-final letter of the acrostic is in the Theotokion of the 9th Ode.
+\[10\]: This acrostic has no letters for a second ode. The final letter
+of the acrostic is in the Theotokion of the 9th Ode.
 
-[\[11\]](#_ftnref11) Exodus 15:1
+\[11\]: Exodus 15:1
 
-[\[12\]](#_ftnref12) Exodus 6:6, Deut. 4:34. The phrase occurs 12 times
-in the Old Testament; ten of which refer to the deliverance of Israel at
-the Red Sea. In Deut. 4:34 it is linked, as here, to ‘wonders’, in Greek
+\[12\]: Exodus 6:6, Deut. 4:34. The phrase occurs 12 times in the Old
+Testament; ten of which refer to the deliverance of Israel at the Red
+Sea. In Deut. 4:34 it is linked, as here, to ‘wonders’, in Greek
 *terata.*
 
-[\[13\]](#_ftnref13) Exodus 15:1.
+\[13\]: Exodus 15:1.
 
-[\[14\]](#_ftnref14) The throne of the ‘Ancient of Days’ in Daniel (7:9)
-is described as a ‘throne of fire’, but the allusion here is most
-probably to Ezekiel 1, the divine Chariot, one of the frequently used
-types of the Mother of God.. 
+\[14\]: The throne of the ‘Ancient of Days’ in Daniel (7:9) is described
+as a ‘throne of fire’, but the allusion here is most probably to Ezekiel
+1, the divine Chariot, one of the frequently used types of the Mother of
+God.. 
 
-[\[15\]](#_ftnref15) These two words are used together by St Sophronios
-of Jerusalem with reference to the uniting of the divine and human
-natures of Christ in the incarnation.
+\[15\]: These two words are used together by St Sophronios of Jerusalem
+with reference to the uniting of the divine and human natures of Christ
+in the incarnation.
 
-[\[16\]](#_ftnref16) As he does frequently, Joseph signs his Canon in
-the ninth Ode.
+\[16\]: As he does frequently, Joseph signs his Canon in the ninth Ode.
 
-[\[17\]](#_ftnref17) Cf. John 1:23.
+\[17\]: Cf. John 1:23.
 
-[\[18\]](#_ftnref18) The idea of the Forerunner preaching to these in
-Hades is based on the second part of the  so-called *Acts of Pilate*,
-also known as the *Gospel of Nicodemus*, which was originally a separate
-work on the Descent of Christ into Hell (1 Peter 3:19) and probably
-dates from the fifth or sixth century. In this account a great light
-fills Hades at midnight, to the joy of the Patriarchs and Prophets. Then
-John the Baptist, who is described as ‘an ascetic from the wilderness’,
-comes forward and tells them of his ministry and that Jesus himself is
-about to enter Hades. 
+\[18\]: The idea of the Forerunner preaching to these in Hades is based
+on the second part of the  so-called *Acts of Pilate*, also known as the
+*Gospel of Nicodemus*, which was originally a separate work on the
+Descent of Christ into Hell (1 Peter 3:19) and probably dates from the
+fifth or sixth century. In this account a great light fills Hades at
+midnight, to the joy of the Patriarchs and Prophets. Then John the
+Baptist, who is described as ‘an ascetic from the wilderness’, comes
+forward and tells them of his ministry and that Jesus himself is about
+to enter Hades. 
 
-[\[19\]](#_ftnref19) Psalm 117:22. The sentence is an exact quotation
-from the <span style="font-variant:small-caps;">lxx</span>.
+\[19\]: Psalm 117:22. The sentence is an exact quotation from the
+<span style="font-variant:small-caps;">lxx</span>.
 
-[\[20\]](#_ftnref20) Cf. 1 Reigns 2:1. The opening words of the Song of
-Anna in the <span style="font-variant:small-caps;">lxx</span> are ‘My
-heart has been made firm \[in Greek Êstereõqh\] in the Lord’, and the
-use of this verb is frequently the only link between the poetic text and
-the biblical one.
+\[20\]: Cf. 1 Reigns 2:1. The opening words of the Song of Anna in the
+<span style="font-variant:small-caps;">lxx</span> are ‘My heart has been
+made firm \[in Greek Êstereõqh\] in the Lord’, and the use of this verb
+is frequently the only link between the poetic text and the biblical
+one.
 
-[\[21\]](#_ftnref21) Cf. Galatians 3:13, 4:5.
+\[21\]: Cf. Galatians 3:13, 4:5.
 
-[\[22\]](#_ftnref22) The idea of God’s people being brought out ‘from
-the nations’ is found a number of times in Ezekiel as well as in Psalm
-105:47. It is not used in the NT. The phrase is used frequently in the
-liturgical texts.
+\[22\]: The idea of God’s people being brought out ‘from the nations’ is
+found a number of times in Ezekiel as well as in Psalm 105:47. It is not
+used in the NT. The phrase is used frequently in the liturgical texts.
 
-[\[23\]](#_ftnref23) There is play in Greek on ‘deformity’ \[Âmorfía\]
-and ‘beauty of form’ \[eÛmorfía\].
+\[23\]: There is play in Greek on ‘deformity’ \[Âmorfía\] and ‘beauty of
+form’ \[eÛmorfía\].
 
-[\[24\]](#_ftnref24) cf. Luk. 15:13.
+\[24\]: cf. Luk. 15:13.
 
-[\[25\]](#_ftnref25) John 1:29.
+\[25\]: John 1:29.
 
-[\[26\]](#_ftnref26) Cf. Ps. 37:5.
+\[26\]: Cf. Ps. 37:5.
 
-[\[27\]](#_ftnref27) Matthew 18:8, 25:41.
+\[27\]: Matthew 18:8, 25:41.
 
-[\[28\]](#_ftnref28) Avvakoum 3:2. The last sentence poses a problem. It
-is a standard one in both the irmi and troparia of the 4th Ode of many
+\[28\]: Avvakoum 3:2. The last sentence poses a problem. It is a
+standard one in both the irmi and troparia of the 4th Ode of many
 canons, but it is not part of the scriptural text in either Hebrew or
 Greek, nor are there any variants in the Greek manuscripts.
 
-[\[29\]](#_ftnref29) The play on words is difficult to render in
-English. The word in Greek also means ‘to be sunk’ or ‘submerged’.
+\[29\]: The play on words is difficult to render in English. The word in
+Greek also means ‘to be sunk’ or ‘submerged’.
 
-[\[30\]](#_ftnref30) Cf. Luke 15:13, 22.
+\[30\]: Cf. Luke 15:13, 22.
 
-[\[31\]](#_ftnref31) A word hardly found at all  in classical Greek, but
-frequent in the Fathers. It occurs some dozen times in the Old
-Testament, while in the New, apart from Luke 12:23,  it is only found in
-St Matthew’s Gospel, seven times. He uses it for St john the Baptist’s
-‘clothing of camel’s hair’ and for the ‘wedding garment’ in the
-parable of the royal marriage feast.
+\[31\]: A word hardly found at all  in classical Greek, but frequent in
+the Fathers. It occurs some dozen times in the Old Testament, while in
+the New, apart from Luke 12:23,  it is only found in St Matthew’s
+Gospel, seven times. He uses it for St john the Baptist’s ‘clothing of
+camel’s hair’ and for the ‘wedding garment’ in the parable of the royal
+marriage feast.
 
-[\[32\]](#_ftnref32) As Faustus says in Marlowe’s play, one drop, even
-half  a drop of Christ’s blood could save him. St Romanos has a similar
-passage in the final strophe of his Kontakion on All Martyrs: μικρὸν
-σταγόνα ἐκ τοῦ πνεύματος ὥσπερ ὄμβρον κατάπεμψον, δέομαι, ‘A small
-drop of your spirit send down like rain, I beg’. A homily on the
-Pharisee and the Harlot attributed to St Kohn Chrysostom speaks of
-δικαιοσύνης σταγόνα τινά, ‘a drop of justice’. The Greek Ephrem
-has a number of similar expressions.
+\[32\]: As Faustus says in Marlowe’s play, one drop, even half  a drop
+of Christ’s blood could save him. St Romanos has a similar passage in
+the final strophe of his Kontakion on All Martyrs: μικρὸν σταγόνα ἐκ τοῦ
+πνεύματος ὥσπερ ὄμβρον κατάπεμψον, δέομαι, ‘A small drop of your spirit
+send down like rain, I beg’. A homily on the Pharisee and the Harlot
+attributed to St Kohn Chrysostom speaks of δικαιοσύνης σταγόνα τινά, ‘a
+drop of justice’. The Greek Ephrem has a number of similar expressions.
 
-[\[33\]](#_ftnref33) Isaias 63:9.
+\[33\]: Isaias 63:9.
 
-[\[34\]](#_ftnref34) Matt. 3:3 (Isaias 40:3).
+\[34\]: Matt. 3:3 (Isaias 40:3).
 
-[\[35\]](#_ftnref35) Isaias 26:12-13. The text  is from the 5th Biblical
-canticle. The following verse refers to the dead, who will ‘not see
-life; nor will physicians raise them’.
+\[35\]: Isaias 26:12-13. The text  is from the 5th Biblical canticle.
+The following verse refers to the dead, who will ‘not see life; nor will
+physicians raise them’.
 
-[\[36\]](#_ftnref36) Psalm 50:13.
+\[36\]: Psalm 50:13.
 
-[\[37\]](#_ftnref37) Cf. Luke 18:9-14.
+\[37\]: Cf. Luke 18:9-14.
 
-[\[38\]](#_ftnref38) The word translated ‘beacons’ only occurs in the
-Old Testament at Genesis 1:14, where it refers to the sun and moon, and
-at Daniel 12: 3, where it is of the heavenly bodies in general as a
-simile of ‘those with understanding’. It is the latter passage that the
-poet has in mind. The Martyrs are like the ‘fixed stars’, not the
-wandering planets. Our Lord, echoing Daniel, compares the just to the
-sun at Matthew 13:43. There is a play in Greek on ÂplaneîV,
-‘unwandering’, ‘fixed’ and plánh in the next phrase, meaning
-‘wandering’, and hence ‘error’. 
+\[38\]: The word translated ‘beacons’ only occurs in the Old Testament
+at Genesis 1:14, where it refers to the sun and moon, and at Daniel 12:
+3, where it is of the heavenly bodies in general as a simile of ‘those
+with understanding’. It is the latter passage that the poet has in mind.
+The Martyrs are like the ‘fixed stars’, not the wandering planets. Our
+Lord, echoing Daniel, compares the just to the sun at Matthew 13:43.
+There is a play in Greek on ÂplaneîV, ‘unwandering’, ‘fixed’ and plánh
+in the next phrase, meaning ‘wandering’, and hence ‘error’. 
 
-[\[39\]](#_ftnref39) The image changes to that of sacred processions,
-lighted by torches.
+\[39\]: The image changes to that of sacred processions, lighted by
+torches.
 
-[\[40\]](#_ftnref40) A difficult troparion. The word literally means
-‘rolled’. It is not common in Greek, and only occurs eleven times in
-the Old Testament. Its meaning here is unclear. Only two passages may
-give a clue. Amos 2:13 in Hebrew speaks of a wagon that is ‘crushed’
-under the weight of the sheaves with which it is loaded. The Greek here
-has ‘is rolled’. Zachary 9:16 in Greek, followed by the Slavonic, has
-the mysterious sentence, ‘And the Lord will save them in that day, his
-people like sheep, because holy stones are rolled upon the ground’.
+\[40\]: A difficult troparion. The word literally means ‘rolled’. It is
+not common in Greek, and only occurs eleven times in the Old Testament.
+Its meaning here is unclear. Only two passages may give a clue. Amos
+2:13 in Hebrew speaks of a wagon that is ‘crushed’ under the weight of
+the sheaves with which it is loaded. The Greek here has ‘is rolled’.
+Zachary 9:16 in Greek, followed by the Slavonic, has the mysterious
+sentence, ‘And the Lord will save them in that day, his people like
+sheep, because holy stones are rolled upon the ground’.
 
-[\[41\]](#_ftnref41) Cf. the earlier note on Ode 1 of this Canon, 3rd
-Troparion.
+\[41\]: Cf. the earlier note on Ode 1 of this Canon, 3rd Troparion.
 
-[\[42\]](#_ftnref42) Cf. Ps. 44:10.
+\[42\]: Cf. Ps. 44:10.
 
-[\[43\]](#_ftnref43) Luke 1:48.
+\[43\]: Luke 1:48.
 
-[\[44\]](#_ftnref44) Cf. Jonas 2:7.
+\[44\]: Cf. Jonas 2:7.
 
-[\[45\]](#_ftnref45) Cf. Jonas 2:7.
+\[45\]: Cf. Jonas 2:7.
 
-[\[46\]](#_ftnref46) This word, diekcúsiV, is unattested in classical
-Greek and only cited in Lampe from Migne’s text of George of Pisidia’s
-*Hexaemeron*, where the critical edition reads the more usual word
-*prócusiV*.
+\[46\]: This word, diekcúsiV, is unattested in classical Greek and only
+cited in Lampe from Migne’s text of George of Pisidia’s *Hexaemeron*,
+where the critical edition reads the more usual word *prócusiV*.
 
-[\[47\]](#_ftnref47) Cf. Psalm 131:8.
+\[47\]: Cf. Psalm 131:8.
 
-[\[48\]](#_ftnref48) Cf. Matt.3:2.
+\[48\]: Cf. Matt.3:2.
 
-[\[49\]](#_ftnref49) The sense of this troparion is not clear. In the
-Fathers ‘the abyss’ usually refers to Hades and is pejorative. The word
-occurs in the 6th Ode, ‘the final abyss encircled me’(Jonas 3:6).  The
-verb katadúw can be either transitive or intransitive, but the
-intransitive sense, ‘to descend into’, followed by an accusative seems
-to be limited to Homer. The 1st Aorist, used here, is commonly used
-transitively. The meaning could possibly be that John ‘plunged the Abyss
-(i.e. Christ) in the streams’, since the verb is used regularly of
-Baptism, and in Ode 8 we have exactly the same word in the clause, ‘you
-plunged Christ’s head in the waters’. On the other hand, although the
-word ‘Abyss’ is used positively of ‘the abyss of God’s wisdom‘, it does
-not seem to be used as an image of Christ. 
+\[49\]: The sense of this troparion is not clear. In the Fathers ‘the
+abyss’ usually refers to Hades and is pejorative. The word occurs in the
+6th Ode, ‘the final abyss encircled me’(Jonas 3:6).  The verb katadúw
+can be either transitive or intransitive, but the intransitive sense,
+‘to descend into’, followed by an accusative seems to be limited to
+Homer. The 1st Aorist, used here, is commonly used transitively. The
+meaning could possibly be that John ‘plunged the Abyss (i.e. Christ) in
+the streams’, since the verb is used regularly of Baptism, and in Ode 8
+we have exactly the same word in the clause, ‘you plunged Christ’s head
+in the waters’. On the other hand, although the word ‘Abyss’ is used
+positively of ‘the abyss of God’s wisdom‘, it does not seem to be used
+as an image of Christ. 
 
-[\[50\]](#_ftnref50) Cf. Daniel 3:26.
+\[50\]: Cf. Daniel 3:26.
 
-[\[51\]](#_ftnref51) This troparion plays on the word lógoV, ‘word’. In
-Greek ‘rational’ and ‘irrational’ are logikóV and ÁlogoV and ‘word’ is
+\[51\]: This troparion plays on the word lógoV, ‘word’. In Greek
+‘rational’ and ‘irrational’ are logikóV and ÁlogoV and ‘word’ is
 lógoV.
 
-[\[52\]](#_ftnref52) Cf. John 14:2.
+\[52\]: Cf. John 14:2.
 
-[\[53\]](#_ftnref53) Cf. Isaias 57:15, ‘\[t\]he Lord Most High, resting
-in the holies’. The Greek is probably neuter and means ‘in the holy
-place’ (cf. Psalm 133:2), but it could also be masculine and mean ‘among
-the saints’. The poet here deliberately plays on this ambiguity.
+\[53\]: Cf. Isaias 57:15, ‘\[t\]he Lord Most High, resting in the
+holies’. The Greek is probably neuter and means ‘in the holy place’
+(cf. Psalm 133:2), but it could also be masculine and mean ‘among the
+saints’. The poet here deliberately plays on this ambiguity.
 
-[\[54\]](#_ftnref54) Cf. Matt. 11:11-15.
+\[54\]: Cf. Matt. 11:11-15.
 
-[\[55\]](#_ftnref55) Cf. Matt. 7:13-14, though in the Gospel it the
-‘gate’ that is ‘narrow’, the word used here. The ‘road’ is
-‘constricted’.
+\[55\]: Cf. Matt. 7:13-14, though in the Gospel it the ‘gate’ that is
+‘narrow’, the word used here. The ‘road’ is ‘constricted’.
 
-[\[56\]](#_ftnref56) Cf. Pss. 17:20, 117:5, 118:45.
+\[56\]: Cf. Pss. 17:20, 117:5, 118:45.
 
-[\[57\]](#_ftnref57) Ps. 50:12.
+\[57\]: Ps. 50:12.
 
-[\[58\]](#_ftnref58) Cf. Genesis 3:1-7.
+\[58\]: Cf. Genesis 3:1-7.
 
-[\[59\]](#_ftnref59) Cf. the Nicene Creed. The poet, like the Creed,
-uses the present participle, ‘is coming’, not a future. The Latin uses
-the future ‘will come’, and this has influenced most, but not all,
-English versions of the Creed.
+\[59\]: Cf. the Nicene Creed. The poet, like the Creed, uses the present
+participle, ‘is coming’, not a future. The Latin uses the future ‘will
+come’, and this has influenced most, but not all, English versions of
+the Creed.
 
-[\[60\]](#_ftnref60) ‘Gehenna’ occurs in the Bible twelve times, ten of
-them in St Matthew, who uses the expression ‘Gehenna of fire’ (5:22,
-18:19. James 3:6 also speaks of the tongue being ‘set on fire by
-Gehenna’), rather than the one used here.
+\[60\]: ‘Gehenna’ occurs in the Bible twelve times, ten of them in St
+Matthew, who uses the expression ‘Gehenna of fire’ (5:22, 18:19. James
+3:6 also speaks of the tongue being ‘set on fire by Gehenna’), rather
+than the one used here.
 
-[\[61\]](#_ftnref61) Cf. Matthew 25:41
+\[61\]: Cf. Matthew 25:41
 
-[\[62\]](#_ftnref62) Cf. Song of Songs 2:1.
+\[62\]: Cf. Song of Songs 2:1.
 
-[\[63\]](#_ftnref63) This title for God, which is found in the Fathers
-and the liturgical texts, has its origin in Genesis 2:2, where the
-cognate verb is used, ‘and the Lord God planted a paradise in Edem’.
+\[63\]: This title for God, which is found in the Fathers and the
+liturgical texts, has its origin in Genesis 2:2, where the cognate verb
+is used, ‘and the Lord God planted a paradise in Edem’.
 
-[\[64\]](#_ftnref64) Isaias 9:5. The original LXX has only this title,
-the others were added later, to bring the Greek into line with the
-Hebrew. There is no ‘Angel’ in Hebrew.
+\[64\]: Isaias 9:5. The original LXX has only this title, the others
+were added later, to bring the Greek into line with the Hebrew. There is
+no ‘Angel’ in Hebrew.
 
-[\[65\]](#_ftnref65) Cf. Mat. 8:12.
+\[65\]: Cf. Mat. 8:12.
 
-[\[66\]](#_ftnref66) Mat. 8:12.
+\[66\]: Mat. 8:12.
 
-[\[67\]](#_ftnref67) Mark 9:48.
+\[67\]: Mark 9:48.
 
-[\[68\]](#_ftnref68) Cf. in particular Isaias 19:1.
+\[68\]: Cf. in particular Isaias 19:1.
 
-[\[69\]](#_ftnref69) Cf. Psalm 71:16, Judges 6:37-40.
+\[69\]: Cf. Psalm 71:16, Judges 6:37-40.
 
-[\[70\]](#_ftnref70) Cf. Luke 18:9-14, 7:36-50, 23:39-43, 15:11-32,
-Matthew 15:21-28. It is interesting to notice that four of these five
-well known characters are found only in St Luke’s Gospel.
+\[70\]: Cf. Luke 18:9-14, 7:36-50, 23:39-43, 15:11-32, Matthew 15:21-28.
+It is interesting to notice that four of these five well known
+characters are found only in St Luke’s Gospel.
 
-[\[71\]](#_ftnref71) The allusions to the rising sun in this and the
-preceding troparion refer to Luke 1:78-9, the Canticle of Zachary
-forming the second part of the 9th biblical Ode.
+\[71\]: The allusions to the rising sun in this and the preceding
+troparion refer to Luke 1:78-9, the Canticle of Zachary forming the
+second part of the 9th biblical Ode.
 
-[\[72\]](#_ftnref72) Cf. Ezekiel 1.
+\[72\]: Cf. Ezekiel 1.
 
-[\[73\]](#_ftnref73) Matthew 20:1-16.
+\[73\]: Matthew 20:1-16.
 
-[\[74\]](#_ftnref74) Exodus 3:1-6.
+\[74\]: Exodus 3:1-6.
 
  
 
