@@ -1,166 +1,246 @@
-\[ [Home](index.md) \] \[ [Up](tone6.md) \] \[ [Saturday Evening](sat6e.md) \] \[ Sunday Midnight \] \[ [Sunday Matins and Liturgy](sun6m.md) \] \[ [Sunday Matins](sunday_matins_2.md) \] \[ [Weekday Vespers](weekday_vespers7.md) \]
+\[ [Home](index.md) \] \[ [Up](tone6.md) \]
+\[ [Saturday Evening](sat6e.md) \] \[ Sunday Midnight \]
+\[ [Sunday Matins and Liturgy](sun6m.md) \]
+\[ [Sunday Matins](sunday_matins_2.md) \]
+\[ [Weekday Vespers](weekday_vespers7.md) \]
 
-AT THE MIDNIGHT OFFICE
-----------------------
+## AT THE MIDNIGHT OFFICE
 
-**Canon of the Trinity, of which the Acrostic is:
+**Canon of the Trinity, of which the Acrostic is:  
 **I offer the sixth hymn to you, O Godhead.
 
 ****
 
 Ode 1. Tone 6.
 
-We sing the praise of three divine persons of one single nature, an unchanging form, a God who is good and loves humankind and grants us atonement of faults.
+We sing the praise of three divine persons of one single nature, an
+unchanging form, a God who is good and loves humankind and grants us
+atonement of faults.
 
-O Lord, alone beyond being, in persons shining with triple light, existing in one Godhead, give us understanding and count us worthy of your divine radiance.
+O Lord, alone beyond being, in persons shining with triple light,
+existing in one Godhead, give us understanding and count us worthy of
+your divine radiance.
 
-Paul, who espoused the Church from the nations, taught her to worship you, one God in three persons, from whom and through whom and in whom all things have come to be.
+Paul, who espoused the Church from the nations, taught her to worship
+you, one God in three persons, from whom and through whom and in whom
+all things have come to be.
 
 ****
 
 Theotokion.
 
-The spiritual Sun came forth from you, O Mother of God, and shone on us with the rays of the Godhead of triple light. As we devoutly sing his praise we call you blessed.
+The spiritual Sun came forth from you, O Mother of God, and shone on us
+with the rays of the Godhead of triple light. As we devoutly sing his
+praise we call you blessed.
 
 ****
 
 Ode 3.
 
-O God of triple light, who set in order the heavenly Ranks and fitted them to sing you with thrice-holy voices, accept us too with them as we sing the praise of your goodness.
+O God of triple light, who set in order the heavenly Ranks and fitted
+them to sing you with thrice-holy voices, accept us too with them as we
+sing the praise of your goodness.
 
-As we sing the praise of the only unchanging, triple, consubstantial, single Godhead, we beseech you fervently to send down to us now pardon of our many sins.
+As we sing the praise of the only unchanging, triple, consubstantial,
+single Godhead, we beseech you fervently to send down to us now pardon
+of our many sins.
 
-O Father, Mind without beginning, O consubstantial Word of God and divine Spirit, good and upright, guard all who faithfully sing your praise, as you are compassionate.
+O Father, Mind without beginning, O consubstantial Word of God and
+divine Spirit, good and upright, guard all who faithfully sing your
+praise, as you are compassionate.
 
 ****
 
 Theotokion.
 
-My God who became man by nature in your womb, pure Virgin, did away with the occupancy of corruption and alone freed the Ancestors of the race from the former condemnation.
+My God who became man by nature in your womb, pure Virgin, did away with
+the occupancy of corruption and alone freed the Ancestors of the race
+from the former condemnation.
 
 ****
 
 Kathisma.
 
-O God and Master, look from heaven. See our humiliation as you are full of pity, and have compassion, O Lover of humankind supremely good. For we hope to obtain pardon from no one else for the evils which we have committed. Therefore be with us, and no one against us.
+O God and Master, look from heaven. See our humiliation as you are full
+of pity, and have compassion, O Lover of humankind supremely good. For
+we hope to obtain pardon from no one else for the evils which we have
+committed. Therefore be with us, and no one against us.
 
 Glory Both now.
 
 **Theotokion.**
 
-O pure Lady, look from heaven. See the pains of our wounds and have compassion, O all-immaculate, and heal the burning heat of our conscience with the dew of your mercy, crying out to your servants I am with you, and no one against you.
+O pure Lady, look from heaven. See the pains of our wounds and have
+compassion, O all-immaculate, and heal the burning heat of our
+conscience with the dew of your mercy, crying out to your servants I am
+with you, and no one against you.
 
 ****
 
 Ode 4.
 
-Raise the mind and swiftly make the heart of those who sing your praise mount up, O Unity with triple light, and count them worthy of your radiance and splendour.
+Raise the mind and swiftly make the heart of those who sing your praise
+mount up, O Unity with triple light, and count them worthy of your
+radiance and splendour.
 
-Alter my form and transfigure me from every wickedness into virtue, O Trinity alone unalterable and unchanging; make me resplendent with the beams of your radiance.
+Alter my form and transfigure me from every wickedness into virtue, O
+Trinity alone unalterable and unchanging; make me resplendent with the
+beams of your radiance.
 
-Having first considered all with wisdom, you gave being to the ministering ranks of the Angels of your goodness, O three-personned Unity; with them accept my praise.
+Having first considered all with wisdom, you gave being to the
+ministering ranks of the Angels of your goodness, O three-personned
+Unity; with them accept my praise.
 
 ****
 
 Theotokion.
 
-The eternal God, by nature uncreated, having assumed human createdness, refashioned nature in your womb, O Mother of God ever-virgin.
+The eternal God, by nature uncreated, having assumed human createdness,
+refashioned nature in your womb, O Mother of God ever-virgin.
 
 ****
 
 Ode 5.
 
-As we consider the divine nature, which cares for and saves all, is one and with triple light, Master, we rise to you at dawn asking pardon for our offences.
+As we consider the divine nature, which cares for and saves all, is one
+and with triple light, Master, we rise to you at dawn asking pardon for
+our offences.
 
-God and Father without beginning, co-eternal Son and holy Spirit, Trinity ruling as one, establish those who sing your praise and deliver them from every assault and affliction.
+God and Father without beginning, co-eternal Son and holy Spirit,
+Trinity ruling as one, establish those who sing your praise and deliver
+them from every assault and affliction.
 
-O Sun of glory who train me with your divinely working radiance and ever guide me to be well-pleasing to your three-personned Godhead, make me a partaker of your divine Kingdom.
+O Sun of glory who train me with your divinely working radiance and ever
+guide me to be well-pleasing to your three-personned Godhead, make me a
+partaker of your divine Kingdom.
 
 ****
 
 Theotokion.
 
-Unchanging Word of God, who bear all things and watch over them with your all-powerful hand, guard and watch over those who glorify you, at the prayers of the Mother of God who gave you birth.
+Unchanging Word of God, who bear all things and watch over them with
+your all-powerful hand, guard and watch over those who glorify you, at
+the prayers of the Mother of God who gave you birth.
 
 ****
 
 Ode 6.
 
-Godhead of triple light, grant wisdom and understanding to those who sing your praise, and grant that they may all be enlightened with the rays of the illuminating beauty of your loving kindness. (
+Godhead of triple light, grant wisdom and understanding to those who
+sing your praise, and grant that they may all be enlightened with the
+rays of the illuminating beauty of your loving kindness. (
 
 **Twice**)
 
-O undivided Light, by essence of triple light, almighty, unapproachable shine upon the hearts of those who faithfully praise your might and furnish them with wings towards your divine love.
+O undivided Light, by essence of triple light, almighty, unapproachable
+shine upon the hearts of those who faithfully praise your might and
+furnish them with wings towards your divine love.
 
 ****
 
 Theotokion.
 
-The upholder and Lord of all things clearly dwelt in you, Ever-Virgin, and taught humankind to worship one form with three lights of the Godhead.
+The upholder and Lord of all things clearly dwelt in you, Ever-Virgin,
+and taught humankind to worship one form with three lights of the
+Godhead.
 
 ****
 
 Kathisma.
 
-Father and Son with holy Spirit look upon us who worship you in faith and glorify your might, O compassionate, we creatures of clay with those of fire; for we know no other but you, and cry out to those who sing your praise: I am with you, and no one against you.
+Father and Son with holy Spirit look upon us who worship you in faith
+and glorify your might, O compassionate, we creatures of clay with those
+of fire; for we know no other but you, and cry out to those who sing
+your praise: I am with you, and no one against you.
 
 Glory. Both now.
 
 **Theotokion.**
 
-Look upon us, all-praised Mother of God, shine illumination on darkened hearts, and give light to your flock, O Immaculate; for whatever you wish you can do, as Mother of your Creator, and cry out to those who beseech you: I am with you, and no one against you.
+Look upon us, all-praised Mother of God, shine illumination on darkened
+hearts, and give light to your flock, O Immaculate; for whatever you
+wish you can do, as Mother of your Creator, and cry out to those who
+beseech you: I am with you, and no one against you.
 
 ****
 
 Ode 7.
 
-Unity with triple light by persons, bestow on me a vigorous mind to keep and to guard your divine commandments and always to chant to you with faith: Blessed are you, the God of our Fathers.
+Unity with triple light by persons, bestow on me a vigorous mind to keep
+and to guard your divine commandments and always to chant to you with
+faith: Blessed are you, the God of our Fathers.
 
-As praised with identity of nature, God ineffably single but by persons bearing the number of the Trinity, guard us all from temptations and calamities of many kinds.
+As praised with identity of nature, God ineffably single but by persons
+bearing the number of the Trinity, guard us all from temptations and
+calamities of many kinds.
 
-We glorify you, one God by essence, consubstantial and co-eternal, unconfused in properties of persons, O Trinity, putting forward the difference simply, in form clearly unchanging.
+We glorify you, one God by essence, consubstantial and co-eternal,
+unconfused in properties of persons, O Trinity, putting forward the
+difference simply, in form clearly unchanging.
 
 ****
 
 Theotokion.
 
-The God who is beyond being clearly assumed our matter from your pure womb, O Immaculate, and taught all to cry out: Blessed are you who bore God in the flesh.
+The God who is beyond being clearly assumed our matter from your pure
+womb, O Immaculate, and taught all to cry out: Blessed are you who bore
+God in the flesh.
 
 ****
 
 Ode 8.
 
-Speedily grant me atonement of offences and redemption from passions of many kinds, O consubstantial Trinity and Unity of three persons, that I may glorify you to all the ages.
+Speedily grant me atonement of offences and redemption from passions of
+many kinds, O consubstantial Trinity and Unity of three persons, that I
+may glorify you to all the ages.
 
-Proclaimed as the One who desires mercy, as merciful God have mercy, O Unity of triple light and consubstantial Trinity, on all who glorify your majesty.
+Proclaimed as the One who desires mercy, as merciful God have mercy, O
+Unity of triple light and consubstantial Trinity, on all who glorify
+your majesty.
 
-We glorify with faith co-eternal light from eternal light, the Word begotten from the Father, with the Spirit, light proceeding forth, and highly exalt them to all the ages.
+We glorify with faith co-eternal light from eternal light, the Word
+begotten from the Father, with the Spirit, light proceeding forth, and
+highly exalt them to all the ages.
 
 ****
 
 Theotokion.
 
-You gave birth, O Immaculate, to a physician for humankind, the all-powerful Word, Christ the Lord, who heals of the ancestral wound all those who highly exalt him to the ages.
+You gave birth, O Immaculate, to a physician for humankind, the
+all-powerful Word, Christ the Lord, who heals of the ancestral wound all
+those who highly exalt him to the ages.
 
 ****
 
 Ode 9.
 
-The ranks of Cherubim, Master, unable to look at the glory of your beauty, veiled by their wings unceasingly cry aloud the triple hymn as they glorify the three-personned might of your single Godhead.
+The ranks of Cherubim, Master, unable to look at the glory of your
+beauty, veiled by their wings unceasingly cry aloud the triple hymn as
+they glorify the three-personned might of your single Godhead.
 
-O Sun who never set, grant your radiance to the hearts of your servants, enlighten their souls and ransom them from many offences, O only all-merciful and Three-personned, and count us worthy of your unsullied life.
+O Sun who never set, grant your radiance to the hearts of your servants,
+enlighten their souls and ransom them from many offences, O only
+all-merciful and Three-personned, and count us worthy of your unsullied
+life.
 
-O Godhead, who are light of equal honour and of triple sun and which gives light, illumine those who sing you with faith and deliver them from gloomy evil doing, and count them worthy of your shining tabernacles, O supremely good.
+O Godhead, who are light of equal honour and of triple sun and which
+gives light, illumine those who sing you with faith and deliver them
+from gloomy evil doing, and count them worthy of your shining
+tabernacles, O supremely good.
 
 ****
 
 Theotokion.
 
-With wisdom your Son fashioned humankind of old, O Virgin, and when it had been corrupted refashioned through you, O all-praised, and filled with the brightness of the divine that knows no evening all those who ever glorify you as true Mother of God.
+With wisdom your Son fashioned humankind of old, O Virgin, and when it
+had been corrupted refashioned through you, O all-praised, and filled
+with the brightness of the divine that knows no evening all those who
+ever glorify you as true Mother of God.
 
-------------------------------------------------------------------------
+-----
 
-All texts and translations on this page are copyright to
+All texts and translations on this page are copyright to  
 Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**
+

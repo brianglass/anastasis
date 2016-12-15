@@ -1,14 +1,22 @@
-\[ [Home](index.md) \] \[ [Up](triodion.md) \] \[ [Readings](readLent.md) \] \[ [Tax Collector and Pharisee](PubPharE.md) \] \[ [Prodigal Son](ProdigalE.md) \] \[ Cheese Week \] \[ [Sunday of Orthodoxy](sunday_of_orthodoxy.md) \] \[ [Sunday of the Cross](sunday_of_the_cross.md) \] \[ [Palm Sunday](palm.md) \] \[ [Holy Week](holyweek.md) \] \[ [Carnival Week](carnival_week.md) \]
+\[ [Home](index.md) \] \[ [Up](triodion.md) \]
+\[ [Readings](readLent.md) \]
+\[ [Tax Collector and Pharisee](PubPharE.md) \]
+\[ [Prodigal Son](ProdigalE.md) \] \[ Cheese Week \]
+\[ [Sunday of Orthodoxy](sunday_of_orthodoxy.md) \]
+\[ [Sunday of the Cross](sunday_of_the_cross.md) \]
+\[ [Palm Sunday](palm.md) \] \[ [Holy Week](holyweek.md) \]
+\[ [Carnival Week](carnival_week.md) \]
 
-[Monday Vespers](CheeseMonVes.md)
-[Tuesday Vespers](CheeseTueVes.md)
-[Wednesday Vespers](CheeseWedVes.md)
-[Thursday Vespers](CheeseThuVes.md)
+[Monday Vespers](CheeseMonVes.md)  
+[Tuesday Vespers](CheeseTueVes.md)  
+[Wednesday Vespers](CheeseWedVes.md)  
+[Thursday Vespers](CheeseThuVes.md)  
 [Cheese Sunday](cheese.md)
 
-------------------------------------------------------------------------
+-----
 
-All texts and translations on this page are copyright to
+All texts and translations on this page are copyright to  
 Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
+

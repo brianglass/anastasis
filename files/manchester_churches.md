@@ -1,4 +1,8 @@
-\[ [Home](index.md) \] \[ [Liturgical Texts](liturgic.md) \] \[ [Voice of the Fathers](voiceof.md) \] \[ [Songs of the Fathers](songsof.md) \] \[ [Obiter Scripta](obiter_scripta.md) \] \[ Manchester Churches \] \[ [York and Durham](york_and_durham.md) \]
+\[ [Home](index.md) \] \[ [Liturgical Texts](liturgic.md) \]
+\[ [Voice of the Fathers](voiceof.md) \]
+\[ [Songs of the Fathers](songsof.md) \]
+\[ [Obiter Scripta](obiter_scripta.md) \] \[ Manchester Churches \]
+\[ [York and Durham](york_and_durham.md) \]
 
 <table>
 <colgroup>
@@ -86,9 +90,10 @@ Email: <a href="mmailto:f_bishoy90@hotmail.com">f_bishoy90@hotmail.com</a></p>
 
  
 
-------------------------------------------------------------------------
+-----
 
-All texts and translations on this page are copyright to
+All texts and translations on this page are copyright to  
 Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
+

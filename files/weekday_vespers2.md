@@ -1,72 +1,107 @@
-\[ [Home](index.md) \] \[ [Up](tone3.md) \] \[ [Saturday Evening](sat3ec.md) \] \[ [Sunday Midnight](sun3nc.md) \] \[ [Sunday Matins](sun3mc.md) \] \[ [Monday Matins](monday_matins2.md) \] \[ [Tuesday Matins](tuesday_matins2.md) \] \[ [Thursday Matins](thursday_matins3.md) \] \[ Weekday Vespers \]
+\[ [Home](index.md) \] \[ [Up](tone3.md) \]
+\[ [Saturday Evening](sat3ec.md) \] \[ [Sunday Midnight](sun3nc.md) \]
+\[ [Sunday Matins](sun3mc.md) \]
+\[ [Monday Matins](monday_matins2.md) \]
+\[ [Tuesday Matins](tuesday_matins2.md) \]
+\[ [Thursday Matins](thursday_matins3.md) \] \[ Weekday Vespers \]
 
-ON SUNDAY EVENING
-=================
+# ON SUNDAY EVENING
 
 ****
 
 At
 
-Lord, I have cried, **Prosomia of the Lord.
+Lord, I have cried, **Prosomia of the Lord.  
 Save me, Lord my God.**
 
-I have sinned, Lord my God, I have sinned against you. O Word, be merciful to me, do not reject me, do not despise me, but as alone compassionate and merciful, accept me as I repent and give me power, O Saviour, to do your statutes, for you alone are compassionate.
+I have sinned, Lord my God, I have sinned against you. O Word, be
+merciful to me, do not reject me, do not despise me, but as alone
+compassionate and merciful, accept me as I repent and give me power, O
+Saviour, to do your statutes, for you alone are compassionate.
 
-Come, Lord, and take me from the hands of the opponent, for I have been willingly enslaved to the deceiver and have deserted your commandments, O Compassionate. Give me time for repentance and bring me to the light of compunction, that I may lament my fall, O Saviour.
+Come, Lord, and take me from the hands of the opponent, for I have been
+willingly enslaved to the deceiver and have deserted your commandments,
+O Compassionate. Give me time for repentance and bring me to the light
+of compunction, that I may lament my fall, O Saviour.
 
-Rescue my soul from hardness, Lord my God, and grant me showers of tears, that I may wash away the shame of my iniquities. I am in darkness, make me shine. Give me the light of your knowledge, that I make walk in your holy commandments.
+Rescue my soul from hardness, Lord my God, and grant me showers of
+tears, that I may wash away the shame of my iniquities. I am in
+darkness, make me shine. Give me the light of your knowledge, that I
+make walk in your holy commandments.
 
 ****
 
-Other Stichera, of the Bodiless Powers.
+Other Stichera, of the Bodiless Powers.  
 Great is the power of your Cross.
 
-You gave existence to choirs of Bodiless beings, Lord, revealing to all the wealth of your goodness. And from non-existence you brought them into the being of your glory that is beyond the mind, to glorify you now with never silent voices.
+You gave existence to choirs of Bodiless beings, Lord, revealing to all
+the wealth of your goodness. And from non-existence you brought them
+into the being of your glory that is beyond the mind, to glorify you now
+with never silent voices.
 
-Great is the power of your Angels, O Christ, for being bodiless they hasten throughout the world, guarding the Churches with the strength that comes from you, Master, and they make entreaty for the whole inhabited world.
+Great is the power of your Angels, O Christ, for being bodiless they
+hasten throughout the world, guarding the Churches with the strength
+that comes from you, Master, and they make entreaty for the whole
+inhabited world.
 
-You Powers, Virtues, Angels, Archangels, Seraphim and Thrones, Principalities, Dominions and Cherubim of the ineffable glory and truly perfect wisdom, intercede now for the whole inhabited world.
+You Powers, Virtues, Angels, Archangels, Seraphim and Thrones,
+Principalities, Dominions and Cherubim of the ineffable glory and truly
+perfect wisdom, intercede now for the whole inhabited world.
 
 Glory. Both now.
 
 **Theotokion. Same melody.**
 
-As through you we have obtained great benefits, O Immaculate, with the Angels we honour your Offspring, who in his supreme compassion vouchsafed to be born from your womb and to refashion the human race.
+As through you we have obtained great benefits, O Immaculate, with the
+Angels we honour your Offspring, who in his supreme compassion
+vouchsafed to be born from your womb and to refashion the human race.
 
 ****
 
 Aposticha of Compunction.
 
-We offer you an evening hymn, O Christ, with incense and spiritual songs; have mercy, Saviour, on our souls.
+We offer you an evening hymn, O Christ, with incense and spiritual
+songs; have mercy, Saviour, on our souls.
 
 ****
 
 Verse 1.
 
-To you I lift up my eyes, to you who are enthroned in the heavens. As the eyes of servants look to the hand of their master: or as the eyes of a maid toward the hand of her mistress, so our eyes look to the Lord our God: until he show us his mercy. ****
+To you I lift up my eyes, to you who are enthroned in the heavens. As
+the eyes of servants look to the hand of their master: or as the eyes of
+a maid toward the hand of her mistress, so our eyes look to the Lord our
+God: until he show us his mercy. ****
 
 Model melody.
 
-Save me, Lord my God, for you are the salvation of all. The tempest of the passions affrights me and the weight of my iniquities pulls me under. Give me your hand of help and lead me up to the light of compunction, for you alone are compassionate and lover of humankind.
+Save me, Lord my God, for you are the salvation of all. The tempest of
+the passions affrights me and the weight of my iniquities pulls me
+under. Give me your hand of help and lead me up to the light of
+compunction, for you alone are compassionate and lover of humankind.
 
 ****
 
 Verse 2.
 
-Have mercy on us, O Lord, have mercy upon us: for we have our fill of derision; our soul has its fill. Mockery for those at ease: and derision for the proud. ****
+Have mercy on us, O Lord, have mercy upon us: for we have our fill of
+derision; our soul has its fill. Mockery for those at ease: and derision
+for the proud. ****
 
 Of the Martyrs. Model melody.
 
-Great is the power of your Cross, O Lord; for it was fixed in a place and is active in the world; it made Apostles of fishermen and Martyrs from nations, that they might intercede on behalf of our souls.
+Great is the power of your Cross, O Lord; for it was fixed in a place
+and is active in the world; it made Apostles of fishermen and Martyrs
+from nations, that they might intercede on behalf of our souls.
 
 Glory. Both now.
 
 **Theotokion.**
 
-Honoured first of Saints, praise of the heavenly hosts, hymn of Apostles, whole contents of the Prophets, Sovereign Lady, accept our supplications also.
+Honoured first of Saints, praise of the heavenly hosts, hymn of
+Apostles, whole contents of the Prophets, Sovereign Lady, accept our
+supplications also.
 
-ON MONDAY EVENING
-=================
+# ON MONDAY EVENING
 
 ****
 
@@ -76,54 +111,76 @@ Lord, I have cried**, Prosomia of the Lord.**
 
 Great is the power of your Cross.
 
-The passions of both soul and body rising terribly in revolt, my Saviour, are drowning me and dragging me down to the deep of despair; but lull them, as once you did the sea, and give me calm.
+The passions of both soul and body rising terribly in revolt, my
+Saviour, are drowning me and dragging me down to the deep of despair;
+but lull them, as once you did the sea, and give me calm.
 
-Condemned, I have no boldness at all to gaze on heaven’s height, dragged down by the multitude of my faults; so as the Publican I cry, ‘Have mercy on me in my wretchedness, O Saviour’.
+Condemned, I have no boldness at all to gaze on heaven’s height, dragged
+down by the multitude of my faults; so as the Publican I cry, ‘Have
+mercy on me in my wretchedness, O Saviour’.
 
-Great and fearful will be your coming, Master, when you take your seat and pass just judgement. Do not judge me then as one condemned, but as God spare me and free me from the constraint to come.
+Great and fearful will be your coming, Master, when you take your seat
+and pass just judgement. Do not judge me then as one condemned, but as
+God spare me and free me from the constraint to come.
 
 ****
 
 Of the Forerunner. Same melody.
 
-As the dawn you rose on all the ends of the earth, enlightening the hearts of those who sing your praise, glorious Prophet; and so enlighten our minds and our souls to honour you, the Saviour’s Baptist.
+As the dawn you rose on all the ends of the earth, enlightening the
+hearts of those who sing your praise, glorious Prophet; and so enlighten
+our minds and our souls to honour you, the Saviour’s Baptist.
 
-Blessed Forerunner, do not cease to intercede for all the world, we all beseech you; so that we, enriched with you as intercessor, may receive grace from on high to trample down the head of the evil-intentioned.
+Blessed Forerunner, do not cease to intercede for all the world, we all
+beseech you; so that we, enriched with you as intercessor, may receive
+grace from on high to trample down the head of the evil-intentioned.
 
-When the Lord is about to separate me from this corruptible dwelling, then may I find in you an aid and protection, O John, Forerunner and Prophet, to guide me to the light that knows no evening.
+When the Lord is about to separate me from this corruptible dwelling,
+then may I find in you an aid and protection, O John, Forerunner and
+Prophet, to guide me to the light that knows no evening.
 
 Glory. Both now.
 
 **Theotokion. Same melody.**
 
-Do not cease to intercede for your flock, but by your intercessions deliver us from the threat to come and from every hurt that awaits us, and snatch your servants from the anger of the Lord, O Mother of God.
+Do not cease to intercede for your flock, but by your intercessions
+deliver us from the threat to come and from every hurt that awaits us,
+and snatch your servants from the anger of the Lord, O Mother of God.
 
 ****
 
 Aposticha of Compunction.
 
-We offer you an evening hymn, O Christ, with incense and spiritual songs; have mercy, Saviour, on our souls.
+We offer you an evening hymn, O Christ, with incense and spiritual
+songs; have mercy, Saviour, on our souls.
 
 ****
 
 Model melody.
 
-Save me, Lord my God, for you are the salvation of all. The tempest of the passions affrights me and the weight of my iniquities pulls me under. Give me your hand of help and lead me up to the light of compunction, O only compassionate and lover of mankind.
+Save me, Lord my God, for you are the salvation of all. The tempest of
+the passions affrights me and the weight of my iniquities pulls me
+under. Give me your hand of help and lead me up to the light of
+compunction, O only compassionate and lover of mankind.
 
 ****
 
 Of the Martyrs. Great is the power of your Cross.
 
-Great is the power of your Martyrs, O Christ; for they lie in their graves and they drive out spirits, and they destroyed the authority of the foe when they struggled by the faith of the Trinity for the sake of true religion.
+Great is the power of your Martyrs, O Christ; for they lie in their
+graves and they drive out spirits, and they destroyed the authority of
+the foe when they struggled by the faith of the Trinity for the sake of
+true religion.
 
 Glory. Both now.
 
 **Theotokion.**
 
-Mother of God, the protection of all who ask, in you we take courage, in you we make our boast, in you is all our hope; intercede with him who was born of you on behalf of your unprofitable servants.
+Mother of God, the protection of all who ask, in you we take courage, in
+you we make our boast, in you is all our hope; intercede with him who
+was born of you on behalf of your unprofitable servants.
 
-ON TUESDAY EVENING
-==================
+# ON TUESDAY EVENING
 
 ****
 
@@ -133,47 +190,69 @@ Lord, I have cried**, Prosomia of the Cross.**
 
 Tone 3. Great is the power of your Cross.
 
-Creation was changed at your Crucifixion, O Word; the sun withdrew its rays in fear, the veil of the temple was rent and every believer was saved; therefore we glorify your measureless riches.
+Creation was changed at your Crucifixion, O Word; the sun withdrew its
+rays in fear, the veil of the temple was rent and every believer was
+saved; therefore we glorify your measureless riches.
 
-He who is both God and Master assumed our flesh through pity, was nailed to the Tree and lifted us up by being lifted up himself in body, as he was well pleased, through the compassion of his mercy.
+He who is both God and Master assumed our flesh through pity, was nailed
+to the Tree and lifted us up by being lifted up himself in body, as he
+was well pleased, through the compassion of his mercy.
 
-Drops of blood and water, which flowed from God, refashioned the world as they poured from your side. With the water, as you are compassionate, you wash away the sins of all, while with the blood, Lord, you write out their pardon.
+Drops of blood and water, which flowed from God, refashioned the world
+as they poured from your side. With the water, as you are compassionate,
+you wash away the sins of all, while with the blood, Lord, you write out
+their pardon.
 
 ****
 
 Other Stichera, of the Mother of God. Same melody.
 
-I lying on the bed of my indifference, I have passed the length of my life in sloth, and I tremble at the hour of my departure, but rouse me to repentance by your intercession, O Maiden, and save me.
+I lying on the bed of my indifference, I have passed the length of my
+life in sloth, and I tremble at the hour of my departure, but rouse me
+to repentance by your intercession, O Maiden, and save me.
 
-Heal the pain of my heart, O Pure one, stop the wandering of my mind and grant that I may sing your praise with a pure heart, ask for grace and find mercy on the day of judgement.
+Heal the pain of my heart, O Pure one, stop the wandering of my mind and
+grant that I may sing your praise with a pure heart, ask for grace and
+find mercy on the day of judgement.
 
-Cast away, my humble soul, the burdens of wickedness that are hard to bear, and draw near, weeping and crying out, ‘Grant, pure Virgin, that I may bear the light yoke of your Son and God’.
+Cast away, my humble soul, the burdens of wickedness that are hard to
+bear, and draw near, weeping and crying out, ‘Grant, pure Virgin, that I
+may bear the light yoke of your Son and God’.
 
 Glory, Both now.
 
 **Cross-Theotokion. Same melody.**
 
-A sword passed through your heart, O All-pure, when you looked towards your Son on the Cross, and you cried out, ‘Do not leave me childless, my Son and my God, who kept me virgin after childbirth!’
+A sword passed through your heart, O All-pure, when you looked towards
+your Son on the Cross, and you cried out, ‘Do not leave me childless, my
+Son and my God, who kept me virgin after childbirth\!’
 
 ****
 
 Aposticha of the Cross.
 
-I worship your precious Cross, O Christ, the guardian of the world, the salvation of us sinners, the great expiation, the victory of the King, the boast of the whole inhabited world.
+I worship your precious Cross, O Christ, the guardian of the world, the
+salvation of us sinners, the great expiation, the victory of the King,
+the boast of the whole inhabited world.
 
-A tree of disobedience sprouted death for the world; the tree of the Cross life and incorruption; and so we worship you, the crucified Lord. May the light of your face be marked upon us.
+A tree of disobedience sprouted death for the world; the tree of the
+Cross life and incorruption; and so we worship you, the crucified Lord.
+May the light of your face be marked upon us.
 
-Prophets, Apostles and Martyrs of Christ taught that a consubstantial Trinity should be praised and they enlightened the nations that had gone astray and made the children of men fellows of the Angels.
+Prophets, Apostles and Martyrs of Christ taught that a consubstantial
+Trinity should be praised and they enlightened the nations that had gone
+astray and made the children of men fellows of the Angels.
 
 Glory, Both now.
 
-**Cross-Theotokion.
+**Cross-Theotokion.  
 Great is the power of your Cross.**
 
-When she saw you nailed to the Cross, my Christ, the Lamb who gave you birth, without blemish and your Mother, with weeping lamented and cried out, ‘Do not make me childless, whom you kept pure after childbirth!’
+When she saw you nailed to the Cross, my Christ, the Lamb who gave you
+birth, without blemish and your Mother, with weeping lamented and cried
+out, ‘Do not make me childless, whom you kept pure after childbirth\!’
 
-ON WEDNESDAY EVENING
-====================
+# ON WEDNESDAY EVENING
 
 ****
 
@@ -183,50 +262,75 @@ Lord, I have cried**, Prosomia of the Apostles.**
 
 Tone 3. Great is the power of your Cross.
 
-At the intercessions of your honoured Apostles, O Lover of humankind, pitying and alone merciful, grant peace to your people, and deliver from troubles those who sing your praise and faithfully worship you.
+At the intercessions of your honoured Apostles, O Lover of humankind,
+pitying and alone merciful, grant peace to your people, and deliver from
+troubles those who sing your praise and faithfully worship you.
 
-As eye-witnesses of God, deliver me from the darts of the boaster, quenching his villainies. Bedew me, sweltering in the heat of sins, with the dew of the spirit, my godlike Benefactors.
+As eye-witnesses of God, deliver me from the darts of the boaster,
+quenching his villainies. Bedew me, sweltering in the heat of sins, with
+the dew of the spirit, my godlike Benefactors.
 
-Truly your godlike sound has gone out into all the inhabited world, Apostles of the Lord, enlightened those who sit in darkness and offered to God, like incense, those who know him.
+Truly your godlike sound has gone out into all the inhabited world,
+Apostles of the Lord, enlightened those who sit in darkness and offered
+to God, like incense, those who know him.
 
 ****
 
 Others of St Nicholas. Same melody.
 
-You have been revealed to us as a mighty salvation for all, thrice-blessed Nicholas; for you deliver your servants from dangers of every kind, from constraint, from trials, diseases, troubles and invisible foes.
+You have been revealed to us as a mighty salvation for all,
+thrice-blessed Nicholas; for you deliver your servants from dangers of
+every kind, from constraint, from trials, diseases, troubles and
+invisible foes.
 
-A prodigal, I have been struck by a poisonous sting and I lie perishing; by your unsleeping prayer, High Priest, raise me quickly that I may glorify your grace, so quick to hear.
+A prodigal, I have been struck by a poisonous sting and I lie perishing;
+by your unsleeping prayer, High Priest, raise me quickly that I may
+glorify your grace, so quick to hear.
 
-In that dread hour in which I am to stand before the dreadful judgement seat and to be sent to punishment, as you have freedom to speak, may I find you as my helper, O High Priest, I implore you, to deliver me from darkness.
+In that dread hour in which I am to stand before the dreadful judgement
+seat and to be sent to punishment, as you have freedom to speak, may I
+find you as my helper, O High Priest, I implore you, to deliver me from
+darkness.
 
 Glory. Both now.
 
 **Theotokion. Same melody.**
 
-Lady, Bride of God, who have dominion over all creatures, with the medicine of your intercession quickly free my soul dreadfully dominated by the passions and enslave it to your Son and God.
+Lady, Bride of God, who have dominion over all creatures, with the
+medicine of your intercession quickly free my soul dreadfully dominated
+by the passions and enslave it to your Son and God.
 
 ****
 
 Aposticha of the Apostles.
 
-Your sound has gone out into all the earth, holy Apostles; you abolished the error of idols by preaching the knowledge of God; this is your good fight, blessed Saints, and so we hymn and glorify your memories.
+Your sound has gone out into all the earth, holy Apostles; you abolished
+the error of idols by preaching the knowledge of God; this is your good
+fight, blessed Saints, and so we hymn and glorify your memories.
 
-Blamelessly keeping Christ’s commands, holy Apostles, freely you received, freely you give, curing the passions of our souls and bodies; and so as you have freedom to speak, implore him to have mercy on our souls.
+Blamelessly keeping Christ’s commands, holy Apostles, freely you
+received, freely you give, curing the passions of our souls and bodies;
+and so as you have freedom to speak, implore him to have mercy on our
+souls.
 
 ****
 
 Of the Martyrs.
 
-Your Martyrs, Lord, strengthened by faith, confirmed by hope, united in soul by love of your Cross, destroyed the tyranny of the foe, and having gained their crowns, they intercede with the Bodiless Powers on behalf of our souls.
+Your Martyrs, Lord, strengthened by faith, confirmed by hope, united in
+soul by love of your Cross, destroyed the tyranny of the foe, and having
+gained their crowns, they intercede with the Bodiless Powers on behalf
+of our souls.
 
 Glory. Both. now.
 
 **Theotokion.**
 
-O Maiden, you are the joy of Angels, glory of the Apostles, seal of Prophets, protection and saving guide of faithful humans; and so we worship you, O Virgin.
+O Maiden, you are the joy of Angels, glory of the Apostles, seal of
+Prophets, protection and saving guide of faithful humans; and so we
+worship you, O Virgin.
 
-ON THURSDAY EVENING
-===================
+# ON THURSDAY EVENING
 
 ****
 
@@ -236,50 +340,80 @@ Lord, I have cried**, Prosomia of the Cross.**
 
 Tone 3. Great is the power of your Cross.
 
-All creation has been sanctified by your Blood and by holy water, O only Long-suffering; while the rivers of polytheism were dried up and Adam has been saved from the fall, O Word, by your Crucifixion.
+All creation has been sanctified by your Blood and by holy water, O only
+Long-suffering; while the rivers of polytheism were dried up and Adam
+has been saved from the fall, O Word, by your Crucifixion.
 
-Lover of humankind, who are above all honour, you were reviled for our sake, given vinegar to drink, and willingly endured the Cross, that by your death, O Benefactor, you might redeem us all from corruption.
+Lover of humankind, who are above all honour, you were reviled for our
+sake, given vinegar to drink, and willingly endured the Cross, that by
+your death, O Benefactor, you might redeem us all from corruption.
 
-Willingly you were fixed on the Tree, O supremely good, and offered as a sacrifice to the Father for our sake, and you ended the sacrifices of idols and abolished the might of the ill-intentioned, O King of the ages.
+Willingly you were fixed on the Tree, O supremely good, and offered as a
+sacrifice to the Father for our sake, and you ended the sacrifices of
+idols and abolished the might of the ill-intentioned, O King of the
+ages.
 
 ****
 
 Other stichera, of the Mother of God. On the mountain Moses.
 
-Cloud of the light that never sets, Maiden graced by God, blessed Mary, ignite the light of repentance for me, who am senselessly held in the darkness of sin, deliver me by your supplications from the fire of Gehenna and darkness without light, and make me a sharer in the day that knows no evening, for I flee to your protection, O All-Immaculate.
+Cloud of the light that never sets, Maiden graced by God, blessed Mary,
+ignite the light of repentance for me, who am senselessly held in the
+darkness of sin, deliver me by your supplications from the fire of
+Gehenna and darkness without light, and make me a sharer in the day that
+knows no evening, for I flee to your protection, O All-Immaculate.
 
-All-merciful Virgin who bore him who wishes mercy, implore him to have mercy on my humble soul, which has slipped down into the deep of destruction, truly the assaults of the foe; do not now despise my supplication, do not turn your compassion from your servant, O Maiden, through your measureless compassion.
+All-merciful Virgin who bore him who wishes mercy, implore him to have
+mercy on my humble soul, which has slipped down into the deep of
+destruction, truly the assaults of the foe; do not now despise my
+supplication, do not turn your compassion from your servant, O Maiden,
+through your measureless compassion.
 
-The one who deceived Adam in Eden into disobeying God, has ensnared me too, turning me from the straight path, and has cast me into the pathless pit of many sins, and the wretch brags as he sees me utterly fallen. With the sword of your intercessions therefore strike him, O Virgin, and deliver me from his snares as you are compassionate.
+The one who deceived Adam in Eden into disobeying God, has ensnared me
+too, turning me from the straight path, and has cast me into the
+pathless pit of many sins, and the wretch brags as he sees me utterly
+fallen. With the sword of your intercessions therefore strike him, O
+Virgin, and deliver me from his snares as you are compassionate.
 
 Glory. Both now.
 
 **Theotokion. Great is the power of your Cross.**
 
-When you saw him who was born of you hanging on the Tree, All-Blameless, you cried aloud with lamentations, ‘My Child, so deeply loved, where has your beauty set, that beauty bearing light which gave beauty to the human race?’
+When you saw him who was born of you hanging on the Tree, All-Blameless,
+you cried aloud with lamentations, ‘My Child, so deeply loved, where has
+your beauty set, that beauty bearing light which gave beauty to the
+human race?’
 
 ****
 
 Aposticha of the Cross.
 
-I worship your precious Cross, O Christ, the guardian of the world, the salvation of us sinners, the great expiation, the victory of the King, the boast of the whole inhabited world.
+I worship your precious Cross, O Christ, the guardian of the world, the
+salvation of us sinners, the great expiation, the victory of the King,
+the boast of the whole inhabited world.
 
-A tree of disobedience sprouted death for the world; the tree of the Cross life and incorruption; and so we worship you, the crucified Lord. May the light of your face be marked upon us.
+A tree of disobedience sprouted death for the world; the tree of the
+Cross life and incorruption; and so we worship you, the crucified Lord.
+May the light of your face be marked upon us.
 
 ****
 
 Of the Martyrs. Model melody.
 
-Great is the power of your Cross, O Lord, for it was fixed in one place, but acts in the world, and it made Apostles of fishermen, Martyrs from pagan nations, that they might intercede for our souls.
+Great is the power of your Cross, O Lord, for it was fixed in one place,
+but acts in the world, and it made Apostles of fishermen, Martyrs from
+pagan nations, that they might intercede for our souls.
 
 Glory. Both now.
 
 **Cross-Theotokion.**
 
-‘The world has found mercy, O Word, by your Crucifixion, creation has been enlightened, the nations have found salvation, O Master’, cried the All-pure Virgin, ‘but now I am wounded, as I see your voluntary passion’.
+‘The world has found mercy, O Word, by your Crucifixion, creation has
+been enlightened, the nations have found salvation, O Master’, cried the
+All-pure Virgin, ‘but now I am wounded, as I see your voluntary
+passion’.
 
-ON FRIDAY EVENING
-=================
+# ON FRIDAY EVENING
 
 ****
 
@@ -289,33 +423,57 @@ Lord, I have cried**, Prosomia of the Lord.**
 
 Tone 3. Great is the power of your Cross.
 
-Make me a temple of your holy Spirit, O my Christ, cleansing the impurities of my faults, for now I am a lodging place of demons. Cast them out, as of old you cast out those who defiled your temple.
+Make me a temple of your holy Spirit, O my Christ, cleansing the
+impurities of my faults, for now I am a lodging place of demons. Cast
+them out, as of old you cast out those who defiled your temple.
 
-O Lord, who wish to save all, sinners and just, as you are compassionate, and that none should perish, make me too one of the saved, though I have lived heedlessly and disregarded your commands, O Word.
+O Lord, who wish to save all, sinners and just, as you are
+compassionate, and that none should perish, make me too one of the
+saved, though I have lived heedlessly and disregarded your commands, O
+Word.
 
-You slept in the tomb as human, O Christ, but with invincible power you arose and raised up with you all those who dwelt in the graves since time began; and so, to those who have fallen asleep in faith give rest in everlasting tabernacles.
+You slept in the tomb as human, O Christ, but with invincible power you
+arose and raised up with you all those who dwelt in the graves since
+time began; and so, to those who have fallen asleep in faith give rest
+in everlasting tabernacles.
 
 ****
 
 Others, of the Mother of God. To the same melody.
 
-I am blown about incessantly like a reed by the gusts of the foe, O Virgin; but take pity on your servant and do not let me be buffeted to the end by his squalls, but establish me in the faith of the Lord.
+I am blown about incessantly like a reed by the gusts of the foe, O
+Virgin; but take pity on your servant and do not let me be buffeted to
+the end by his squalls, but establish me in the faith of the Lord.
 
-The tempest of the passions that incessantly seizes and suffocates me troubles my humble soul and pushes me into the deep of despair; but do you, Pure Lady, transform this storm to deep calm.
+The tempest of the passions that incessantly seizes and suffocates me
+troubles my humble soul and pushes me into the deep of despair; but do
+you, Pure Lady, transform this storm to deep calm.
 
-O Virgin, implore the One born of you to guard your flock unharmed from every assault of the hostile devil; and empower us all to fulfil his will, O Maiden.
+O Virgin, implore the One born of you to guard your flock unharmed from
+every assault of the hostile devil; and empower us all to fulfil his
+will, O Maiden.
 
 Glory. Both now.
 
 **Theotokion.**
 
-How should we not marvel at your Offspring, who is both God and man, all-honoured one? For without knowing man, O all-blameless, you gave birth in the flesh to a Son without father, begotten from the Father before the ages without mother, in no way undergoing change, or mixture or separation, but preserving intact the identity of each nature. Therefore, Sovereign Lady, Virgin Mother, implore him that the souls may be saved of those who with right belief acknowledge you as Mother of God.
+How should we not marvel at your Offspring, who is both God and man,
+all-honoured one? For without knowing man, O all-blameless, you gave
+birth in the flesh to a Son without father, begotten from the Father
+before the ages without mother, in no way undergoing change, or mixture
+or separation, but preserving intact the identity of each nature.
+Therefore, Sovereign Lady, Virgin Mother, implore him that the souls may
+be saved of those who with right belief acknowledge you as Mother of
+God.
 
 ****
 
 Aposticha of the Martyrs. Great is the power of your Cross.
 
-Great is the power of your Martyrs, O Christ; for they lie in their graves and they drive out spirits, and they destroyed the authority of the foe when they struggled by the faith of the Trinity for the sake of true religion.
+Great is the power of your Martyrs, O Christ; for they lie in their
+graves and they drive out spirits, and they destroyed the authority of
+the foe when they struggled by the faith of the Trinity for the sake of
+true religion.
 
 ****
 
@@ -323,7 +481,9 @@ Verse 1:
 
 ** God is wonderful in his Saints.
 
-Prophets, Apostles and Martyrs of Christ taught that a Trinity should be hymned, and they enlightened the nations that had gone astray and made the children of men fellows of the Angels.
+Prophets, Apostles and Martyrs of Christ taught that a Trinity should be
+hymned, and they enlightened the nations that had gone astray and made
+the children of men fellows of the Angels.
 
 ****
 
@@ -331,27 +491,38 @@ Verse 2:
 
 For the Saints in his land the Lord has done wonders.
 
-Your Martyrs, Lord, strengthened by faith, confirmed by hope, united in soul by love of your Cross, destroyed the tyranny of the foe, and having gained their crowns they intercede with the Bodiless Powers on behalf of our souls.
+Your Martyrs, Lord, strengthened by faith, confirmed by hope, united in
+soul by love of your Cross, destroyed the tyranny of the foe, and having
+gained their crowns they intercede with the Bodiless Powers on behalf of
+our souls.
 
 ****
 
 Verse 3:
 
-Blessed are those whom you have chosen and taken; they will dwell in your courts. ****
+Blessed are those whom you have chosen and taken; they will dwell in
+your courts. ****
 
 Of the Dead.
 
-All things human which do not survive after death are vanity; wealth does not endure, glory does journey with us; for when death arrives all these things vanish. And so let us cry out to Christ the immortal King, ‘Give rest to those who have passed from us to the place where all who rejoice in you have their dwelling’.
+All things human which do not survive after death are vanity; wealth
+does not endure, glory does journey with us; for when death arrives all
+these things vanish. And so let us cry out to Christ the immortal King,
+‘Give rest to those who have passed from us to the place where all who
+rejoice in you have their dwelling’.
 
 Glory. Both now.
 
 **Theotokion.**
 
-Mother of God, holy among women, Mother without bridegroom, intercede with the King and God to whom you gave birth to save us as he loves humankind.
+Mother of God, holy among women, Mother without bridegroom, intercede
+with the King and God to whom you gave birth to save us as he loves
+humankind.
 
-------------------------------------------------------------------------
+-----
 
-All texts and translations on this page are copyright to
+All texts and translations on this page are copyright to  
 Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
+

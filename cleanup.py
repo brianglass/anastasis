@@ -7,7 +7,7 @@ from lxml import etree, html
 
 parser = html.HTMLParser(encoding='latin-1')
 pipeline = pipes.Template()
-pipeline.append('pandoc -S -f html -t markdown_github', '--')
+pipeline.append('pandoc -S -f html -t commonmark', '--')
 
 def replace_tag(old_element, new_element):
     parent = old_element.getparent()
@@ -51,10 +51,6 @@ def transform(filename):
     # Pandoc passes this through, cluttering up the final markdown
     for node in tree.xpath('//span[@class="MsoFootnoteReference"]'):
         node.drop_tag()
-
-    for node in tree.xpath('//p[@class="MsoFootnoteText"]/a[@href]'):
-        etree.strip_attributes(node, 'href', 'style', 'title')
-        print(etree.tostring(node))
 
     return etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
 

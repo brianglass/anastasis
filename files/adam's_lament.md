@@ -1,309 +1,240 @@
 \[ [Home](index.md) \] \[ [Up](AnonKont.md) \]
 
-ON ADAM
-=======
+# ON ADAM
 
-<span style="mso-bidi-font-size: 10.0pt"></span>
+# ’S LAMENT
 
-’S LAMENT
-=========
+## INTRODUCTION
 
-<span style="mso-bidi-font-size: 10.0pt"></span>
+The anonymous Kontakion on Adam’s Lament is one of the earliest we
+possess and is probably of the fifth century and pre-dates those of St
+Romanos. It is still used in the office of Matins for the Sunday before
+Lent, where the Proemium is followed not, as is usual, by the first
+stanza of the hymn only, but by four, numbers 1 to 3 and 7. The text in
+the Triodion differs in places from that of the critical edition,
+notably in the refrain, which is in the first person, ’Have mercy on me
+who have fallen’. In the third line of stanza 7 the Triodion has,
+’Implore God for the one who has fallen’, which does not scan.
 
-INTRODUCTION
-------------
+The last four stanzas, which correspond to the word ADAM in the
+acrostic, are almost certainly spurious, though they occur in all but
+one of the MSS. Stanza 18, which begins, ’Now therefore, Saviour’ forms
+a concluding prayer, which is feature of the classic kontakion and the
+following stanzas are not really about Adam at all, but are simply a
+series of commonplaces of inferior quality.
 
-The anonymous Kontakion on Adam’s Lament is one of the earliest we possess and is probably of the fifth century and pre-dates those of St Romanos. It is still used in the office of Matins for the Sunday before Lent, where the Proemium is followed not, as is usual, by the first stanza of the hymn only, but by four, numbers 1 to 3 and 7. The text in the Triodion differs in places from that of the critical edition, notably in the refrain, which is in the first person, ’Have mercy on me who have fallen’. In the third line of stanza 7 the Triodion has, ’Implore God for the one who has fallen’, which does not scan.
+-----
 
-The last four stanzas, which correspond to the word ADAM in the acrostic, are almost certainly spurious, though they occur in all but one of the MSS. Stanza 18, which begins, ’Now therefore, Saviour’ forms a concluding prayer, which is feature of the classic kontakion and the following stanzas are not really about Adam at all, but are simply a series of commonplaces of inferior quality.
+# **ON ADAM’S LAMENT**
 
-------------------------------------------------------------------------
+Acrostic:* *On The First-Formed, \[Adam\]
 
-<span style="mso-bidi-font-size: 10.0pt"></span>
+Proemium
 
-**ON ADAM’S LAMENT**
-====================
+Guide of wisdom, giver of prudence, 
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Acrostic:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"> </span>*<span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;text-transform:uppercase">On The First-Formed, \[Adam\]</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+   
+          Teacher of the foolish and defender of the poor,
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
-font-style:normal">Proemium</span>
+  
+          Establish, give understanding to my heart, Master;
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Guide of wisdom, giver of prudence, </span>
-
- <span style="mso-tab-count:1">
-          </span>Teacher of the foolish and defender of the poor,
-
-<span style="mso-tab-count:1">
-          </span>Establish, give understanding to my heart, Master;
-
+  
 Give me a word, Word of the Father;
 
-<span style="mso-tab-count:1">
-          </span>For see, my lips I shall not restrain from crying to you:
+  
+          For see, my lips I shall not restrain from crying to you:
 
-<span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the fallen. </span>
+  
+                    O Merciful, have mercy on the fallen. 
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">1</span>
+1
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Then Adam sat and wept opposite<a href="#_ftn1" id="_ftnref1">[1]</a><span style="mso-tab-count:1">
-          </span>The delight of Paradise beating his eyes with his hands<span style="mso-tab-count:1">
-          </span>And he said:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Then Adam sat and wept opposite[\[1\]](#_ftn1)  
+          The delight of Paradise beating his eyes with his hands  
+          And he said:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">2</span>
+2
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">As Adam saw<span style="mso-spacerun: yes">  </span>the Angel pushing and shutting<span style="mso-tab-count:1">
-          </span>The door of God’s garden he groaned aloud<span style="mso-tab-count:1">
-          </span>And said:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+As Adam saw  the Angel pushing and shutting  
+          The door of God’s garden he groaned aloud  
+          And said:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">3</span>
+3
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Share in the pain, O Paradise, of your beggared master<span style="mso-tab-count:1">
-          </span>And with the sound of your leaves implore the creator<span style="mso-tab-count:1">
-          </span>Not to shut you:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Share in the pain, O Paradise, of your beggared master  
+          And with the sound of your leaves implore the creator  
+          Not to shut you:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">4</span>
+4
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Bend down your trees like living beings and fall before<span style="mso-tab-count:1">
-          </span>Him who holds the key, that thus you may remain open<span style="mso-tab-count:1">
-          </span>For one who cries:
-</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Bend down your trees like living beings and fall before  
+          Him who holds the key, that thus you may remain open  
+          For one who cries:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">5</span>
+5
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">I breathe the fragrance<span style="mso-spacerun:
-yes">   </span>of your beauty<span style="mso-spacerun: yes">   </span>and I melt<span style="mso-spacerun: yes">   </span>as I recall<span style="mso-tab-count:1">
-          </span>How I delighted there<span style="mso-spacerun: yes">   </span>from the sweet scent<span style="mso-tab-count:1">
-          </span>Of the flowers:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+I breathe the fragrance   of your beauty   and I melt   as I recall  
+          How I delighted there   from the sweet scent  
+          Of the flowers:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">6</span>
+6
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Now I have learnt<span style="mso-spacerun: yes">   </span>what I suffered,<span style="mso-spacerun: yes">   </span>now I have understood<span style="mso-spacerun: yes">   </span>what God<span style="mso-tab-count:1">
-          </span>Said to me in Paradise,<span style="mso-spacerun: yes">   </span>‘In taking Eve<span style="mso-tab-count:1">
-          </span>You steal away from me’:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Now I have learnt   what I suffered,   now I have understood   what
+God  
+          Said to me in Paradise,   ‘In taking Eve  
+          You steal away from me’:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">7</span>
+7
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Paradise,<span style="mso-spacerun: yes">   </span>all virtue,<span style="mso-spacerun: yes">   </span>all holiness,<span style="mso-spacerun: yes">   </span>all happiness,
-<span style="mso-tab-count:1">          </span>Planted because of Adam,<span style="mso-spacerun: yes">   </span>shut because of Eve,<span style="mso-tab-count:1">
-          </span>How shall I lament for you?</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Paradise,   all virtue,   all holiness,   all happiness,  
+          Planted because of Adam,   shut because of Eve,  
+          How shall I lament for you?  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">8</span>
+8
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">I am polluted,<span style="mso-spacerun: yes">   </span>I am ruined,<span style="mso-spacerun: yes">   </span>I am enslaved<span style="mso-spacerun: yes">   </span>to my slaves;<span style="mso-tab-count:1">
-          </span>For reptiles and wild beats,<span style="mso-spacerun: yes">   </span>whom I subjected by fear,<span style="mso-tab-count:1">
-          </span>Now make me tremble;</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+I am polluted,   I am ruined,   I am enslaved   to my slaves;  
+          For reptiles and wild beats,   whom I subjected by fear,  
+          Now make me tremble;  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">9</span>
+9
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">No longer<span style="mso-spacerun: yes">   </span>do the flowers<span style="mso-spacerun: yes">   </span>offer me<span style="mso-spacerun: yes">   </span>pleasure,<span style="mso-tab-count:1">
-          </span>But thorns and thistles <a href="#_ftn2" id="_ftnref2">[2]</a> the earth raises for me,<span style="mso-tab-count:1">
-          </span>Not produce:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+No longer   do the flowers   offer me   pleasure,  
+          But thorns and thistles [\[2\]](#_ftn2) the earth raises for
+me,  
+          Not produce:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">10</span>
+10
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">The table<span style="mso-spacerun: yes">   </span>without toil<span style="mso-spacerun: yes">   </span>I overthrew<span style="mso-spacerun: yes">   </span>by my own will;<span style="mso-tab-count:1">
-          </span>And now<span style="mso-spacerun: yes">   </span>in the sweat<span style="mso-spacerun: yes">   </span>of my brow<span style="mso-spacerun:
-yes">   </span>I eat<span style="mso-tab-count:1">
-          </span>My bread:<a href="#_ftn3" id="_ftnref3">[3]</a></span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+The table   without toil   I overthrew   by my own will;  
+          And now   in the sweat   of my brow   I eat  
+          My bread:[\[3\]](#_ftn3)  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">11</span>
+11
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">My throat,<span style="mso-spacerun: yes">   </span>which holy<span style="mso-spacerun: yes">   </span>waters<span style="mso-spacerun: yes">   </span>had made sweet,<span style="mso-tab-count:1">
-          </span>Has become bitter from the multitude<span style="mso-spacerun: yes">   </span>of my groans,<span style="mso-tab-count:1">
-          </span>As I cry out:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+My throat,   which holy   waters   had made sweet,  
+          Has become bitter from the multitude   of my groans,  
+          As I cry out:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">12</span>
+12
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">How have I fallen?<span style="mso-spacerun:
-yes">   </span>Where have I arrived?<span style="mso-spacerun: yes">   </span>From a pedestal<span style="mso-spacerun: yes">   </span>to the ground;<span style="mso-tab-count:1">
-          </span>From a divine admonition<span style="mso-spacerun: yes">   </span>to a wretched existence<span style="mso-tab-count:1">
-          </span>I have been reduced:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+How have I fallen?   Where have I arrived?   From a pedestal   to the
+ground;  
+          From a divine admonition   to a wretched existence  
+          I have been reduced:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">13</span>
+13
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Now Satan<span style="mso-spacerun: yes">   </span>rejoices<span style="mso-spacerun: yes">   </span>having stripped me<span style="mso-spacerun: yes">   </span>of my glory;<span style="mso-tab-count:1">
-          </span>But this gives him no joy;<span style="mso-spacerun: yes">   </span>for see, my God<span style="mso-tab-count:1">
-          </span>Clothes me:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Now Satan   rejoices   having stripped me   of my glory;  
+          But this gives him no joy;   for see, my God  
+          Clothes me:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">14</span>
+14
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">God himself<span style="mso-spacerun: yes">   </span>pitied me,<span style="mso-spacerun: yes">   </span>clothes<span style="mso-spacerun: yes">   </span>my nakedness;<span style="mso-tab-count:1">
-          </span>By this he shows me<span style="mso-spacerun: yes">   </span>that he too cares<span style="mso-tab-count:1">
-          </span>For me, the transgressor:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+God himself   pitied me,   clothes   my nakedness;  
+          By this he shows me   that he too cares  
+          For me, the transgressor:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">15</span>
+15
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">The clothing<span style="mso-spacerun: yes">   </span>signifies for me<span style="mso-spacerun: yes">   </span>the state<span style="mso-spacerun: yes">   </span>that is to come,<span style="mso-tab-count:1">
-          </span>For the one who has now clothed me<span style="mso-spacerun: yes">   </span>in a little while wears me<span style="mso-tab-count:1">
-          </span>And saves me:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+The clothing   signifies for me   the state   that is to come,  
+          For the one who has now clothed me   in a little while wears
+me  
+          And saves me:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">16</span>
+16
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">‘Swiftly Adam<span style="mso-spacerun: yes">   </span>you have understood<span style="mso-spacerun: yes">   </span>the wish<span style="mso-spacerun: yes">   </span>of my compassion;<span style="mso-tab-count:1">
-          </span>Therefore I do not deprive you<span style="mso-spacerun: yes">   </span>of this your hope<span style="mso-tab-count:1">
-          </span>As you cry:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+‘Swiftly Adam   you have understood   the wish   of my compassion;  
+          Therefore I do not deprive you   of this your hope  
+          As you cry:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">17</span>
+17
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">I do not wish<span style="mso-spacerun: yes">   </span>nor do I will<span style="mso-spacerun: yes">   </span>the death<span style="mso-spacerun: yes">   </span>of the one I fashioned;<span style="mso-tab-count:1">
-          </span>But having chastened him enough<span style="mso-spacerun: yes">   </span>I will glorify eternally<span style="mso-tab-count:1">
-          </span>The one who cries:</span><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.’
+I do not wish   nor do I will   the death   of the one I fashioned;  
+          But having chastened him enough   I will glorify eternally  
+          The one who cries:  
+                    O Merciful, have mercy on the one who has fallen.’
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">18</span>
+18
 
-Now therefore, Saviour,<span style="mso-spacerun: yes">   </span>save me also<span style="mso-spacerun: yes">   </span>who seek for you<span style="mso-spacerun: yes">   </span>with longing;<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:1">
-          </span>I do not wish to take you in,<span style="mso-spacerun: yes">   </span>but I wish to be taken in by you<a href="#_ftn4" id="_ftnref4">[4]</a><span style="mso-tab-count:1">
-          </span>And to cry to you:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Now therefore, Saviour,   save me also   who seek for you   with
+longing;  
+          I do not wish to take you in,   but I wish to be taken in by
+you[\[4\]](#_ftn4)  
+          And to cry to you:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[19\]<a href="#_ftn5" id="_ftnref5">[5]</a></span>
+\[19\][\[5\]](#_ftn5)
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">\[O incomparable,<span style="mso-spacerun: yes">   </span>all-holy,<span style="mso-spacerun: yes">   </span>all-immaculate<span style="mso-spacerun: yes">   </span>look down<span style="mso-tab-count:1">
-          </span>From heaven as compassionate<span style="mso-spacerun: yes">   </span>and save me as unworthily<span style="mso-tab-count:1">
-          </span>I shout:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+\[O incomparable,   all-holy,   all-immaculate   look down  
+          From heaven as compassionate   and save me as unworthily  
+          I shout:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[20\]<span style="color:red"></span></span>
+\[20\]
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Rouse<span style="mso-spacerun: yes">    </span>my mind to<span style="mso-spacerun: yes">   </span>praise,<span style="mso-spacerun: yes">   </span>raise up<span style="mso-tab-count:1">
-          </span>The one who lies sick in bed,<span style="mso-spacerun: yes">   </span>who unworthily, Saviour,<span style="mso-tab-count:1">
-          </span>Cries to you:</span><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.
+Rouse    my mind to   praise,   raise up  
+          The one who lies sick in bed,   who unworthily, Saviour,  
+          Cries to you:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[21\]<span style="color:red"></span></span>
+\[21\]
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Raise up<span style="mso-spacerun: yes">   </span>make firm,<span style="mso-spacerun: yes">   </span>O Lover of mankind,<span style="mso-spacerun: yes">   </span>the one who has now<span style="mso-tab-count:1">
-          </span>Stumbled as a profligate in life;<span style="mso-spacerun: yes">   </span>draw near me, Saviour,<span style="mso-tab-count:1">
-          </span>As I cry:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-tab-count:
-1">
-          </span><span style="mso-tab-count:1">          </span>O Merciful, have mercy on the one who has fallen.</span>
+Raise up   make firm,   O Lover of mankind,   the one who has now  
+          Stumbled as a profligate in life;   draw near me, Saviour,  
+          As I cry:  
+                    O Merciful, have mercy on the one who has fallen.
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[22\]<span style="color:red"></span></span>
+\[22\]
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">Unity, Trinity<span style="mso-spacerun: yes">   </span>undivided<span style="mso-spacerun: yes">   </span>unseparated,<span style="mso-spacerun: yes">   </span>at the prayers<span style="mso-tab-count:1">
-          </span>Of the Mother of God take pity on me<span style="mso-spacerun: yes">   </span>and overlook the sins<span style="mso-tab-count:1">
-          </span>Of those who cry:<span style="mso-tab-count:1">
-                    </span>O Merciful, have mercy on the one who has fallen.\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"></span>
+Unity, Trinity   undivided   unseparated,   at the prayers  
+          Of the Mother of God take pity on me   and overlook the sins  
+          Of those who cry:  
+                    O Merciful, have mercy on the one who has fallen.\]
 
-------------------------------------------------------------------------
+  
 
-<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:25 (LXX). </span><span style="font-size:12.0pt;mso-bidi-font-size:
-13.5pt;font-family:&quot;Book Antiqua&quot;">The first line of Stanza 1 echoes the LXX text of Genesis 3:24, which reads ’And \[God\] settled Adam opposite the Paradise of pleasure and set in place the Cherubim’. This rendering has influenced both the liturgical and the iconographic traditions. The Hebrew has only one verb, ’And \[God\] settled east of the garden of Eden the Cherubim’. The Catholic *New American Bible* has adopted the LXX reading as the correct one.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+-----
 
-<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:18.</span>
+[\[1\]](#_ftnref1) Cf. Gen. 3:25 (LXX). The first line of Stanza 1
+echoes the LXX text of Genesis 3:24, which reads ’And \[God\] settled
+Adam opposite the Paradise of pleasure and set in place the Cherubim’.
+This rendering has influenced both the liturgical and the iconographic
+traditions. The Hebrew has only one verb, ’And \[God\] settled east of
+the garden of Eden the Cherubim’. The Catholic *New American Bible* has
+adopted the LXX reading as the correct one.
 
-<span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"> </span><span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:20.</span>
+[\[2\]](#_ftnref2) Cf. Gen. 3:18.
 
-<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">The trope in the second line of Stanza 18 is almost impossible to translate. The verb I have translated ’take in’ in both clauses is the same, and means both ’cheat’ and ’steal’.</span><span style="font-size:12.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+ [\[3\]](#_ftnref3) Cf. Gen. 3:20.
 
-<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These stanzas, 19-22, are considered spurious by the editor, though they are present in all but one <span style="font-variant:small-caps;">ms</span>. 18 forms a final prayer, which is feature of the classic kontakion, and the final stanzas, which form the word ADAM in the acrostic seem to be an unnecessary addition. They are not really about Adam at all and greatly inferior in quality, being simply a collection of commonplaces.</span>
+[\[4\]](#_ftnref4) The trope in the second line of Stanza 18 is almost
+impossible to translate. The verb I have translated ’take in’ in both
+clauses is the same, and means both ’cheat’ and ’steal’.
+
+[\[5\]](#_ftnref5) These stanzas, 19-22, are considered spurious by the
+editor, though they are present in all but one
+<span style="font-variant:small-caps;">ms</span>. 18 forms a final
+prayer, which is feature of the classic kontakion, and the final
+stanzas, which form the word ADAM in the acrostic seem to be an
+unnecessary addition. They are not really about Adam at all and greatly
+inferior in quality, being simply a collection of commonplaces.
 
  
 
@@ -324,9 +255,10 @@ Archimandrite Ephrem ©</p>
 
  
 
-------------------------------------------------------------------------
+-----
 
-All texts and translations on this page are copyright to
+All texts and translations on this page are copyright to  
 Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
+
