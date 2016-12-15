@@ -227,6 +227,7 @@ Both now.
 
 aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

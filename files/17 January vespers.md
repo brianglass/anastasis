@@ -50,7 +50,8 @@ Entrance,
 
 ‘O Joyful Light’. **Prokeimenon of the day and the Readings. \[See the [Prophetologion for January](readings_for_january.md)\]**
 
-At the Liti, Idiomel Stichera. Tone 2. By the Studite.
+At the Liti, Idiomel Stichera.
+Tone 2. By the Studite.
 
 Constructing an ascetic gymnasium on earth, Venerable Antony, you blunted all the assaults of the passions with the stream of your tears. Your godly way of life was acknowledged for all as a ladder leading up to heaven; for by it you displayed the fruits of true religion, and through them you the diseases of the passions of those who cry to with faith, ‘Hail, radiant golden star of the East, torchbearer and shepherd of Monastics! Hail, fairest offspring of the desert, and unshakeable bulwark of the Church! Hail, great guide of those who gone astray! Hail, our boast, and bright glory of the inhabited world!
 
@@ -86,7 +87,8 @@ Virgin Mother of God, we the faithful call you blessed and glorify you as is fit
 
 ****
 
-At the Aposticha Prosomia Stichera. Tone 5. Hail, of ascetics.
+At the Aposticha Prosomia Stichera.
+Tone 5. Hail, of ascetics.
 
 Hail, prince of ascetics and their undefeated champion, for cutting out the roots of the passions and withstanding the assaults of the demons, you triumphed over their enfeeblements and their soul-destroying error. You displayed the unconquerable power of the Saviour’s Cross. Clothed in it you conquered all those who reject Christ’s divine manifestation through flesh. Implore him to grant our souls his great mercy.
 
@@ -128,6 +130,7 @@ Glory. Both now. **Theotokion.**
 
 The mystery hidden from all eternity and unknown to Angels, has been revealed to those on earth through you, O Mother of God: God being made flesh in a union without confusion, and willingly accepting the Cross for us, through which he raised the first-formed man and saved our souls from death.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 25 January 2007**

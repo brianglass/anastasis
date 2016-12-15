@@ -13,7 +13,8 @@ The holy Maccabees, whose names are, Aveim, Antony, Gourias, Eleazar, Efsevonas,
 
 **From today we begin the fast of the Mother of God.**
 
-**Apolytikia. Of the Saints. Tone 1. Model Melody. \[Common\]**
+**Apolytikia.
+Of the Saints. Tone 1. Model Melody. \[Common\]**
 
 Be entreated by the sufferings, which the Saints endured for you, O Lord; and heal all our pains, we beg, O Lover of mankind.
 
@@ -257,7 +258,8 @@ For Bartholomew see 11 June. Titus was a Greek by race and an idolater by religi
 
 Holy Apostles, intercede with the merciful God to grant our souls forgiveness of sins.
 
-**Kontakia: Of Saint Bartholomew. Tone 1. The soldiers watching.**
+**Kontakia:
+Of Saint Bartholomew. Tone 1. The soldiers watching.**
 
 The return of your most holy relics has become for us the reason for a most radiant festival, Apostle of the Lord. As we reverence it, with devout minds we honour you, Bartholomew, the lamp that does not set, as we magnify Christ.
 
@@ -329,6 +331,7 @@ God of our Fathers, who always deal with us in your forbearance, do not deprive 
 
 Ever-Virgin Mother of God, protection of mortals, you have given the Apparel and the Girdle of your most pure body as a mighty bulwark to your City, for by your giving birth without seed they have remained incorrupt. For in you both nature and time are made new. Therefore we implore you to grant peace to the inhabited world, and to our souls God’s great mercy. 
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

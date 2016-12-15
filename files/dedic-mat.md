@@ -10,7 +10,8 @@ At
 
 the Lord is God **the Apolytikia as at Vespers.**
 
-After the 1st Reading from the Psalter, Kathisma. Tone 8.
+After the 1st Reading from the Psalter, Kathisma.
+Tone 8.
 
 Taking counsel.
 
@@ -18,7 +19,8 @@ Christ revealed the Tent of Witness, godlike Moses set it up on earth and Solomo
 
 **(Twice)**
 
-After the 2nd Reading from the Psalter, Kathisma. Tone 8.
+After the 2nd Reading from the Psalter, Kathisma.
+Tone 8.
 
 The Wisdom and Word.
 
@@ -28,7 +30,8 @@ Creator of ineffable wisdom, you prepared the heavens as a throne and called the
 
 (Twice)
 
-After the Polyeleos, Kathisma. Tone 4.
+After the Polyeleos, Kathisma.
+Tone 4.
 
 Speedily anticipate.
 
@@ -341,6 +344,7 @@ The Bishop’s white garment, the ‘katasarkion’ of the Table, the four piece
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

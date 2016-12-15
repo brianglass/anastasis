@@ -19,7 +19,15 @@
 
 [Stanza 3](kontak16.md)
 
-1.  This is a reference to the tradition that when the infant Jesus reached Egypt, when the holy family fled from Bethlehem \[Matt. 2,13-15\], all the Egyptian idols fell down. The starting point is Isa. 19,1, from which the story was built up in many of the apocryphal infancy gospels, for example the Gospel of Pseudo-Matthew 22-24. The same story is mentioned in the Akathist L: Making the light of truth Shine out in Egypt, You dispelled the darkness of falsehood. For its idols, O Saviour, Unable to endure your strength, fell down. While those who had been delivered from them Cried out the Mother of God, Hail, Bride without bridegroom!
+1.  This is a reference to the tradition that when the infant Jesus reached Egypt, when the holy family fled from Bethlehem \[Matt. 2,13-15\], all the Egyptian idols fell down. The starting point is Isa. 19,1, from which the story was built up in many of the apocryphal infancy gospels, for example the Gospel of Pseudo-Matthew 22-24. The same story is mentioned in the Akathist L:
+    Making the light of truth
+    Shine out in Egypt,
+    You dispelled the darkness of falsehood.
+    For its idols, O Saviour,
+    Unable to endure your strength, fell down.
+    While those who had been delivered from them
+    Cried out the Mother of God,
+    Hail, Bride without bridegroom!
 
 [Stanza 4](kontak16.md)
 
@@ -62,7 +70,16 @@ This phrase, ‘as you are rich’, is the reading of the majority of MSS, but a
 
 Zach. 9,9.
 
-For the general problem of this line, see the previous notes. The MSS evidence is overwhelmingly in favour of this text, but all MSS also add ‘Blessed are you’, which is metrically impossible. As a result the Oxford editors obelise the whole line. The reference is of course to Col. 2:14. The origin of this metaphor, which is very frequent in the liturgical texts, is Colossians 2,14, where St Paul speaks of Christ ‘wiping out the record against us,…nailing it to the Cross’. The word *cheirographon* is a technical term from accountancy and means ‘a certificate of debt’, a ‘bond’, such as Shylock obtains in *The Merchant of Venice*. Such documents could be rubbed out and the materiel used again. This is the image St Paul uses, but it is more common in the liturgical texts to speak of Christ ‘tearing up the bond’, as here and in the Akathist, X: Wishing to give discharge From ancient debts The one who releases all mankind from their debts Made his home of his own will With those who had left the home of his grace, And having torn up the record, He hears from all, Alleluia! In this connection it is worth remarking that translations like ‘who tore up the handwriting of our sins‘ in some of the liturgical texts are simply pious waffle. The image is highly concrete and secular. We humans are bad debtors, who cannot honour their obligations. As in the parable of the two debtors, Christ, by his death, simply tears up the invoice. Moreover, it is wholly regrettable that modern versions of the Lord‘s Prayer, including the ‘ecumenical‘ one produced by ELLC, also remove the metaphor. One may hope the Orthodox will insist on the retention of the Lord‘s own metaphor.
+For the general problem of this line, see the previous notes. The MSS evidence is overwhelmingly in favour of this text, but all MSS also add ‘Blessed are you’, which is metrically impossible. As a result the Oxford editors obelise the whole line. The reference is of course to Col. 2:14. The origin of this metaphor, which is very frequent in the liturgical texts, is Colossians 2,14, where St Paul speaks of Christ ‘wiping out the record against us,…nailing it to the Cross’. The word *cheirographon* is a technical term from accountancy and means ‘a certificate of debt’, a ‘bond’, such as Shylock obtains in *The Merchant of Venice*. Such documents could be rubbed out and the materiel used again. This is the image St Paul uses, but it is more common in the liturgical texts to speak of Christ ‘tearing up the bond’, as here and in the Akathist, X:
+Wishing to give discharge
+From ancient debts
+The one who releases all mankind from their debts
+Made his home of his own will
+With those who had left the home of his grace,
+And having torn up the record,
+He hears from all,
+Alleluia!
+In this connection it is worth remarking that translations like ‘who tore up the handwriting of our sins‘ in some of the liturgical texts are simply pious waffle. The image is highly concrete and secular. We humans are bad debtors, who cannot honour their obligations. As in the parable of the two debtors, Christ, by his death, simply tears up the invoice. Moreover, it is wholly regrettable that modern versions of the Lord‘s Prayer, including the ‘ecumenical‘ one produced by ELLC, also remove the metaphor. One may hope the Orthodox will insist on the retention of the Lord‘s own metaphor.
 
 [Stanza 11](kontak16.md)
 
@@ -92,6 +109,7 @@ For the general problem of this line, see the previous notes. The MSS evidence i
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

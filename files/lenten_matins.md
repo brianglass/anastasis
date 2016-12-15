@@ -51,7 +51,10 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Reader:
 
-Amen. Lord, have mercy. **(x12)** Glory. Both now. Come, let us worship and fall down before the King our God. Come, let us worship and fall down before Christ the King our God. Come, let us worship and fall down before Christ himself, the King, our God. ****
+Amen. Lord, have mercy. **(x12)** Glory. Both now.
+Come, let us worship and fall down before the King our God.
+Come, let us worship and fall down before Christ the King our God.
+Come, let us worship and fall down before Christ himself, the King, our God. ****
 
 Psalm 19
 
@@ -151,7 +154,8 @@ Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your ar
 
 And again.
 
-Do not forsake me, Lord; my God, do not go far from me. Hasten to help me, Lord of my salvation.
+Do not forsake me, Lord; my God, do not go far from me.
+Hasten to help me, Lord of my salvation.
 
 ****
 
@@ -161,7 +165,8 @@ O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh h
 
 And again.
 
-Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me.
+Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice.
+My soul clung to you; and your right hand upheld me.
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
@@ -181,7 +186,8 @@ Lord, God of my salvation, I have cried by day, and by night also before you. Le
 
 And again.
 
-Lord, God of my salvation, I have cried by day; and by night also before you. Let my prayer come into your presence, and turn your ear to my supplication.
+Lord, God of my salvation, I have cried by day; and by night also before you.
+Let my prayer come into your presence, and turn your ear to my supplication.
 
 ****
 
@@ -336,7 +342,8 @@ On MONDAY— ODE 1
 
 The Song of Moses in Exodus 15
 
-Having utterly drowned Pharaoh in the deep Moses says: Let us sing to the Lord, for he is greatly glorified.
+Having utterly drowned Pharaoh in the deep Moses says:
+Let us sing to the Lord, for he is greatly glorified.
 
 Let us sing to the Lord, for he is greatly glorified: horse and rider he has cast into the sea.
 
@@ -462,7 +469,8 @@ On WEDNESDAY — ODE 3
 
 The Prayer of Anne, the mother of the Prophet Samuel. 1 Reigns 2.
 
-A barren women strangely bearing child praises God. Holy are you, O Lord, and my spirit sings your praise.
+A barren women strangely bearing child praises God.
+Holy are you, O Lord, and my spirit sings your praise.
 
 My heart is established in the Lord, my spirit is exalted in my God: my mouth derides my enemies, I rejoice in your salvation.
 
@@ -514,7 +522,8 @@ On THURSDAY — ODE 4
 
 The Prayer of the Prophet Avvakoum. Chap. 3:1
 
-Avvakoum express the self-emptying of the Word. Glory to your power, O Lord.
+Avvakoum express the self-emptying of the Word.**
+**Glory to your power, O Lord.
 
 Lord, I heard your report and was afraid: Lord I considered your works and was amazed.
 
@@ -586,7 +595,8 @@ On FRIDAY— ODE 5
 
 Prayer of the Prophet Isaias. Chap. 26:9.
 
-Isaias’ prophecy, a perfect prayer. Lord our God give us peace.
+Isaias’ prophecy, a perfect prayer.
+Lord our God give us peace.
 
 From nightfall my spirit is awake for you, O God: for your commands are light upon the earth.
 
@@ -636,7 +646,8 @@ On SATURDAY— ODE 6
 
 Prayer of the Prophet Jonas. Chap. 2:2.
 
-Jonas cried from the beast and said: As you did the prophet Jonas, save us , O Lord.
+Jonas cried from the beast and said:**
+**As you did the prophet Jonas, save us , O Lord.
 
 I cried to the Lord my God in my trouble: and he heard me; from the bowels of hell my cry; you heard my voice.
 
@@ -674,7 +685,8 @@ On SATURDAY — ODE 7
 
 Prayer of the Three Holy Youths. Dan. 3.
 
-Praise of the three holy Youths quenches a flame. Our God and the God of our fathers, blessed are you.
+Praise of the three holy Youths quenches a flame.
+Our God and the God of our fathers, blessed are you.
 
 Blessed are you, O Lord, the God of our fathers: and praised and glorified is your name for evermore.
 
@@ -756,7 +768,8 @@ On ALL DAYS — ODE 8
 
 Hymn of the three holy Youths.
 
-Created nature, sing the Master’s praise. Praise the Lord his works and exalt him above all for ever.
+Created nature, sing the Master’s praise.
+Praise the Lord his works and exalt him above all for ever.
 
 Bless the Lord all you works of the Lord, praise the Lord, and exalt him above all for ever.
 
@@ -816,7 +829,8 @@ THE MAGNIFICAT
 
 Song of the Mother of God.
 
-A maiden mother hymns her Son and God: In hymns God’s Mother now we magnify.
+A maiden mother hymns her Son and God:
+In hymns God’s Mother now we magnify.
 
 My soul magnifies the Lord, and my spirit has rejoiced in God my Saviour.
 
@@ -918,7 +932,8 @@ Through the prayers of the Mother of God, Lord, and save me.
 
 ****
 
-On Saturday we say the Hymn of Light twice. The first time
+On Saturday we say the Hymn of Light twice.
+The first time
 
 Through the prayers of your saints, and save me.
 
@@ -1226,6 +1241,7 @@ And at once
 
 Come let us worship*,* **and the First Hour.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

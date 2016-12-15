@@ -6,7 +6,9 @@ FOR WEEKDAYS WITH NO PRESANCTIFIED
 
 After the Prayer of St Ephrem at the end of the Typika, the Lamplighter goes out and sounds the big simandron. We pray quietly and the Superior reads the Opening Psalm as follows:
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King and our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
@@ -20,7 +22,9 @@ And again
 
 The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (
+Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God. (
 
 **x3**) ****
 
@@ -84,111 +88,134 @@ After the Litany, the appointed Kathisma of the Psalter is read by one Reader.
 
 KATHISMA EIGHTEEN
 
-**Psalm 119 A Song of Ascents.**
+**Psalm 119
+A Song of Ascents.**
 
 When I was afflicted I called to the Lord, and he heard me. O Lord, deliver my soul from unjust lips and from a deceitful tongue. What should be given you, what added to you against a treacherous tongue? The sharpened arrows of the powerful, with the coals of desolation. Woe is me! For my sojourning has been prolonged, I have camped among the encampments of Kedar; my soul has long been a sojourner. With those who hate peace I was peaceable; when I spoke with them, they made war on me for nothing.
 
 ****
 
-Psalm 120 A Song of Ascents.
+Psalm 120
+A Song of Ascents.
 
 I have lifted up my eyes to the mountains. From where will my help come? My help is from the Lord, who made heaven and earth. Do not let your foot waver; may he who guards you not slumber. See, he who guards Israel will neither slumber nor sleep. The Lord will guard you, the Lord is protection for you on your right hand. By day the sun will not scorch you, nor the moon by night. The Lord will guard you from every evil, the Lord will guard your soul. The Lord will guard your coming in, and your going out, from now and for ever more.
 
 ****
 
-Psalm 121 A Song of Ascents.
+Psalm 121
+A Song of Ascents.
 
 I rejoiced at those who said to me: we shall go to the house of the Lord. Our feet were standing in your courts, O Jerusalem. Jerusalem built as a city, shared by all together. For there the tribes went up, the tribes of the Lord, a testimony for Israel, to give thanks to the name of the Lord. For there thrones were set for judgement, thrones over the house of David. Ask then for the things which are for Jerusalem’s peace, and prosperity for those who love you. May there be peace then in your power and prosperity in your citadels. For the sake of my brethren and neighbours, I have spoken peace concerning you. For the sake of the house of the Lord our God, I have sought good things for you.
 
 ****
 
-Psalm 122 A Song of Ascents.
+Psalm 122
+A Song of Ascents.
 
 I have lifted my eyes to you who dwell in heaven. Behold, as the eyes of servants look to their lords’ hands; as the eyes of a maid to her mistress’s hands, so do our eyes to the Lord our God, until he take pity on us. Have mercy on us, Lord, have mercy on us, for we have had our fill of contempt, our soul has been filled to overflowing. Let reproach be for the prosperous, and contempt for the proud.
 
 ****
 
-Psalm 123 A Song of Ascents.
+Psalm 123
+A Song of Ascents.
 
 If the Lord had not been among us, let Israel now say: if the Lord had not been among us when men rose up against us, they would have swallowed us down alive. When their fury raged against us; the water would have drowned us, our soul would have passed through the torrent; our soul would have passed through irresistible water. Blessed is the Lord, who has not given us as a prey to their teeth. Our soul was delivered like a sparrow from the snare of the hunters; the snare was shattered, and we were delivered. Our help is in the name of the Lord who made heaven and earth.
 
 Glory to the Father and to the Son and to the Holy Spirit.
 
-Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God. (
 
-**x3**) Lord, have mercy. Lord, have mercy. Lord, have mercy. Glory to the Father and to the Son and to the Holy Spirit.
+**x3**)
+Lord, have mercy. Lord, have mercy. Lord, have mercy.
+Glory to the Father and to the Son and to the Holy Spirit.
 
 Both now and for ever, and to the ages of ages. Amen.
 
 ****
 
-Psalm 124 A Song of Ascents.
+Psalm 124
+A Song of Ascents.
 
 Those who trust in the Lord, are as Mount Sion; he who dwells in Jerusalem will never be shaken. Mountains encircle her, and the Lord encircles his people from now and for ever. For the Lord will not leave the rod of sinners upon the heritage of the just, lest the just stretch out their hands in iniquities. Do good, Lord, to the good and to the honest in heart. But the Lord will drive away with those who work iniquity those who turn aside to extortions; peace upon Israel.
 
 ****
 
-Psalm 125 A Song of Ascents.
+Psalm 125
+A Song of Ascents.
 
 When the Lord turned back the captivity of Sion, we became as those who are comforted. Then was our mouth filled with joy and our tongue with rejoicing. Then they will say among the nations: the Lord has done great things with them. The Lord has done great things with us, we have become joyful. Turn back our captivity, O Lord, like streams in the south. Those who sow with tears, will reap with joy. They went and as they went they wept, while they sowed their seed. But when they come they will come with joy, as they gather up their sheaves.
 
 ****
 
-Psalm 126 A Song of Ascents.
+Psalm 126
+A Song of Ascents.
 
 Unless the Lord build the house, the builders have toiled for nothing. Unless the Lord guard the city, the watchman has kept vigil for nothing. Your getting up at dawn is for nothing, your rising after sitting, you who eat the bread of sorrow, when he gives sleep to his beloved; see, sons are the Lord’s inheritance , the reward of the fruit of the womb. As arrows in the hand of a powerful man, so are the sons of the rejected. Blessed the man who satisfies his desire with them; they will not be shamed when they speak with their enemies in the gates.
 
 ****
 
-Psalm 127 A Song of Ascents.
+Psalm 127
+A Song of Ascents.
 
 Blessed are all who fear the Lord, who walk in his ways. You will eat the toils of your fruits; you are blest, and it will be well with you. Your wife like a luxuriant vine against the sides of your house. Your sons like new olive shoots around your table. See, that is how one who fears the Lord will be blessed. The Lord bless you from Sion, and may you see the good things of Jerusalem all the days of your life. And may you see your children’s children. Peace upon Israel.
 
 ****
 
-Psalm 128 A Song of Ascents.
+Psalm 128
+A Song of Ascents.
 
 Many times they have made war on me since my youth, let Israel now say. Many times they have made war on me since my youth, and yet they have not prevailed over me. The sinners have wrought upon my back, they have prolonged their iniquity. The Lord is just, he has broken the sinners’ necks. Let all those who hate Sion be shamed and turned back. Let them become like grass on the housetops, which withers before it is uprooted: The reaper has not filled his hand with it, nor the one who gathers the sheaves his bosom. Nor have the passers-by said: The Lord’s blessing be on you. We have blessed you in the name of the Lord.
 
 Glory to the Father and to the Son and to the Holy Spirit.
 
-Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God. (
 
-**x3**) Lord, have mercy. Lord, have mercy. Lord, have mercy. Glory to the Father and to the Son and to the Holy Spirit.
+**x3**)
+Lord, have mercy. Lord, have mercy. Lord, have mercy.
+Glory to the Father and to the Son and to the Holy Spirit.
 
 Both now and for ever, and to the ages of ages. Amen.
 
 ****
 
-Psalm 129 A Song of Ascents.
+Psalm 129
+A Song of Ascents.
 
 Out of the depths I have cried to you, O Lord; Lord, hear my voice; let your ears be attentive to the voice of my supplication. If you note our iniquities, Lord Lord, who will survive? Because forgiveness is with you. For your name’s sake I have waited for you, O Lord; my soul has waited for your word, my soul has hoped in the Lord. From the morning watch until night, from the morning watch, let Israel hope in the Lord. Because with the Lord there is mercy and with him abundant redemption; and he will redeem Israel from all his iniquities.
 
 ****
 
-Psalm 130 A Song of Ascents.
+Psalm 130
+A Song of Ascents.
 
 Lord, my heart has not been exalted, nor have my eyes become lofty, I have neither walked among great affairs, nor among marvels beyond me. If I had not been humble-minded but exalted my soul, like a weaned child towards its mother, so You will requite my soul. Let Israel hope in the Lord, from now and for ever.
 
 ****
 
-Psalm 131 A Song of Ascents.
+Psalm 131
+A Song of Ascents.
 
 Lord remember David and all his meekness, how he swore to the Lord, made a vow to the God of Jacob, I shall not enter the shelter of my house, climb into my bed, give sleep to my eyes, slumber to my eyelids and rest to my temples, until I find a place for the Lord, a tabernacle for the God of Jacob. See, we heard of it in Ephrata, we found it in the woodland fields. We shall enter his tabernacles, we shall worship towards the place where his feet have stood. Arise, Lord, into your rest, you and the ark of your sanctification. Your priests clothe themselves with justice, and your holy ones will rejoice. For David, your servant’s sake, do not turn away the face of your Christ. The Lord has sworn truth to David and he will not annul it, ‘From the fruit of your womb I shall place on your throne. If your sons keep my covenant and these testimonies of mine which I shall teach them, their sons too will sit on your throne for ever. For the Lord has elected Sion, has chosen her as a dwelling for himself. ‘This is my resting-place for age on age; here I shall dwell, for I have chosen her. Her door I shall bless abundantly, her poor I shall fill with bread. Her priests I shall clothe with salvation, and her holy ones will rejoice with great joy. There I shall make the horn of David flourish; I have prepared a lamp for my Christ. I shall clothe his enemies in shame, my sanctification will flower upon him’.
 
 ****
 
-Psalm 132 A Song of Ascents.
+Psalm 132
+A Song of Ascents.
 
 See how good and pleasant it is for brethren to dwell together. Like sweet ointment on the head which runs down upon the beard, Aaron’s beard, which runs down to the hem of his garment; like the dew from Hermon, which runs down upon the mountains of Sion; for there the Lord has commanded the blessing: life for ever more.
 
 ****
 
-Psalm 133 A Song of Ascents.
+Psalm 133
+A Song of Ascents.
 
 Come, now bless the Lord, all you servants of the Lord, who stand in the house of the Lord, in the courts of the house of our God. Lift up your hands by night to the Holy Place, and bless the Lord. May the Lord bless you from Sion, he who made heaven and earth.
 
-Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (
+Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God. (
 
 **x3**) ****
 
@@ -374,7 +401,8 @@ After the Theotokion
 
 Thanksgiving at the Lighting of the Lamps
 
-**An ancient poem, or, as some say, by the Martyr Athenogenes.**
+**
+An ancient poem, or, as some say, by the Martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life. Therefore the world glorifies you.
 
@@ -634,7 +662,8 @@ Reader:
 
 Amen. Lord, have mercy. **(x12)**
 
-                                                On Fridays After the Lord’s Prayer, the Apolytikion and Theotokion of the day followed by the usual Litany and the Prayer of St Ephrem, once, with three prostrations
+                                                On Fridays
+After the Lord’s Prayer, the Apolytikion and Theotokion of the day followed by the usual Litany and the Prayer of St Ephrem, once, with three prostrations
 
 Then the following prayer.
 
@@ -724,6 +753,7 @@ People:
 
 Amen.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

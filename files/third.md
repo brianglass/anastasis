@@ -22,7 +22,8 @@ Verse:
 
 As the hart longs for the springs of waters, so my soul longs for you, O God.
 
-The Reading is from the Prophecy of Isaias. \[
+The Reading is from the Prophecy of Isaias.
+\[
 
 **8,13-22, 9,1-7**\]
 
@@ -106,7 +107,8 @@ The Reading is from the Prophecy of Isaias.
 
 **9,9-21, 10,1-4**\]
 
-Thus says the Lord: All the people of Ephraim will know and those who dwell in Samaria with insolence and an exalted heart, saying: Bricks have fallen, but come, let us hew stones and cut down sycamores and cedars and let us build a tower; and God will dash those who rise against mount Sion against them, \[
+Thus says the Lord: All the people of Ephraim will know and those who dwell in Samaria with insolence and an exalted heart, saying: Bricks have fallen, but come, let us hew stones and cut down sycamores and cedars and let us build a tower; and God will dash those who rise against mount Sion against them,
+\[
 
 The plural, read by the Triodion, is the reading of S and A. The Hebrew is completely different\], and their enemies he will scatter, Syria from the rising of the sun and the Greeks \[The ‘Philistines’ of the Hebrew have become ‘Greeks’ in the LXX.\] from the setting of the sun, those who devour Israel with their whole mouth. In all this his rage was not turned away, but his hand is still upraised. In all this his rage was not turned away, but his hand is still upraised. But the people was not turned away until it was struck, and they did not seek the Lord. And the Lord away from Israel head and tail, great and small in that day, elder and those who marvel at persons (this is the start) and prophet teaching things that are unlawful (this is the tail). And those who call this people blest will lead them astray, and they lead them astray that they may gulp them down. Because of this the Lord will not rejoice at their youths and will not have mercy on their orphans and on their widows, because all are lawless and evil, and every mouth speaks things that are not just. And iniquity will burn like fire and like dry grass it will be devoured by fire; and it will burn in the thickets of the wood, and all that is round about the hills will be devoured. Because of the anger of the Lord the whole land has burned, and the people will be as though burnt up by fire; a man will not have mercy on his brother, but he will turn aside to the right because he will be hungry and he will eat from the left, and a man will by no means be filled by eating the flesh of his arm. For Manasses will eat of Ephraim and Ephraim of Manasses, because together they will besiege Juda. In all this his rage was not turned away, but his hand is still upraised. \[**10:1**\] Woe to those who write evil; for in writing they write evil, turning aside judgement from the poor, snatching judgement from the paupers of my people, so that widows are for plunder and orphans for forage. And what will they do in the day of visitation? Four your trouble will come from afar; and to whom will flee to be helped? And where will you abandon your glory so as not to fall into captivity? In all this his rage was not turned away, but his hand is still upraised.
 
@@ -394,6 +396,7 @@ The mouth of the just distils wisdom, but the tongue of the unjust will perish. 
 
 **11:1**\] Falsified balances are an abomination before the Lord, but a just weight is acceptable to him. Wherever arrogance enters, there too does dishonour; but the mouth of the humble meditates wisdom. The perfection of the upright will guide them, and the overthrow of the rebellious will spoil them. Possessions will profit nothing in a day of wrath, but justice will deliver from death. When a just man dies he has left regret, but the destruction of the ungodly is speedy and brings joy. Justice rightly directs blameless ways, but ungodliness falls in with injustice. The justice of upright men delivers them, but transgressors are caught by their destruction. When a just man has come to his end hope does not perish, but the boast of the ungodly perishes. A just man escapes from a trap, in his stead the ungodly is handed over. In the mouth of the ungodly is a snare for citizens; but the perception of the just is prosperous. By the good things of the just a city prospers, and in the loss of the ungodly there is rejoicing. By the blessing of the upright a city will be exalted, but by the mouth of the ungodly it was overthrown. One lacking in sense sneers at citizens, but a man of prudence brings stillness.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

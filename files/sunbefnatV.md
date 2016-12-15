@@ -10,7 +10,8 @@ AT VESPERS
 
 After the Opening Psalm and the reading of the 1st Kathisma of the Psalter, we insert 10 Stichera and sing those prescribed of the Resurrection, then those of the Forefeast and those of the Holy Fathers.
 
-Prosomia of the Forefeast. Tone 1. All-praised Martyrs.
+Prosomia of the Forefeast. Tone 1.
+All-praised Martyrs.
 
 All-blameless Virgin, living Palace of God, you contained within yourself him whom the heavens cannot contain; beyond understanding you gave birth to him in the Cave, a beggar and incarnate, that he might make me divine and enrich me, made a beggar by the incontinence of bitter eating.
 
@@ -100,6 +101,7 @@ Apolytikion. Tone 4.
 
 Great are the achievements of faith! In the fountain of flame, as by the water of rest, the three holy youths rejoiced, and the Prophet Daniel was revealed shepherding lions like sheep. At their intercessions, Christ God, save our souls.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 18 April 2008**

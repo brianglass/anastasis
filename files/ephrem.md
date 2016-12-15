@@ -1,6 +1,14 @@
 \[ [Home](index.md) \] \[ [Up](voiceof.md) \] \[ [Athanasios of Alexandria](athanasios_of_alexandria.md) \] \[ [Theodore the Studite](theodore.md) \] \[ Ephrem the Syrian \]
 
-[Sermon in Heptasyllablics](ser-hept.md) [Three Short Discourses](3disc.md) [55 Beatitudes](55beat.md) [To the Monks of Egypt](egypt-int.md) [On the Departed Fathers](dead-pat.md) [On Abraham and Isaac](AbrIsaac.md) [On Joseph](on_joseph.md) [On the Transfiguration](on_the_transfiguration.md) [On The Passion](PassSer.md)
+[Sermon in Heptasyllablics](ser-hept.md)
+[Three Short Discourses](3disc.md)
+[55 Beatitudes](55beat.md)
+[To the Monks of Egypt](egypt-int.md)
+[On the Departed Fathers](dead-pat.md)
+[On Abraham and Isaac](AbrIsaac.md)
+[On Joseph](on_joseph.md)
+[On the Transfiguration](on_the_transfiguration.md)
+[On The Passion](PassSer.md)
 
  
 
@@ -9,8 +17,9 @@ SAINT EPHREM THE SYRIAN
 
 **Icon of Saint Ephrem the Syrian**
 
-ASCETICAL AND OTHER WRITINGS EXTANT ONLY IN GREEK
-=================================================
+ASCETICAL AND OTHER WRITINGS
+EXTANT ONLY IN GREEK
+============================
 
 INTRODUCTORY NOTE
 -----------------
@@ -31,6 +40,7 @@ The Introductions, Notes and Translations on these pages are all © by Archimand
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

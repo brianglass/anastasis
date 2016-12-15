@@ -6,7 +6,8 @@ CATECHESIS 103
 ==============
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-color:blue;font-style:normal">On keeping God’s commandments and the just threat against those who neglect them.</span><a href="#_ftn1" id="_ftnref1">[1]</a>
+color:blue;font-style:normal">On keeping God’s commandments
+and the just threat against those who neglect them.</span><a href="#_ftn1" id="_ftnref1">[1]</a>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt">Brethren and fathers, God, who fashioned us and brought us out of non-existence into being,<a href="#_ftn2" id="_ftnref2">[2]</a> has placed us in this life as in a schoolroom to learn to gospel of his kingdom. For this reason too, when he sent out his disciples to preach, he gave them this command, ‘Go and make disciples of all the nations, baptizing them in the name of the Father, the Son and the Holy Spirit, teaching them to observe everything that I have commanded you’.<a href="#_ftn3" id="_ftnref3">[3]</a> But what are the things he commanded? According to the old covenant, to summarise, ‘You shall not murder, you shall not commit adultery, you shall not steal, you shall not bear false witness’.<a href="#_ftn4" id="_ftnref4">[4]</a> According to the new, things that are higher and more precise. For Scripture says, ‘it was said to those of old, ‘You shall not murder’; whoever commits murder will be liable to judgement. But I say to you, everyone who is angry with their brother without good cause will be liable to judgement’.<a href="#_ftn5" id="_ftnref5">[5]</a> Again, ‘it was said to those of old,<a href="#_ftn6" id="_ftnref6">[6]</a> ‘You shall not commit adultery’. But I say to you, everyone who looks at a woman with lust has already committed adultery with her in his heart’.<a href="#_ftn7" id="_ftnref7">[7]</a> Again, ‘it was said, ‘You shall not commit perjury’. But I say to you, you are not to swear at all’.<a href="#_ftn8" id="_ftnref8">[8]</a> Again, ‘it was said, ‘You shall love your neighbour and hate you enemy’. But I say to you, Love your enemies, bless those who curse you, do good to those who hate you’.<a href="#_ftn9" id="_ftnref9">[9]</a> Do you see how great the difference is between the two covenants? The one forbids the acts themselves, while the other the impulses from which the acts come, so that sin may not put down roots from there. If then we are found to be living in accordance with neither law nor Gospel, but rather, as one might say, with paganism, what shall we suffer on that day?<a href="#_ftn10" id="_ftnref10">[10]</a> ‘Do not be led astray’, Scripture says, ‘</span><span style="font-size:14.0pt;
@@ -69,6 +70,7 @@ mso-bidi-font-size:12.0pt;mso-ansi-language:EN-US;mso-bidi-language:HE">Let us c
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

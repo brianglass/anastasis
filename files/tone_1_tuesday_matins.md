@@ -6,6 +6,7 @@ Use the hyperlink below to find the PDF version of this office.
 
 [Tone 1 Tuesday Matins](Tue01mc.pdf)
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 17 February 2007**

@@ -105,6 +105,7 @@ Theotokion
 
 You were born for us from a Virgin, and endured crucifixion, loving Lord; by your death you despoiled Death, and revealed resurrection as God; do not despise those whom you fashioned with your own hand; show us your compassion, O Merciful; accept the Mother of God who bore you as she intercedes for us, and save, our Saviour, a people in despair.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

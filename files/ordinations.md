@@ -1,6 +1,8 @@
 \[ [Home](index.md) \] \[ [Up](eucholog.md) \] \[ [Baptism](baptism.md) \] \[ [Marriage Rites](marriage.md) \] \[ [Anointing of the Sick](anointin.md) \] \[ [Funeral Service](funeral.md) \] \[ [Consecration of a Church](dedic-int.md) \] \[ [Liturgy of Saint James](lit-james.md) \] \[ [Proskomidi](proskomidi.md) \] \[ [Canon for Confession](canon_for_confession.md) \] \[ [Presanctified](presanctified.md) \] \[ Ordinations \]
 
-[Presbyter](presbyter.md) [Deacon](deacon.md) [Woman Deacon](woman_deacon.md)
+[Presbyter](presbyter.md)
+[Deacon](deacon.md)
+[Woman Deacon](woman_deacon.md)
 
 <span style="FONT-SIZE: 24pt; mso-bidi-font-size: 12.0pt"></span>
 
@@ -39,6 +41,7 @@ ORDINATION OF A WOMAN DEACON
 
 <span style="FONT-SIZE: 14pt; mso-bidi-font-size: 10.0pt">Proclaiming the Gospel is primarily the task of the Bishop, who is ordained before the Gospel. The Deacon is the most junior minister who is permitted to read the Gospel in the Christian Assembly.</span>
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

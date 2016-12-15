@@ -121,7 +121,8 @@ Then the usual Litany,
 
 Grant Lord **etc. and after the Ekphonesis we sing the idiomel Sticheron of the Saint of the Monastery as we process into the Narthex. After the usual prayers we return to the Church singing the**
 
-Resurrection Stichera of the Aposticha. Tone 1.
+Resurrection Stichera of the Aposticha.
+Tone 1.
 
 By your Passion, O Christ, we have been freed from passions, and by your Resurrection we have been delivered from corruption. Lord, glory to you.
 
@@ -179,6 +180,7 @@ And the rest of the Office of the Vigil.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

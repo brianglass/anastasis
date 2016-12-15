@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](february.md) \]
 
-**<span style="text-transform: uppercase"> 2 FEBRUARY THE MEETING OF THE LORD</span>**
+**<span style="text-transform: uppercase"> 2 FEBRUARY
+THE MEETING OF THE LORD</span>**
 
 <span style="text-transform: uppercase">at small vespers</span>
 
@@ -20,13 +21,15 @@ Now let the heavenly gate be opened. God the Word, begotten beyond time from the
 
 Glory. Both now.
 
-**Tone 4.** **By Andrew of Crete***.*
+**Tone 4.***
+***By Andrew of Crete***.*
 
 Today the holy Mother, who is higher than the Holy Place, has come to the Holy Place, revealing to the world the Maker of the world and the Giver of the law. Symeon the Elder took him in his arms and cried with veneration, ‘Now you release your servant. For I have seen you, the Saviour of our souls’.
 
 ****
 
-At the Aposticha. Prosomia. Tone 2. O House of Ephratha.
+At the Aposticha. Prosomia.
+Tone 2. O House of Ephratha.
 
 Today the Saviour was brought as a babe into the temple of the Lord, and the Elder receives him with aged arms.
 
@@ -92,7 +95,8 @@ Let heaven’s gate be opened today. For he who is without beginning, the Word o
 
 Entrance, Prokeimenon and the Readings.
 
-The Reading is from Exodus*.* \[
+The Reading is from Exodus*.
+*\[
 
 **12,51- 13,16 and selection**\]
 
@@ -100,13 +104,15 @@ The Lord spoke to Moses on the day on which he brought the children of Israel ou
 
 **Leviticus 12**\] And it shall be that everyone who gives birth to a male child shall circumcise the flesh of its foreskin on the eighth day. And for thirty three days he will not come into the sanctuary of God to the Priest, until the days of purification are completed. And after this he will offer an unblemished yearling lamb to the Lord for a holocaust, and a young pigeon or turtle dove to the Priest at the door of the Tabernacle of Witness. Or instead of these he will offer two young pigeons or two turtle doves. And the Priest will make atonement for him. \[**Numbers**\] Because these have been offered to me as an offering out of all the children of Israel. And I have taken them and sanctified them for myself in place of the first-born of the Egyptians, on the day when I smote every first-born in the land of Egypt from human to beast of burden,’ said God the Most High, the Holy One of Israel.’
 
-The Reading is from the Prophecy of Isaias*.* \[
+The Reading is from the Prophecy of Isaias*.
+*\[
 
 **6,1-12**\]
 
 In the year that King Ozias died, I saw the Lord, seated on a high and exalted throne. And the house was full of his glory. And Seraphim stood around him, the one having six wings and the other having six wings, and with two they covered their faces and with two the feet and with two they flew. And one cried to other and they said, ‘Holy, Holy, Holy, Lord Sabaoth. The whole earth is full of his glory.’ The threshold was lifted up at the voice with which they cried, and the house was filled with smoke. And I said, ‘Woe is me! For I am pricked to the heart, because I, a human being, and with unclean lips dwell among a people with unclean lips, and with my eyes I have seen the King, the Lord Sabaoth.’ And one of the Seraphim was sent to me, and in his hand he held a burning coal, which he had taken with tongs from the altar. And touched my mouth and said, ‘See, this has touched your lips and it will take away your iniquities and cleanse your sins.’ And I heard the voice of the Lord saying, ‘Whom shall I send? And who will go to this people?’ And I said, ‘See, here am I. Send me.’ And he said, ‘Go, and say to this people, ‘You will hear and not understand, and seeing, you will see and not perceive.’ For the heart of this people has grown fat, and they have heard with heavy ears and they have shut their eyes, lest perhaps they perceive with their eyes and hear with their ears and understand with their heart and turn back, and I will heal them.’ And I said, ‘Until when, Lord?’ And he said, ‘Until the cities are deserted from being inhabited and the houses from there being no people, and the land will be abandoned as desert. And after this God will remove the people far away, and those who are left behind will be multiplied on the land’.
 
-The Reading is from the Prophecy of Isaias. \[
+The Reading is from the Prophecy of Isaias.
+\[
 
 **19,1.3-5.12.16.19-21**\]
 
@@ -114,7 +120,8 @@ See, the Lord will be seated on a light cloud and will come to Egypt and the ido
 
 ****
 
-At the Liti, Idiomel Stichera. Tone 1. By Anatolios.
+At the Liti, Idiomel Stichera.
+Tone 1. By Anatolios.
 
 The Ancient of Days, who also gave the Law to Moses on Sinai, today appears as a babe. And according to the Law, as Maker of the Law, fulfilling the Law, he is brought to the temple and given to the Elder. The righteous Symeon, having received him and seen the accomplishment of the decrees completed, cried out with joy, ‘My eyes have seen the Mystery hidden from eternity, made manifest in these last times: a light that dispels the dark folly of the unbelieving nations and the glory of the newly chosen Israel. Therefore, release your servant from the bonds of this flesh for the wondrous life that is ageless and unceasing, O you who grant the world your great mercy.’
 
@@ -138,7 +145,8 @@ Today Symeon receives in his embrace the Lord of glory, whom Moses saw of old in
 
 ****
 
-Same Tone. By Germanos. According to others, by Monk John.
+Same Tone. By Germanos.
+According to others, by Monk John.
 
 The sacred Virgin offered the Sacred One in the Sacred Place to the Sacred Minister. Clasping him in his arms, Symeon received him with joy and cried out, ‘Now, Master, you release your servant, according to you word, in peace, O Lord.’
 
@@ -150,7 +158,8 @@ The Creator of heaven and earth was carried today by Symeon the Elder in his arm
 
 ****
 
-Same Tone. By Anatolios. According to others, Andrew of Jerusalem.
+Same Tone. By Anatolios.
+According to others, Andrew of Jerusalem.
 
 Today Symeon the Elder enters the Temple, rejoicing in Spirit to receive in his arms the One who gave the Law to Moses and who fulfils the Law. For Moses was counted worthy to see God through darkness and a faint voice, and with his face veiled he rebuked the unbelieving hearts of the Hebrews. While Symeon carried the pre-eternal Word of the Father incarnate in body and he revealed the light of the Nations, the Cross and Resurrection. And Anna was shown to be a Prophetess as she proclaimed the Saviour to be the Redeemer of Israel. To him let us cry, ‘Christ our God, through the Mother of God have mercy on us.’
 
@@ -168,13 +177,15 @@ Search the Scriptures, as Christ our God said in the Gospels, for in them we fin
 
 Both now.
 
-**Same Tone. By Germanos. According to others, Anatolios.**
+**Same Tone. By Germanos.
+According to others, Anatolios.**
 
 The Ancient of Days, become an infant in the flesh, is being brought to the Temple by a Virgin Mother, as he fulfils the ordinance of his own Law. Symeon received him and said, ‘Now you release your servant according to your word in peace. For my eyes, O Lord, have seen your salvation.’
 
 ****
 
-At the Aposticha, Idiomels. Tone 7. By Monk Kosmas.
+At the Aposticha, Idiomels.
+Tone 7. By Monk Kosmas.
 
 Adorn your bridal chamber, O Sion, and receive Christ the King. Greet Mary, the gate of heaven, for she is shown to be the Cherubim Throne. She carries the King of glory. The Virgin is a cloud of light, bearing in the flesh a Son before the Morning Star. Symeon took him in his arms and proclaimed to peoples that he is the Master of life and death and the Saviour of the world.
 
@@ -196,7 +207,8 @@ Mary the Mother of God, carrying in her arms the one who rides on the chariots o
 
 Glory. Both now*.*
 
-**Tone 8. By Andrew of Crete.**
+**Tone 8.
+By Andrew of Crete.**
 
 He who rides on the Cherubim and is hymned by the Seraphim is being brought today into God’s Temple according to the Law and enthroned on aged arms. By Joseph he receives gifts befitting God, as a pair of turtle doves the unblemished Church and the newly chosen people of the nations; as Author of the Old and New Covenants, two young pigeons. Symeon, having received the fulfilment of the oracle concerning him, blessed Mary, the Virgin Mother of God, and foretold the symbols of the Passion of the One born from her. From him he asks for his release, crying out, ‘Now you release me, Master, as you promised me; for I have seen you, the pre-eternal light, Saviour and Lord of the people that bears Christ’s name.’
 
@@ -210,9 +222,11 @@ Hail, full of grace, Virgin Mother of God, for from you there dawned the **S**un
 
 ****
 
-After the 1st reading from the Psalter, Kathisma. Tone 1. Model Melody.
+After the 1st reading from the Psalter, Kathisma.
+Tone 1. Model Melody.
 
-\[**By St Romanos**\]
+*
+*\[**By St Romanos**\]
 
 Let the angelic choir be amazed at the wonder, and let us mortals with our voices shout aloud a hymn of praise, as we see the ineffable condescension of God; for the One at whom the powers of heaven tremble aged hands now cradle, the only Lover of mankind.
 
@@ -220,7 +234,8 @@ Glory. Both now.
 
 **The same again.**
 
-After the 2nd reading from the Psalter, Kathisma. Tone 1. Same melody.
+After the 2nd reading from the Psalter, Kathisma.
+Tone 1. Same melody.
 
 He who is with the Father on a holy throne, coming to earth, was born from a Virgin; and he who is uncircumscribed by time became a babe. Symeon received him in his arms and said with joy, ‘Now you release me, O Compassionate, for you have made your servant glad.’
 
@@ -230,13 +245,50 @@ Glory. Both now.
 
 The Selection for the Polyeleos
 
-\[**Psalm 44**\] A good word. Alleluia.
+\[**Psalm 44**\]**
+**A good word. Alleluia.
 
-My heart has uttered a good word. I tell my works to the king. My tongue is the pen of a swiftly writing scribe. You are fair in beauty beyond the sons of men. Grace has been poured out on your lips. Therefore God has blessed you for ever. Gird your sword on your thigh, O mighty one. In your beauty and loveliness. And draw your sword, go forward and reign. For the sake of truth and meekness and justice. Your arrows have been sharpened, O mighty one. Peoples will fall beneath you. In the heart of the king’s enemies. Your throne, O God, is to age on age. A staff of uprightness is the staff of your kingdom. You have loved justice and hated iniquity. Therefore God, your God, has anointed you with oil of gladness beyond your fellows. Myrrh and sweet oil and cassia from your garments. From ivory palaces, from which they have gladdened you. Daughters of kings in your honour. The queen stood at your right hand. Robed in a garment of gold, in many colours. Listen, O daughter, and see, and incline your ear, and forget your people and your father’s house. And the king will desire your beauty. Because he is your Lord, and you will worship him. The wealthy of the people will entreat your face. All the glory of the king’s daughter is within. Robed in garments fringed with gold, in many colours. The Lord is in his holy temple. The Lord, his throne is in heaven. Holiness and majesty in your hallowing. Your paths, O God, have been seen. The paths of my God, the King who is in the holy place. Holy your temple, wonderful in righteousness. Holiness becomes your house, O Lord, for length of days. I will remember your name in every generation and generation. Thus I will sing to your name to the ages, that it is good in the sight of your holy ones.
+My heart has uttered a good word.
+I tell my works to the king.
+My tongue is the pen of a swiftly writing scribe.
+You are fair in beauty beyond the sons of men.
+Grace has been poured out on your lips.
+Therefore God has blessed you for ever.
+Gird your sword on your thigh, O mighty one.
+In your beauty and loveliness.
+And draw your sword, go forward and reign.
+For the sake of truth and meekness and justice.
+Your arrows have been sharpened, O mighty one.
+Peoples will fall beneath you.
+In the heart of the king’s enemies.
+Your throne, O God, is to age on age.
+A staff of uprightness is the staff of your kingdom.
+You have loved justice and hated iniquity.
+Therefore God, your God, has anointed you with oil of gladness beyond your fellows.
+Myrrh and sweet oil and cassia from your garments.
+From ivory palaces, from which they have gladdened you.
+Daughters of kings in your honour.
+The queen stood at your right hand.
+Robed in a garment of gold, in many colours.
+Listen, O daughter, and see, and incline your ear, and forget your people and your father’s house.
+And the king will desire your beauty.
+Because he is your Lord, and you will worship him.
+The wealthy of the people will entreat your face.
+All the glory of the king’s daughter is within.
+Robed in garments fringed with gold, in many colours.
+The Lord is in his holy temple. The Lord, his throne is in heaven.
+Holiness and majesty in your hallowing.
+Your paths, O God, have been seen.
+The paths of my God, the King who is in the holy place.
+Holy your temple, wonderful in righteousness.
+Holiness becomes your house, O Lord, for length of days.
+I will remember your name in every generation and generation.
+Thus I will sing to your name to the ages, that it is good in the sight of your holy ones.
 
 ****
 
-After the Polyeleos. Kathisma. Tone 4. Joseph was amazed.
+After the Polyeleos. Kathisma.
+Tone 4. Joseph was amazed.
 
 The Ancient of Days becomes an infant for my sake. God, who is most pure, shares in purifications that he may confirm my flesh, which he took from a Virgin. And Symeon, initiated into the mystery, acknowledged him as God who had appeared in flesh and greeted him as Life. As an old man with joy he cried, ‘Release me, for I have seen you, the Life of all.’
 
@@ -298,7 +350,8 @@ Verse: Have mercy on me, O God, according to your great mercy. According to the 
 
 ****
 
-Then the following Idiomel. Tone 6. By Monk John.
+Then the following Idiomel.
+Tone 6. By Monk John.
 
 Let heaven’s gate be opened today. For he who is without beginning, the Word of the Father, taking a beginning in time, yet not abandoning his godhead, is being willingly brought into the temple of the law as a babe of forty days by a Virgin Mother, and the Elder receives him in his arms. The servant cries to the Master, ‘Release me, for my eyes have seen your salvation’. You have come into the world to save the human race. Lord, glory to you!
 
@@ -310,7 +363,8 @@ An Elder, rejoicing, holds Christ in his arms. ****
 
 The Irmi are used as Katavasias.
 
-A Composition by Monk Kosmas. Ode 1. Tone 3. The Irmos.
+A Composition by Monk Kosmas.
+Ode 1. Tone 3. The Irmos.
 
 ‘The sun once shone on dry land, mother of the deep. For the water was fixed fast like a wall on either side for the people as they marched on foot and sang a song pleasing to God, ‘Let us sing to the Lord, for he has been greatly glorified’.‘
 
@@ -378,13 +432,26 @@ Ode 6. The Irmos.
 
 Kontakion. Tone 1. By Romanos.
 
-You sanctified a virgin womb by your birth, And fittingly blessed Symeon’s hands; You have come now too and saved us, O Christ God. But give peace to your commonwealth in times of war, And strengthen its Rulers, whose friend you are, Only Lover of mankind.
+You sanctified a virgin womb by your birth,
+And fittingly blessed Symeon’s hands;
+You have come now too and saved us, O Christ God.
+But give peace to your commonwealth in times of war,
+And strengthen its Rulers, whose friend you are,
+Only Lover of mankind.
 
 ****
 
 Ikos
 
-Let us run to the Mother of God if we wish to see her Son Being brought to Symeon. From heaven the Bodiless Ones are amazed as they look on him and say, ‘Wondrous and marvellous, incomprehensible, ineffable are the things we now see, For the One who created Adam is being carried as a babe; The uncontainable is contained in the arms of the elder; He who is in the uncircumscribed bosom of his Father Is willingly circumscribed in flesh, but not in godhead, The only Lover of mankind’.
+Let us run to the Mother of God if we wish to see her Son
+Being brought to Symeon.
+From heaven the Bodiless Ones are amazed as they look on him and say,
+‘Wondrous and marvellous, incomprehensible, ineffable are the things we now see,
+For the One who created Adam is being carried as a babe;
+The uncontainable is contained in the arms of the elder;
+He who is in the uncircumscribed bosom of his Father
+Is willingly circumscribed in flesh, but not in godhead,
+The only Lover of mankind’.
 
 ****
 
@@ -396,7 +463,8 @@ On the 2nd of the month, the Meeting of our Lord, Jesus Christ, when the righteo
 
 Verses.
 
-The hands of Symeon that carry you The Father’s bosom typify, my Christ.
+The hands of Symeon that carry you
+The Father’s bosom typify, my Christ.
 
 Forty days having passed since the incarnation of the Lord’s salvation, the nativity from the Ever-Virgin without husband, our Lord Jesus Christ was brought on this most honoured day into the temple by his all-pure Mother and the just Joseph, in accordance with the shadowy letter of the Law. When the aged Symeon, the Elder, to whom it had been revealed by the Holy Spirit that he would not see death until he had seen the Lord’s Christ, had received him in his arms and given thanks and glory to God, he cried out, ‘Now, Master, you release your servant according to your word’. And after his great joys he departed from life here, having received heavenly and unending in exchange for those of earth. This assembly is held in the revered house of our immaculate Lady, Mother of God and Ever-Virgin Mary, which is in Vlachernae.
 
@@ -406,7 +474,8 @@ On the same day, Commemoration of the holy Martyr, Agathodoros.
 
 Verses.
 
-To Agathσdoros, a gift \[**doron**\] to God Through blood, I give \[**doro**\] a gift out of my words.
+To Agathσdoros, a gift \[**doron**\] to God
+Through blood, I give \[**doro**\] a gift out of my words.
 
 As a young man he was brought before the Governor of Tyana, and because of his confession of Christ, he was flogged. Then he was placed on a burning brazier. His tongue was cut out with a knife. His teeth were pulled out with forceps. The skin of his face was removed with a razor. His thighs and legs were smashed. His sides were pierced through with a pole. The membrane of his brain received red hot skewers. And so he yielded his spirit to God.
 
@@ -438,7 +507,8 @@ He that is life, God the Word become a babe, will be the fall of the disobedient
 
 ****
 
-Ode 9. Megalynaria sung with this Ode.
+Ode 9.
+Megalynaria sung with this Ode.
 
 That which is fulfilled in you is beyond the understanding both of Angels and of mortals, O pure Virgin Mother.
 
@@ -620,7 +690,8 @@ Hail, full of grace, Virgin Mother of God…
 
 Entrance.
 
-The Lord has made known his salvation before all the nations. Son of God, carried in the arms of righteous Symeon, save us who sing to you. Alleluia!
+The Lord has made known his salvation before all the nations.
+Son of God, carried in the arms of righteous Symeon, save us who sing to you. Alleluia!
 
 ****
 
@@ -638,6 +709,7 @@ Communion.
 
 I will take the cup of salvation, and call upon the name of the Lord. Alleluia.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 25 January 2007**

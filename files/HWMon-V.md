@@ -15,7 +15,9 @@ Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, no
 
 The appointed monk or the Superior reads the Opening Psalm as follows:
 
-Amen. Come let us worship and fall down before the King, our God. Come let us worship and fall down before Christ the King, our God. Come let us worship and fall down before Christ himself, the King and our God.
+Amen. Come let us worship and fall down before the King, our God.
+Come let us worship and fall down before Christ the King, our God.
+Come let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
@@ -27,7 +29,9 @@ And again
 
 The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
+Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
 
 ****
 
@@ -43,7 +47,18 @@ Lord, have mercy. **And so after each petition.**
 
 Priest:
 
-For the peace from on high and for the salvation of our souls, let us pray to the Lord. For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord. For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord. For our Archbishop **N., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord.** \[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord. For our father and superior, Priest-monk **N***.*, and all our brotherhood in Christ, let us pray to the Lord.\] For this city, for every city, town and village, and for the faithful who dwell in them, let us pray to the Lord. For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord. For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord. For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord. Help us, save us, have mercy on us, and keep us, O God, by your grace. Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+For the peace from on high and for the salvation of our souls, let us pray to the Lord.
+For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord.
+For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord.
+For our Archbishop **N., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord.**
+\[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord.
+For our father and superior, Priest-monk **N***.*, and all our brotherhood in Christ, let us pray to the Lord.\]
+For this city, for every city, town and village, and for the faithful who dwell in them, let us pray to the Lord.
+For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord.
+For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord.
+For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord.
+Help us, save us, have mercy on us, and keep us, O God, by your grace.
+Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 People:
 
@@ -59,31 +74,37 @@ Amen. ****
 
 After the Litany, the appointed Kathisma of the Psalter is read by one Reader.
 
-KATHISMA EIGHTEEN **Psalm 119 A Song of Ascents.**
+KATHISMA EIGHTEEN
+**Psalm 119
+A Song of Ascents.**
 
 When I was afflicted I called to the Lord, and he heard me. O Lord, deliver my soul from unjust lips and from a deceitful tongue. What should be given you, what added to you for a treacherous tongue? The sharpened arrows of the powerful, with the coals of desolation. Alas! For my sojourning has been prolonged, I have camped among the encampments of Kedar. My soul has long been a sojourner. With those who hate peace I was peaceable. When I spoke with them, they made war on me for nothing.
 
 ****
 
-Psalm 120 A Song of Ascents.
+Psalm 120
+A Song of Ascents.
 
 I have lifted up my eyes to the mountains. From where will my help come? My help is from the Lord, who made heaven and earth. Do not let your foot waver. May the One who guards you not slumber. See, the One who guards Israel will neither slumber nor sleep. The Lord will guard you; the Lord is protection for you on your right hand. By day the sun will not scorch you, nor the moon by night. The Lord will guard you from every evil, the Lord will guard your soul. The Lord will guard your coming in, and your going out, from now and for ever more.
 
 ****
 
-Psalm 121 A Song of Ascents.
+Psalm 121
+A Song of Ascents.
 
 I rejoiced at those who said to me, ‘We shall go to the house of the Lord’. Our feet were standing in your courts, O Jerusalem. Jerusalem built as a city, shared by all together. For there the tribes went up, the tribes of the Lord, a testimony for Israel, to give thanks to the name of the Lord. For there thrones were set for judgement, thrones over the house of David. Ask then for the things which are for Jerusalem’s peace, and prosperity for those who love you. May there be peace then in your power and prosperity in your citadels. For the sake of my brethren and neighbours, I have spoken peace concerning you. For the sake of the house of the Lord our God, I have sought good things for you.
 
 ****
 
-Psalm 122 A Song of Ascents.
+Psalm 122
+A Song of Ascents.
 
 I have lifted my eyes to you who dwell in heaven. Behold, as the eyes of servants look to their lords’ hands, as the eyes of a maid to her mistress’s hands, so do our eyes to the Lord our God, until he take pity on us. Have mercy on us, Lord, have mercy on us, for we have had our fill of contempt, our soul has been filled to overflowing. Let reproach be for the prosperous, and contempt for the proud.
 
 ****
 
-Psalm 123 A Song of Ascents.
+Psalm 123
+A Song of Ascents.
 
 If the Lord had not been among us, let Israel now say; if the Lord had not been among us when people rose up against us, they would have swallowed us down alive. When their fury raged against us, the water would have drowned us, our soul would have passed through the torrent, our soul would have passed through irresistible water. Blessed is the Lord, who has not given us as a prey to their teeth. Our soul was delivered like a sparrow from the snare of the hunters. The snare was shattered, and we were delivered. Our help is in the name of the Lord, who made heaven and earth.
 
@@ -129,31 +150,36 @@ People:
 
 Amen. ****
 
-Psalm 124 A Song of Ascents.
+Psalm 124
+A Song of Ascents.
 
 Those who trust in the Lord are like Mount Sion. One who dwells in Jerusalem will be shaken for ever. Mountains encircle her, and the Lord encircles his people from now and for ever. For the Lord will not leave the rod of sinners upon the heritage of the just, lest the just stretch out their hands in iniquities. Do good, Lord, to the good and to the upright in heart. But the Lord will drive away with those who work iniquity, those who turn aside to extortions. Peace upon Israel.
 
 ****
 
-Psalm 125 A Song of Ascents.
+Psalm 125
+A Song of Ascents.
 
 When the Lord turned back the captivity of Sion, we became like those who are comforted. Then our mouth was filled with joy, and our tongue with rejoicing. Then they will say among the nations, ‘The Lord has done great things with them’. The Lord has done great things with us, we have become joyful. Turn back our captivity, O Lord, like streams in the south. Those who sow in tears, will reap in joy. They went, and as they went they wept, while they sowed their seed. But when they come, they will come in joy, carrying their sheaves.
 
 ****
 
-Psalm 126 A Song of Ascents.
+Psalm 126
+A Song of Ascents.
 
 If the Lord does not build the house, the builders have toiled for nothing. If the Lord does not guard the city, the guard has kept vigil for nothing. Your getting up at dawn is for nothing, your rising after sitting, you that eat the bread of sorrow, when he gives sleep to those he loves, see, sons are the Lord’s inheritance, the reward of the fruit of the womb. As arrows in the hand of a powerful man, so are the sons of the rejected. Blessed is one who satisfies his desire with them. They will not be shamed when they speak with their enemies in the gates.
 
 ****
 
-Psalm 127 A Song of Ascents.
+Psalm 127
+A Song of Ascents.
 
 Blessed are all who fear the Lord, who walk in his ways. You will eat the toils of your fruits. You are blest, and it will be well with you. Your wife like a luxuriant vine against the sides of your house; your sons like new olive shoots around your table. See, that is how one who fears the Lord will be blessed. The Lord bless you from Sion, and may you see the good things of Jerusalem all the days of your life. And may you see your children’s children. Peace upon Israel.
 
 ****
 
-Psalm 128 A Song of Ascents.
+Psalm 128
+A Song of Ascents.
 
 Many times they have made war on me since my youth, let Israel now say. Many times they have made war on me since my youth, and yet they have not prevailed over me. The sinners have wrought upon my back, they have prolonged their iniquity. The Lord is just, he has broken the sinners’ necks. Let all those who hate Sion be shamed and turned back. Let them become like grass on the housetops, which withers before it is uprooted. The reaper has not filled his hand with it, nor the one who gathers the sheaves his bosom. Nor have the passers-by said, ‘The Lord’s blessing be on you. We have blessed you in the name of the Lord’.
 
@@ -199,31 +225,36 @@ People:
 
 Amen. ****
 
-Psalm 129 A Song of Ascents
+Psalm 129
+A Song of Ascents
 
 Out of the depths I have cried to you, O Lord. Lord, hear my voice. Let your ears be attentive to the voice of my supplication. If you note our iniquities, Lord, Lord, who will survive? Because forgiveness is with you. For your name’s sake I have waited for you, O Lord; my soul has waited for your word, my soul has hoped in the Lord. From the morning watch until night, from the morning watch, let Israel hope in the Lord. Because with the Lord there is mercy and with him abundant redemption; and he will redeem Israel from all his iniquities.
 
 ****
 
-Psalm 130 A Song of Ascents
+Psalm 130
+A Song of Ascents
 
 Lord, my heart has not been exalted, nor have my eyes become lofty, I have neither walked among great affairs, nor among marvels beyond me. If I had not been humble-minded, but exalted my soul, like a weaned child towards its mother, so you will requite my soul. Let Israel hope in the Lord, from now and for ever.
 
 ****
 
-Psalm 131 A Song of Ascents
+Psalm 131
+A Song of Ascents
 
 Lord remember David and all his meekness, how he swore to the Lord, made a vow to the God of Jacob, ‘I shall not enter the shelter of my house, climb into my bed, I shall not give sleep to my eyes, slumber to my eyelids and rest to my temples, until I find a place for the Lord, a shelter for the God of Jacob’. See, we heard of it in Ephrata, we found it in the woodland fields. We shall enter his tabernacles, we shall worship at the place where his feet have stood. Arise, Lord, into your rest, you and the ark of your sanctification. Your priests will clothe themselves with justice, and your holy ones will rejoice. For David, your servant’s sake, do not turn away the face of your Christ. The Lord has sworn truth to David, and he will not annul it, ‘From the fruit of your womb I shall place on your throne. If your sons keep my covenant and these testimonies of mine which I shall teach them, their sons too will sit on your throne for ever. For the Lord has elected Sion, has chosen her as a dwelling for himself. ‘This is my resting-place for age on age. Here I shall dwell, for I have chosen her. Her door I shall bless abundantly, her poor I shall satisfy with bread. Her priests I shall clothe with salvation, and her holy ones will rejoice with great joy. There I shall make the horn of David flourish. I have prepared a lamp for my Christ. I shall clothe his enemies in shame, my sanctification will flower upon him’.
 
 ****
 
-Psalm 132 A Song of Ascents
+Psalm 132
+A Song of Ascents
 
 See how good and pleasant it is for brethren to dwell together; like sweet ointment on the head, which runs down upon the beard, Aaron’s beard, which runs down to the hem of his garment; like the dew from Hermon, which runs down upon the mountains of Sion; for there the Lord has commanded the blessing: life for ever more.
 
 ****
 
-Psalm 133 A Song of Ascents
+Psalm 133
+A Song of Ascents
 
 Come, now bless the Lord, all you servants of the Lord, who stand in the house of the Lord, in the courts of the house of our God. Lift up your hands by night to the Holy Place, and bless the Lord. The Lord bless you from Sion, he who made heaven and earth.
 
@@ -427,7 +458,8 @@ O Lord, the mother of the sons of Zebedee, not understanding the ineffable myste
 
 ****
 
-Psalm 116 2.
+Psalm 116
+2.
 
 Praise the Lord, all you nations: praise him all you peoples.
 
@@ -459,7 +491,9 @@ Wisdom. Stand upright! ****
 
 We say
 
-THE THANKSGIVING AT THE LIGHTING OF THE LAMPS **An ancient poem, or, as some say, by the martyr Athenogenes.**
+THE THANKSGIVING
+AT THE LIGHTING OF THE LAMPS
+**An ancient poem, or, as some say, by the martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life: therefore the world glorifies you.
 
@@ -481,7 +515,8 @@ Verse:
 
 Blessed are all who fear the Lord, and walk in his ways.
 
-The Reading is from Exodus. \[
+The Reading is from Exodus.
+\[
 
 **Exodus 1:1-21**\]
 
@@ -507,7 +542,8 @@ Wisdom. Stand upright. The light of Christ shines for all. ****
 
 Reader:
 
-The Reading is from Job. \[
+The Reading is from Job.
+\[
 
 **1:1-12**\]
 
@@ -643,7 +679,11 @@ Lord, have mercy. **Three times. And so after the remaining petitions.**
 
 Priest:
 
-Also we pray for our Archbishop **N**. \[Also we pray for our Sovereign Lady, Queen Elizabeth, the royal family, her government and all in authority.\] Also we pray for mercy, life, peace, health, salvation, visitation, pardon and forgiveness of sins for the servants of God, all devout and Orthodox Christians, those who dwell in or visit this city and parish, the wardens and members of this church and their families; \[and for the servants of God **N. & N. (Here he may name those for whom he has been asked to pray), and all who have asked for our prayers, unworthy though we are.\]** Also we pray for the blessed and ever-remembered founders of this holy church, and for all our brothers and sisters who have gone to their rest before us, and who lie asleep here in the true faith; and for the Orthodox everywhere\[, and for the servants of God **N. & N. (Here he may name those for whom he has been asked to pray), and that they may be pardoned all their offences, both voluntary and involuntary\].** Also we pray for those who bring offerings, those who care for the beauty of this holy and venerable house, for those who labour in its service, for those who sing, and for the people here present, who await your great and rich mercy. ****
+Also we pray for our Archbishop **N**.
+\[Also we pray for our Sovereign Lady, Queen Elizabeth, the royal family, her government and all in authority.\]
+Also we pray for mercy, life, peace, health, salvation, visitation, pardon and forgiveness of sins for the servants of God, all devout and Orthodox Christians, those who dwell in or visit this city and parish, the wardens and members of this church and their families; \[and for the servants of God **N. & N. (Here he may name those for whom he has been asked to pray), and all who have asked for our prayers, unworthy though we are.\]**
+Also we pray for the blessed and ever-remembered founders of this holy church, and for all our brothers and sisters who have gone to their rest before us, and who lie asleep here in the true faith; and for the Orthodox everywhere\[, and for the servants of God **N. & N. (Here he may name those for whom he has been asked to pray), and that they may be pardoned all their offences, both voluntary and involuntary\].**
+Also we pray for those who bring offerings, those who care for the beauty of this holy and venerable house, for those who labour in its service, for those who sing, and for the people here present, who await your great and rich mercy. ****
 
 People:
 
@@ -667,7 +707,13 @@ Lord, have mercy. (**To each petition**) ****
 
 Priest:
 
-Believers, let us pray for the catechumens. That the Lord will have mercy on them. Instruct them in the word of truth. Reveal to them the Gospel of righteousness. Unite them to his Holy, Catholic and Apostolic Church. Save them, have mercy on them, help them and keep them, O God, by your grace. Catechumens, bow your heads to the Lord. ****
+Believers, let us pray for the catechumens.
+That the Lord will have mercy on them.
+Instruct them in the word of truth.
+Reveal to them the Gospel of righteousness.
+Unite them to his Holy, Catholic and Apostolic Church.
+Save them, have mercy on them, help them and keep them, O God, by your grace.
+Catechumens, bow your heads to the Lord. ****
 
 People:
 
@@ -699,7 +745,15 @@ Lord, have mercy. (**And so after the following petitions**) ****
 
 Priest:
 
-Believers, for our brethren who are preparing for holy Enlightenment, let us pray to the Lord. That the Lord our God may give them strength and power. Enlighten them with the light of knowledge and true religion. Count them worthy in due time of the bath of rebirth, the forgiveness of sins and the garment of incorruption. Give them rebirth through water and Spirit. Grant them the perfection of the Faith. Number them with his holy and chosen flock. Save them, have mercy on them, help them and keep them, O God, by your grace. Those for Enlightenment, bow your heads to the Lord. ****
+Believers, for our brethren who are preparing for holy Enlightenment, let us pray to the Lord.
+That the Lord our God may give them strength and power.
+Enlighten them with the light of knowledge and true religion.
+Count them worthy in due time of the bath of rebirth, the forgiveness of sins and the garment of incorruption.
+Give them rebirth through water and Spirit.
+Grant them the perfection of the Faith.
+Number them with his holy and chosen flock.
+Save them, have mercy on them, help them and keep them, O God, by your grace.
+Those for Enlightenment, bow your heads to the Lord. ****
 
 People:
 
@@ -801,7 +855,10 @@ Let us complete our evening prayer to the Lord.
 
 **People: Lord, have mercy.**
 
-**Priest:** For the precious gifts here set forth and presanctified, let us pray to the Lord. That our God, who loves mankind, having accepted them on his holy, heavenly and spiritual altar, as a sweet-smelling savour of spiritual fragrance would send down upon us his divine grace and the gift of the Holy Spirit, let us pray. For our deliverance from all tribulation, wrath, danger and constraint, let us pray to the Lord. Help us, save, have mercy on us and keep us, O God, by your grace.
+**Priest:** For the precious gifts here set forth and presanctified, let us pray to the Lord.
+That our God, who loves mankind, having accepted them on his holy, heavenly and spiritual altar, as a sweet-smelling savour of spiritual fragrance would send down upon us his divine grace and the gift of the Holy Spirit, let us pray.
+For our deliverance from all tribulation, wrath, danger and constraint, let us pray to the Lord.
+Help us, save, have mercy on us and keep us, O God, by your grace.
 
 That the whole evening may be perfect, holy, peaceful and sinless, let us ask of the Lord.
 
@@ -813,7 +870,12 @@ Grant this, O Lord. ****
 
 Priest:
 
-An angel of peace, a faithful guide, a guardian of our souls and bodies, let us ask of the Lord. Pardon and forgiveness of our sins and offences, let us ask of the Lord. Things good and profitable for our souls, and peace for the world, let us ask of the Lord. That we may live out the rest of our days in peace and repentance, let us ask of the Lord. A Christian end to our life, painless, unashamed and peaceful, and a good defence before the dread judgement seat of Christ, let us ask. Having asked for the unity of the faith and the communion of the Holy Spirit, let us entrust ourselves and one another and our whole life to Christ, our God.
+An angel of peace, a faithful guide, a guardian of our souls and bodies, let us ask of the Lord.
+Pardon and forgiveness of our sins and offences, let us ask of the Lord.
+Things good and profitable for our souls, and peace for the world, let us ask of the Lord.
+That we may live out the rest of our days in peace and repentance, let us ask of the Lord.
+A Christian end to our life, painless, unashamed and peaceful, and a good defence before the dread judgement seat of Christ, let us ask.
+Having asked for the unity of the faith and the communion of the Holy Spirit, let us entrust ourselves and one another and our whole life to Christ, our God.
 
 \[
 
@@ -917,7 +979,8 @@ Now and for ever and to the ages of ages. ****
 
 People:
 
-Amen. Amen. Amen. For forgiveness of sins and everlasting life. Let our mouth be filled with your praise, O Lord, that we may sing your glory, for you have allowed us to share in your holy mysteries. Keep us in your holiness, as we meditate on your justice all the day long. Alleluia. Alleluia. Alleluia. ****
+Amen. Amen. Amen. For forgiveness of sins and everlasting life.
+Let our mouth be filled with your praise, O Lord, that we may sing your glory, for you have allowed us to share in your holy mysteries. Keep us in your holiness, as we meditate on your justice all the day long. Alleluia. Alleluia. Alleluia. ****
 
 Priest:
 
@@ -987,7 +1050,9 @@ After the prayer behind the Ambo:
 
 Blessed be the name of Lord, from this time forth and for evermore. (
 
-**Prostration**) Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**) Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**)
+**Prostration**)
+Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**)
+Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**)
 
 Glory. Both now.
 
@@ -1065,6 +1130,7 @@ Both now.
 
 At the prayers of all your Saints and of the Mother of God, grant us your peace, Lord, and have mercy on us, for you alone love humankind.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

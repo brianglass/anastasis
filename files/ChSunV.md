@@ -55,6 +55,7 @@ Now, Master
 
 **, Trisagion, Apolytikion,** Virgin Mother of God**, three times, and the rest of the Office of the Vigil.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

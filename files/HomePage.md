@@ -1,9 +1,17 @@
 **ANASTASIS**
 
-Welcome to Anastasis the Home Page of the Monastery of Saint Andrew the First Called Manchester, England
---------------------------------------------------------------------------------------------------------
+Welcome to Anastasis
+the Home Page
+of the Monastery of Saint Andrew the First Called
+Manchester, England
+-------------------------------------------------
 
-****L****et the impious’ lips be bereft of speech, who do not worship this your icon, the all-revered, this which was depicted by Luke, the Lord’s Apostle, the icon with the title, ‘She who points out the Way’.
+****L****et the impious’ lips be bereft of speech,
+who do not worship this your icon, the all-revered,
+this which was depicted
+by Luke, the Lord’s Apostle,
+the icon with the title,
+‘She who points out the Way’.
 
 On these pages you will find, in the main, translations of our Orthodox liturgical and patristic texts. Most of the latter are of texts which have not been previously translated into English, or which are only available in rare or outdated versions.
 
@@ -43,9 +51,10 @@ As there is now a great deal on these pages, I have decided to draw attention to
 
 Unless stated otherwise, all texts and translations on these pages are (c) by Archimandrite Ephrem.
 
-You will find a great treasure house of Orthodox material and good sense at [Arimathea](http://www.arimathea.co.uk/arimathea.htm), David Melling’s home page. He has now launched a new web page devoted to Orthodox church music. The address is: <http://www.church-music.co.uk/EOChant.htm> It includes his manual of Psalmodia in PDF format.
+You will find a great treasure house of Orthodox material and good sense at [Arimathea](/arimathea.md), David Melling’s home page. He has now launched a new web page devoted to Orthodox church music. The address is: [http://www.church-music.co.uk/EOChant.htm](/EOChant.md) It includes his manual of Psalmodia in PDF format.
 
-If you have any personal comments or suggestions please send us an [ephrem@chorlton.com](mailto:ephrem@studite.demon.co.uk)
+If you have any personal comments or suggestions please send us an
+[ephrem@chorlton.com](mailto:ephrem@studite.demon.co.uk)
 
 The number of visits since 1 January 1998 is
 
@@ -55,13 +64,19 @@ The number of visits since 1 January 1998 is
 
 Please sign [my Guestbook](http://www.guestbook.de/yasg.cgi?X=74251). Your comments in my earlier book were most positive and encouraging.
 
-Enter your e-mail address to receive e-mail when this page is updated. Your Internet e-mail address:
+Enter your e-mail address to receive e-mail when this page is updated.
+Your Internet e-mail address:
 
 The search facility below is highly recommended and will rapidly find almost any word on the following pages.
 
-|                                                                                                 |
-|-------------------------------------------------------------------------------------------------|
-| [***Links<sup>2</sup>Go* Key Resource** Orthodox Topic](http://www.links2go.com/topic/Orthodox) |
+<table>
+<tbody>
+<tr class="odd">
+<td><a href="http://www.links2go.com/topic/Orthodox"><strong><em>Links<sup>2</sup>Go</em> Key Resource</strong><br />
+Orthodox Topic</a></td>
+</tr>
+</tbody>
+</table>
 
    
 
@@ -71,7 +86,8 @@ The search facility below is highly recommended and will rapidly find almost any
 </colgroup>
 <tbody>
 <tr class="odd">
-<td><p>All texts and translations on this page are copyright to Archimandrite Ephrem ©</p>
+<td><p>All texts and translations on this page are copyright to<br />
+Archimandrite Ephrem ©</p>
 <p><strong>This page was last updated on 31 July 2002</strong></p></td>
 </tr>
 </tbody>

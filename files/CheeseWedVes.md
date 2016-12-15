@@ -26,7 +26,8 @@ Verse:
 
 Hear my prayer, O God, and listen to the words of my mouth.
 
-The Reading is from the Prophecy of Joel. \[
+The Reading is from the Prophecy of Joel.
+\[
 
 **4,12-21**\]
 
@@ -46,7 +47,8 @@ Verse:
 
 Lord, my heart has not been exalted, nor have my eyes become lofty. ****
 
-At the Aposticha, the following Idiomel twice. Tone 3.
+At the Aposticha, the following Idiomel twice.
+Tone 3.
 
 The springtime of the fast has dawned, and the flower of repentance has sprung up. Therefore, brethren, let us purify ourselves from all defilement. As we sing to the Giver of light, let us say, ‘Glory to you, only lover of humankind!’
 
@@ -80,6 +82,7 @@ After the Trisagion, Apolytikion of the day etc. And Dismissal.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

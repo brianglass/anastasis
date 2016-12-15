@@ -3,7 +3,8 @@
 CANON FOR MID-PENTECOST
 =======================
 
-**The Acrostic is:** The Midpoint of great feasts I sing.
+**The Acrostic is:**
+The Midpoint of great feasts I sing.
 
 ****
 
@@ -173,6 +174,7 @@ Theotokion.
 
 All we faithful, trusting in you, O Virgin, honour you with words of praise, as root and source and cause of incorruption: for you made the empersonned immortality blossom for us.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

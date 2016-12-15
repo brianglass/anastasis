@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](pentecos.md) \] \[ [Pascha Midnight](PaschaN.md) \] \[ [Pascha All](pascha.md) \] \[ [Sunday of Thomas](ThomasSun.md) \] \[ Sunday of the Myrrhbearers \] \[ [Sunday of The Paralysed Man](ParalSun.md) \] \[ [Midpentecost](midpent.md) \] \[ [Sunday of the Samaritan Woman](SamarSun.md) \] \[ [Sunday of the Blind man](blindsunday.md) \] \[ [Assumption](assumpti.md) \] \[ [Fathers of Nicea](fathers.md) \] \[ [Pentecost](PentAll.md) \] \[ [All Saints](allsaints.md) \]
 
-[Vespers](myrrh-eve.md) [Matins](myrrh-mat.md)
+[Vespers](myrrh-eve.md)
+[Matins](myrrh-mat.md)
 
 The arrangements for the Sundays of the Pentecostarion vary, there being a tendency in current Greek use to retain a number of features from the Paschal office, rather than the ordinary Sunday Resurrection office, as prescribed by the older Typikon. Below I give a translation of the Typikon of the monastery of Dionysiou on Mt Athos, which is generally agreed to the best of the Athonite Typika. To it I have added some explanatory notes.
 
@@ -26,6 +27,7 @@ The modern Constantinopolitan typikon replaces the four Anatolika at Lauds with 
 
 The printed Pentecostarion differs about the way the Troparia of the Canon are to be sung. The Dionysiou Typikon is to be preferred. The structure of the Canons for the Sundays of the Pentecostarion suggests that originally they were ‘free-standing’ and that the singing of the Paschal Canon, with the two Theotokia by Theophanes and Joseph, is a later development. The Canons for these feasts are quite general Resurrection Canons and in nearly every case only mention the specific topic of the feast in the two troparia, or even the final one only, preceding the ‘Glory‘.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

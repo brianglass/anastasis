@@ -11,7 +11,8 @@ They were from Asia, and their father was a pagan. After his death, their Christ
 
 ****
 
-Permission for wine and oil. Apolytikion. Tone 8.
+Permission for wine and oil.*
+*Apolytikion. Tone 8.
 
 Holy Unmercenary Saints and wonderworkers, visit our weaknesses: freely you have received, freely give to us.
 
@@ -371,7 +372,8 @@ Plato was martyred under the governor Agrippinos in 296, and was from the territ
 
 ****
 
-If it is not Alleluia, Apolytikion. Tone 4. \[Common\]
+If it is not Alleluia,
+Apolytikion. Tone 4. \[Common\]
 
 Your Martyrs, O Lord, by their struggles obtained crowns of incorruption from you, our God; for with your might they destroyed tyrants, and shattered the feeble insolence of the demons: at their prayers, O Christ God, save our souls.
 
@@ -383,7 +385,8 @@ Varlaam was from a village by Syrian Antioch; he was an old man and a farmer by 
 
 ****
 
-If it is not Alleluia, Apolytikion of the Prophet. Tone 2. \[Common\]
+If it is not Alleluia,
+Apolytikion of the Prophet. Tone 2. \[Common\]
 
 As we celebrate the memory of your Prophet Avdias, O Lord, through him we beseech you: Save our souls.
 
@@ -505,7 +508,8 @@ Mercurius was martyred under Valerian in 255. He was from Paphlagonia, son of ce
 
 ****
 
-Today we take leave of the Feast of the Entry. No work, and permission for wine and oil.
+Today we take leave of the Feast of the Entry.
+No work, and permission for wine and oil.
 
 Apolytikion. Tone 4. \[Common\]
 
@@ -619,6 +623,7 @@ Kontakion. 2nd Tone. Nor tomb, nor death.
 
 Let us sing the praise of God’s herald, whose name is ‘courage’, the First-called of the Saviour’s disciples, the brother of Peter; because as to him of old, so now to us he cries: Come, we have found the one so longed for.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -3,7 +3,9 @@
 AT MATINS
 ---------
 
-**After the 1st reading from the Psalter, Kathismata of the Resurrection. Tone 2.**
+**After the 1st reading from the Psalter,
+Kathismata of the Resurrection.
+Tone 2.**
 
 The noble Joseph taking down your spotless Body from the tree, wrapped it in a clean shroud with sweet spices and laid it for burial in a new grave; but on the third day you arose, O Lord, granting the world your great mercy.
 
@@ -165,7 +167,8 @@ The ranks of Angels were amazed, and the hearts of mortals trembled at your birt
 
 ****
 
-Another, of the Cross and Resurrection. The bow of mighty men was smashed.
+Another, of the Cross and Resurrection.
+The bow of mighty men was smashed.
 
 Christ, who is beyond all, has been made a little lower than the Angels by his suffering in the flesh.
 
@@ -201,7 +204,8 @@ All we believers know you to be a harbour of salvation and an unshakeable wall, 
 
 ****
 
-Another of the Cross and Resurrection. I have heard, Lord, of your glorious.
+Another of the Cross and Resurrection.
+I have heard, Lord, of your glorious.
 
 Seeing you nailed to the Cross, O Christ, the Virgin who had borne you without pains, endured a mother’s pains.
 
@@ -237,7 +241,8 @@ Beseech your Son and Lord, pure Virgin, to grant deliverance to prisoners and pe
 
 ****
 
-Another, of the Cross and Resurrection. The Coal once seen by Isaias.
+Another, of the Cross and Resurrection.
+The Coal once seen by Isaias.
 
 The former Adam, refusing to fast, tasted of the tree that brought death; but the Second, by being crucified, wipes out his sin.
 
@@ -321,7 +326,8 @@ We acknowledge you as the Holy of Holies, O Virgin undefiled, Mother without bri
 
 ****
 
-Another, of the Cross and Resurrection. Youths were once revealed.
+Another, of the Cross and Resurrection.
+Youths were once revealed.
 
 Of old disobedience condemned the Forefather in Eden; but willing he was condemned, annulling the charge against the offender, the God of our fathers, supremely divine and most glorious.
 
@@ -495,6 +501,7 @@ Both now. **Theotokion.**
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

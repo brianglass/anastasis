@@ -7,6 +7,7 @@ As there are numerous annotations to this of Matins it is in PDF format and may 
 
 To read the file you will need Adobe Acrobat Reader, which may be downloaded free from Adobe.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 17 February 2007**

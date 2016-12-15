@@ -144,6 +144,7 @@ Theotokion.
 
 As the treasure-house of our Resurrection, All-praised Lady, bring up from the pit and from the deep of offences those who have put their trust in you; for you saved those who were subject to sin by giving birth to Salvation. You were Virgin before bearing child, Virgin in bearing child and after bearing child you are still Virgin.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

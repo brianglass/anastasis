@@ -524,10 +524,16 @@ The Word, whom the Father begot before the Morning Star, you conceived in your w
 
 **END OF THE FOURTH TONE.**
 
-A festal and a dancing tone, you bear By musical opinion a fourth boast. Dancers you welcome, and you form them too, To voices give the prize, on cymbals beat. You, the fourth Tone, as filled with melodies, The serried lines of dancers eulogise.
+A festal and a dancing tone, you bear
+By musical opinion a fourth boast.
+Dancers you welcome, and you form them too,
+To voices give the prize, on cymbals beat.
+You, the fourth Tone, as filled with melodies,
+The serried lines of dancers eulogise.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

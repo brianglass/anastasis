@@ -3,7 +3,8 @@
 AT THE MIDNIGHT OFFICE
 ----------------------
 
-**Canon of the Trinity, of which the Acrostic is:** I offer the sixth hymn to you, O Godhead.
+**Canon of the Trinity, of which the Acrostic is:
+**I offer the sixth hymn to you, O Godhead.
 
 ****
 
@@ -157,6 +158,7 @@ Theotokion.
 
 With wisdom your Son fashioned humankind of old, O Virgin, and when it had been corrupted refashioned through you, O all-praised, and filled with the brightness of the divine that knows no evening all those who ever glorify you as true Mother of God.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

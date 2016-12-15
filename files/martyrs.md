@@ -28,7 +28,8 @@ As the Virgin your Mother saw you hanged upon a cross, O Lord, she was dismayed 
 AT MATINS
 =========
 
-**The Canon, whose acrostic is:** Let Christ, glory of the martyrs be acclaimed.
+**The Canon, whose acrostic is:
+**Let Christ, glory of the martyrs be acclaimed.
 
 ****
 
@@ -254,6 +255,7 @@ The Word of God from God, who came by ineffable wisdom to renew Adam, by eating 
 
 At the Liturgy look, if you wish, at the texts for October 26th.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

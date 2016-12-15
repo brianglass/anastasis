@@ -25,7 +25,8 @@ Glory. Both now. <span style="color:red;mso-bidi-font-style:italic">Theotokion.<
 
 Come, believers, having gained Mary the Mother of God as an unbreachable wall, let us fall down before her, for she has freedom to speak with the One who was born from her, to intercede and to save our souls from wrath and death.
 
-<span style="color:red">After the 2nd reading other Kathismata. The soldiers watching.</span>
+<span style="color:red">After the 2nd reading other Kathismata.
+The soldiers watching.</span>
 
 <span style="letter-spacing:-.1pt">Hasten to open to me your fatherly embrace; like the Wastrel I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry, ‘I have sinned against you, save me!’<a href="#_ftn5" id="_ftnref5">[5]</a> </span>
 
@@ -33,22 +34,26 @@ Come, believers, having gained Mary the Mother of God as an unbreachable wall, l
 
 <span style="letter-spacing:-.1pt">The judgment seat is fearful and the judgment just; my deeds are dreadful, but, O Merciful, speedily save me and rescue me from punishment; deliver me, Master, from the portion of the goats, to stand me on your right hand, Judge most just.<a href="#_ftn6" id="_ftnref6">[6]</a> </span>
 
-<span style="mso-bidi-font-style:italic">Glory. Both now. <span style="color:red">Theotokion. Same melody.</span> </span>
+<span style="mso-bidi-font-style:italic">Glory. Both now. <span style="color:red">Theotokion.
+Same melody.</span> </span>
 
 Put away, my soul, the sleep of sloth and light the bright lamp of repentance, and now go out, bidding farewell to the confusion of life, to meet the immortal Bridegroom, saying, ‘Accept and do not reject me, O Word, at the supplications of the one who gave you birth’.<a href="#_ftn7" id="_ftnref7">[7]</a>
 
-<span style="color:red">After the 3rd Reading, Other Kathismata. The soldiers watching. </span>
+<span style="color:red">After the 3rd Reading, Other Kathismata.
+The soldiers watching. </span>
 
 John, who of old baptized in Jordan’s streams the Purification of all the world, draw me out, who am drowned by many offences, and wash me clean of every kind of stain, as you ever entreat the Lover of humankind as an acceptable intercessor.
 
 <span style="color:red;
 mso-bidi-font-style:italic">Verse: </span>God is wonderful in his Saints, the God of Israel.
 
-<span style="color:red">Of the Martyrs. When the stone had been sealed. </span>
+<span style="color:red">Of the Martyrs.
+When the stone had been sealed. </span>
 
 As good soldiers, believing with one accord, not trembling before the threats of tyrants, you fervently drew near to Christ, O Saints, having taken up the precious Cross, and having finished your course,<a href="#_ftn8" id="_ftnref8">[8]</a> you received victory from heaven. Glory to him who gave you strength; glory to him who crowned you; glory to him who through you grants healings to all.
 
-<span style="mso-bidi-font-style:italic">Glory. Both now. <span style="color:red">Theotokion. The soldiers watching.</span> </span>
+<span style="mso-bidi-font-style:italic">Glory. Both now. <span style="color:red">Theotokion.
+The soldiers watching.</span> </span>
 
 John, leaping in his mother’s womb, by grace recognised God being carried in your womb, pure Virgin, and faithfully worshipped.<a href="#_ftn9" id="_ftnref9">[9]</a> But I implore you, O Virgin, with the Forerunner, entreat the Word, to whom you gave a body, that your servant may be saved.
 
@@ -76,7 +81,9 @@ Let us all sing<a href="#_ftn11" id="_ftnref11">[11]</a> a song of victory to Go
 
 As a throne formed of fire<a href="#_ftn14" id="_ftnref14">[14]</a> you bear the Creator; as a living bridal chamber and palace of delight, you hold the King, who became what we are, without change and confusion<a href="#_ftn15" id="_ftnref15">[15]</a>.
 
-<span style="color:red">Another Canon, to the honoured Forerunner, of which the Acrostic is:</span> Listen to the voice of those who cry to you, blest Saint. Joseph<a href="#_ftn16" id="_ftnref16">[16]</a>.
+<span style="color:red">Another Canon, to the honoured Forerunner,
+of which the Acrostic is:</span>
+Listen to the voice of those who cry to you, blest Saint. Joseph<a href="#_ftn16" id="_ftnref16">[16]</a>.
 
 <span style="color:red">The same Irmos. </span>
 
@@ -340,7 +347,8 @@ Do not reject me, held fast by sloth, my Saviour. Rouse my thoughts to repentanc
 
 These soldiers of the great King opposed the decrees of tyrants, nobly despised their torments, and having trampled on every error, and been fittingly crowned, they ask of the Saviour peace and for our souls his great mercy.
 
-<span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Theotokion. All-praised Martyrs.</span>
+<span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Theotokion.
+All-praised Martyrs.</span>
 
 Virgin all-praised, Moses with prophetic eyes saw the mystery that is in you, the bush that though in flames was unburned.<a href="#_ftn74" id="_ftnref74">[74]</a> For the fire of the Godhead did not burn up your womb, pure Maiden. And so we ask you, as Mother of our God, to grant peace to the world.
 
@@ -504,6 +512,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

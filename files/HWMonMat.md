@@ -8,13 +8,15 @@ HOLY AND GREAT MONDAY
 AT MATINS
 ---------
 
-**After the Dismissal of the Midnight Office the Priest, having made the customary metania to the Superior, or to his stall, enters the sanctuary and makes three bows before the holy Table. He puts on the Epitrachelion and, standing in front of the holy Table, intones:** Blessed is our God, always, now and for ever, and to the ages of ages.
+**After the Dismissal of the Midnight Office the Priest, having made the customary metania to the Superior, or to his stall, enters the sanctuary and makes three bows before the holy Table. He puts on the Epitrachelion and, standing in front of the holy Table, intones:**
+Blessed is our God, always, now and for ever, and to the ages of ages.
 
 **Reader:** Amen.
 
 **The Priest blesses the incense and begins to cense the sanctuary and the whole church as usual.**
 
-**The Reader begins:** Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times)**
+**The Reader begins:**
+Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times)**
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -30,13 +32,17 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Lord, have mercy (**x12**). Glory. Both now.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 **With three metanias. Then the following two Psalms.**
 
-**Psalm 19** May the Lord hear you in the day of trouble; may the name of the God of Jacob shield you. May he send you his help from the holy place, and support you from Sion. May he remember your every sacrifice, and accept with favour your whole burnt offering. May the Lord give you your heart’s desire, and fulfil your every purpose. We shall rejoice in your salvation, and be magnified in the name of our the Lord our God. May the Lord fulfil all your petitions. Now I know that the Lord has saved his Christ. He will hear him from his holy heaven; in mighty acts is the salvation of his right hand. Some put their trust in chariots and some in horses, but we will call on the name of the Lord our God. They were fettered and fell, but we have risen and been set upright. Lord, save the king, and hear us on the day we call upon you.
+**Psalm 19**
+May the Lord hear you in the day of trouble; may the name of the God of Jacob shield you. May he send you his help from the holy place, and support you from Sion. May he remember your every sacrifice, and accept with favour your whole burnt offering. May the Lord give you your heart’s desire, and fulfil your every purpose. We shall rejoice in your salvation, and be magnified in the name of our the Lord our God. May the Lord fulfil all your petitions. Now I know that the Lord has saved his Christ. He will hear him from his holy heaven; in mighty acts is the salvation of his right hand. Some put their trust in chariots and some in horses, but we will call on the name of the Lord our God. They were fettered and fell, but we have risen and been set upright. Lord, save the king, and hear us on the day we call upon you.
 
-**Psalm 20** The king will rejoice in your power, O Lord, he will exult exceedingly in your salvation. You gave him his heart’s desire; you did not deny him the request of his lips. For you came to meet him with blessings of goodness; you placed a crown of precious stones upon his head. He asked you for life, and you gave him length of days for age on age. Great is his glory because of your salvation; you will place on him glory and majesty. For you will give him blessing for age on age, and make him glad with the joy of your countenance. For the king puts his hope in the Lord, and through the mercy of the Most High he will not be shaken. May your hand light upon all your enemies, and your right hand find out all who hate you. You will make them like a blazing oven at the time of your presence. The Lord will confound them in his wrath and fire will devour them. You will destroy their offspring from the earth, and their seed from among the children of humankind. Because they intended evils against you, and devised plans by which they can in no way succeed. For you will put them to flight; among your remnants you will prepare their presence. Be exalted, Lord, in your power; we will sing and praise your mighty acts.
+**Psalm 20**
+The king will rejoice in your power, O Lord, he will exult exceedingly in your salvation. You gave him his heart’s desire; you did not deny him the request of his lips. For you came to meet him with blessings of goodness; you placed a crown of precious stones upon his head. He asked you for life, and you gave him length of days for age on age. Great is his glory because of your salvation; you will place on him glory and majesty. For you will give him blessing for age on age, and make him glad with the joy of your countenance. For the king puts his hope in the Lord, and through the mercy of the Most High he will not be shaken. May your hand light upon all your enemies, and your right hand find out all who hate you. You will make them like a blazing oven at the time of your presence. The Lord will confound them in his wrath and fire will devour them. You will destroy their offspring from the earth, and their seed from among the children of humankind. Because they intended evils against you, and devised plans by which they can in no way succeed. For you will put them to flight; among your remnants you will prepare their presence. Be exalted, Lord, in your power; we will sing and praise your mighty acts.
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -86,9 +92,11 @@ THE SIX PSALMS
 
 And we begin the Six Psalms, listening with complete silence and compunction. The Superior, or the designated reader, with devotion and fear of God says:
 
-Glory to God in the highest, and peace on earth, goodwill among men (**x3).** Lord, you will open my lips: and my mouth will declare your praise (**x2).**
+Glory to God in the highest, and peace on earth, goodwill among men (**x3).**
+Lord, you will open my lips: and my mouth will declare your praise (**x2).**
 
-**Psalm 3** Lord, why have those who afflict me been multiplied? Many rise against me. Many say to my soul, ‘There is no salvation for him in his God’. But you, Lord, are my helper, my glory, and the one who lifts up my head. With my voice, I cried to the Lord, and he heard me from his holy mountain. I lay down and slept; I awoke, because the Lord will assist me. I will not be afraid of tens of thousands of people who surround me. Rise, Lord, save me, my God; because you have struck all who are vainly my foes. You have smashed the teeth of sinners. Salvation is the Lord’s, and your blessing is upon your people.
+**Psalm 3**
+Lord, why have those who afflict me been multiplied? Many rise against me. Many say to my soul, ‘There is no salvation for him in his God’. But you, Lord, are my helper, my glory, and the one who lifts up my head. With my voice, I cried to the Lord, and he heard me from his holy mountain. I lay down and slept; I awoke, because the Lord will assist me. I will not be afraid of tens of thousands of people who surround me. Rise, Lord, save me, my God; because you have struck all who are vainly my foes. You have smashed the teeth of sinners. Salvation is the Lord’s, and your blessing is upon your people.
 
 ****
 
@@ -96,21 +104,25 @@ And again:
 
 I lay down and slept; I awoke because the Lord will assist me.
 
-**Psalm 37** Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your arrows have been stuck fast in me, and you have laid a heavy hand upon me. There is no healing in my flesh on account of your wrath, nor peace in my bones on account of my sins. My iniquities flooded over my head; like a heavy burden they weighed heavily upon me. My wounds stank and festered on account of my foolishness. I was wretched and utterly bowed down; I went about mourning all day long. For my loins were filled with mockings, and there is no healing in my flesh. I was maltreated and humiliated exceedingly; I howled from the groaning of my heart. Lord, all my desire is before you, and my groaning was not hidden from you. My heart was troubled, my strength failed me; and even the light of my eyes had gone from me. My friends and my neighbours drew near and stood against me, and those nearest me stood far away. Those who sought my life used force, and those who sought evils for me spoke vanities, and meditated trickeries all day long. But I, like a deaf man, heard nothing; like one who is dumb, who does not open his mouth. So I became like one who cannot hear, and in whose mouth there are no rebukes. For in you, Lord, I have hoped; you will answer me, O Lord my God. For I said: Let my foes never exult over me. When my foot slipped they crowed over me. For I am ready for blows and my pain is with me continually. For I will declare my iniquity and be troubled at my sin. But my enemies live and have prevailed over me, and those who hate me unjustly have been multiplied. Those who repay me with evils in place of good have slandered me, since I pursued goodness. Do not forsake me, Lord; my God, do not go far from me. Hasten to help me, Lord of my salvation.
+**Psalm 37**
+Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your arrows have been stuck fast in me, and you have laid a heavy hand upon me. There is no healing in my flesh on account of your wrath, nor peace in my bones on account of my sins. My iniquities flooded over my head; like a heavy burden they weighed heavily upon me. My wounds stank and festered on account of my foolishness. I was wretched and utterly bowed down; I went about mourning all day long. For my loins were filled with mockings, and there is no healing in my flesh. I was maltreated and humiliated exceedingly; I howled from the groaning of my heart. Lord, all my desire is before you, and my groaning was not hidden from you. My heart was troubled, my strength failed me; and even the light of my eyes had gone from me. My friends and my neighbours drew near and stood against me, and those nearest me stood far away. Those who sought my life used force, and those who sought evils for me spoke vanities, and meditated trickeries all day long. But I, like a deaf man, heard nothing; like one who is dumb, who does not open his mouth. So I became like one who cannot hear, and in whose mouth there are no rebukes. For in you, Lord, I have hoped; you will answer me, O Lord my God. For I said: Let my foes never exult over me. When my foot slipped they crowed over me. For I am ready for blows and my pain is with me continually. For I will declare my iniquity and be troubled at my sin. But my enemies live and have prevailed over me, and those who hate me unjustly have been multiplied. Those who repay me with evils in place of good have slandered me, since I pursued goodness. Do not forsake me, Lord; my God, do not go far from me. Hasten to help me, Lord of my salvation.
 
 ****
 
 And again.
 
-Do not forsake me, Lord; my God do not go far from me. Hasten to help me, Lord of my salvation.
+Do not forsake me, Lord; my God do not go far from me.
+Hasten to help me, Lord of my salvation.
 
-**Psalm 62** O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh how often in a desert, untrodden and waterless land. Thus I appeared before you in the holy place, to see your power and your glory. For your mercy is better than life; my lips will praise you. So I will bless you as long as I live, and in your name I will lift up my hands. May my soul be filled as with marrow and fatness; my mouth will praise you with joyful lips. When I remembered you upon my bed, every dawn I meditated upon you. For you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me. But those who vainly sought my life will go down to the deepest parts of the earth, they will be delivered to the power of the sword, they will be portions for foxes. But the king will rejoice in God, and all who swear by him will be praised; for the mouths of those who speak iniquities have been stopped.
+**Psalm 62**
+O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh how often in a desert, untrodden and waterless land. Thus I appeared before you in the holy place, to see your power and your glory. For your mercy is better than life; my lips will praise you. So I will bless you as long as I live, and in your name I will lift up my hands. May my soul be filled as with marrow and fatness; my mouth will praise you with joyful lips. When I remembered you upon my bed, every dawn I meditated upon you. For you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me. But those who vainly sought my life will go down to the deepest parts of the earth, they will be delivered to the power of the sword, they will be portions for foxes. But the king will rejoice in God, and all who swear by him will be praised; for the mouths of those who speak iniquities have been stopped.
 
 ****
 
 And again.
 
-Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me.
+Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice.
+My soul clung to you; and your right hand upheld me.
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
@@ -118,19 +130,22 @@ Alleluia, Alleluia, Alleluia. Glory to you, O God (**x3, without Metanias). Lord
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
-**Psalm 87** Lord, God of my salvation, I have cried by day, and by night also before you. Let my prayer come into your presence, and turn you ear to my supplication. For my soul was filled with evils, and my life drew near to Hell. I was reckoned among those that go down to the Pit; I became as one that has no help, free among the dead. Like the slain that sleep in the tomb, whom you remembered no more; and they were cut off from your power. They placed me in the lowest Pit; in darkness and in the shadow of death. Your wrath lay heavy upon me, and you brought all your waves against me. You put my friends far from me, and made me an abomination to them. I was handed over and I came out; my eyes grew weak because of my beggary. I cried to you, Lord, all the day; I stretched out my hands towards you. Will you work wonders for the dead; or will physicians raise them up again to praise you? Will any declare your mercy in the tomb, or your truth in the place of destruction? Will your wonders be known in the dark, or your justice in a land that has been forgotten? But to you, Lord, I have cried, and in the morning my prayer will come before you. Why have you rejected my soul, Lord; why do you turn away your face from me? I am poor and in toils since my youth; exalted, I was humbled and brought to despair. Your fierce anger overwhelmed me, and your terrors appalled me. They surrounded me like water all day long; they closed in upon me from every side. Friend and neighbour you have put far from me, and my companions because of my misery.
+**Psalm 87**
+Lord, God of my salvation, I have cried by day, and by night also before you. Let my prayer come into your presence, and turn you ear to my supplication. For my soul was filled with evils, and my life drew near to Hell. I was reckoned among those that go down to the Pit; I became as one that has no help, free among the dead. Like the slain that sleep in the tomb, whom you remembered no more; and they were cut off from your power. They placed me in the lowest Pit; in darkness and in the shadow of death. Your wrath lay heavy upon me, and you brought all your waves against me. You put my friends far from me, and made me an abomination to them. I was handed over and I came out; my eyes grew weak because of my beggary. I cried to you, Lord, all the day; I stretched out my hands towards you. Will you work wonders for the dead; or will physicians raise them up again to praise you? Will any declare your mercy in the tomb, or your truth in the place of destruction? Will your wonders be known in the dark, or your justice in a land that has been forgotten? But to you, Lord, I have cried, and in the morning my prayer will come before you. Why have you rejected my soul, Lord; why do you turn away your face from me? I am poor and in toils since my youth; exalted, I was humbled and brought to despair. Your fierce anger overwhelmed me, and your terrors appalled me. They surrounded me like water all day long; they closed in upon me from every side. Friend and neighbour you have put far from me, and my companions because of my misery.
 
 ****
 
 And again.
 
-Lord, God of my salvation, I have cried by day; and by night also before you. Let my prayer come into your presence, and turn your ear to my supplication.
+Lord, God of my salvation, I have cried by day; and by night also before you.
+Let my prayer come into your presence, and turn your ear to my supplication.
 
 ****
 
 The priest comes from the Altar and reads the morning prayers quietly.
 
-**Psalm 102** Bless the Lord, O my soul, and all that is within me, bless his holy name. Bless the Lord, O my soul, and forget none of his benefits. He forgives all your iniquities; he heals all your diseases; he redeems your life from corruption and crowns you with mercy and compassion; he satisfies your desire with good things; your youth will be renewed like an eagle’s. The Lord performs deeds of mercy and judgement for all who are oppressed. He made known his ways to Moses, his wishes to the children of Israel. The Lord is compassionate and merciful, long-suffering and full of mercy. He will not always be wrathful, nor will he be enraged for ever. He has not dealt with us according to our iniquities, nor rewarded us according to our sins. For, like the height of heaven above the earth, the Lord has made his mercy prevail over those that fear him. As far as the east is from the west, so far has he taken our sins from us. As a father takes pity on his children the Lord has taken pity on those who fear him. For he knows of what we are made; has remembered that we are but dust. As for man, his days are but as grass, he will blossom like a flower of the field; for when a wind has passed over it, it will be no more and will know its place no longer. But the mercy of the Lord is for ever and ever upon those who fear him; and his justice upon their children’s children, upon those who keep his covenant and remember his commandments to do them. The Lord has prepared his throne in heaven and his kingdom rules over all. Bless the Lord, all you his Angels, powerful in strength, who perform his word, and listen to the voice of his words. Bless the Lord, all you his Powers, his Ministers who do his will. Bless the Lord, all you his works. In every place of his dominion, bless the Lord, O my soul!
+**Psalm 102**
+Bless the Lord, O my soul, and all that is within me, bless his holy name. Bless the Lord, O my soul, and forget none of his benefits. He forgives all your iniquities; he heals all your diseases; he redeems your life from corruption and crowns you with mercy and compassion; he satisfies your desire with good things; your youth will be renewed like an eagle’s. The Lord performs deeds of mercy and judgement for all who are oppressed. He made known his ways to Moses, his wishes to the children of Israel. The Lord is compassionate and merciful, long-suffering and full of mercy. He will not always be wrathful, nor will he be enraged for ever. He has not dealt with us according to our iniquities, nor rewarded us according to our sins. For, like the height of heaven above the earth, the Lord has made his mercy prevail over those that fear him. As far as the east is from the west, so far has he taken our sins from us. As a father takes pity on his children the Lord has taken pity on those who fear him. For he knows of what we are made; has remembered that we are but dust. As for man, his days are but as grass, he will blossom like a flower of the field; for when a wind has passed over it, it will be no more and will know its place no longer. But the mercy of the Lord is for ever and ever upon those who fear him; and his justice upon their children’s children, upon those who keep his covenant and remember his commandments to do them. The Lord has prepared his throne in heaven and his kingdom rules over all. Bless the Lord, all you his Angels, powerful in strength, who perform his word, and listen to the voice of his words. Bless the Lord, all you his Powers, his Ministers who do his will. Bless the Lord, all you his works. In every place of his dominion, bless the Lord, O my soul!
 
 ****
 
@@ -138,7 +153,8 @@ And again.
 
 In every place of his dominion: bless the Lord, O my soul!
 
-**Psalm 142** Lord, hear my prayer: in your truth give ear to my supplication, and in your justice hear me. Do not enter into judgement with your servant: for in your sight no one living can be justified. For the enemy pursued my soul, humbled my life to the ground. Made me dwell in darkness, like those for ever dead. My spirit grew despondent within me and my heart within me was troubled. I remembered days of old, I meditated on all your works: I made the works of your hands my meditation. I stretched out my hands towards you: my soul thirsted for you like a waterless land. Hear me swiftly, O Lord, my spirit has failed. Do not turn your face from me, or I shall be like those who go down to the Pit. Make me hear of your mercy in the morning, for I have hoped in you. Make known to me the way in which I should walk, for to you I have lifted up my soul. Deliver me from my enemies, Lord: I have run to you for shelter. Teach me to do your will, for you are my God. Your good Spirit will guide me in an upright land. For your name’s sake, O Lord, you will give me life. In your justice, you will bring my soul out of trouble, in your mercy slay my enemies, and destroy all those that afflict my soul, for I am your servant.
+**Psalm 142**
+Lord, hear my prayer: in your truth give ear to my supplication, and in your justice hear me. Do not enter into judgement with your servant: for in your sight no one living can be justified. For the enemy pursued my soul, humbled my life to the ground. Made me dwell in darkness, like those for ever dead. My spirit grew despondent within me and my heart within me was troubled. I remembered days of old, I meditated on all your works: I made the works of your hands my meditation. I stretched out my hands towards you: my soul thirsted for you like a waterless land. Hear me swiftly, O Lord, my spirit has failed. Do not turn your face from me, or I shall be like those who go down to the Pit. Make me hear of your mercy in the morning, for I have hoped in you. Make known to me the way in which I should walk, for to you I have lifted up my soul. Deliver me from my enemies, Lord: I have run to you for shelter. Teach me to do your will, for you are my God. Your good Spirit will guide me in an upright land. For your name’s sake, O Lord, you will give me life. In your justice, you will bring my soul out of trouble, in your mercy slay my enemies, and destroy all those that afflict my soul, for I am your servant.
 
 ****
 
@@ -162,7 +178,18 @@ In peace, let us pray to the Lord.
 
 **People: Lord, have mercy.** **And so after each petition.**
 
-For the peace from on high and for the salvation of our souls, let us pray to the Lord. For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord. For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord. For our Archbishop **N., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord.** \[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord. For our Father and Abbot Priest-monk **N. and for all our brotherhood in Christ, let us pray to the Lord.\]** For this city\[holy monastery\], for every, city, town and village, and for the faithful who dwell in them, let us pray to the Lord. For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord. For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord. For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord. Help us, save us, have mercy on us, and keep us, O God, by your grace. Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God.
+For the peace from on high and for the salvation of our souls, let us pray to the Lord.
+For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord.
+For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord.
+For our Archbishop **N., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord.**
+\[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord.
+For our Father and Abbot Priest-monk **N. and for all our brotherhood in Christ, let us pray to the Lord.\]**
+For this city\[holy monastery\], for every, city, town and village, and for the faithful who dwell in them, let us pray to the Lord.
+For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord.
+For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord.
+For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord.
+Help us, save us, have mercy on us, and keep us, O God, by your grace.
+Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God.
 
 **People: To you, O Lord.**
 
@@ -182,7 +209,8 @@ For the peace from on high and for the salvation of our souls, let us pray to th
 
 ****
 
-Then the following Troparion is sung solemnly 3 times. Tone 8
+Then the following Troparion is sung solemnly 3 times.
+Tone 8
 
 Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the protection of Bodiless Powers, have mercy on us.
 
@@ -234,7 +262,8 @@ The present day is resplendent with the first fruits of the Lord’s sufferings.
 
 \[**The Russian Typikon prescribes three readings, one after each Kathisma, from St John Chrysostom’s commentary on St Matthew’s Gospel, without specifying the references precisely.**\]
 
-**And at once the Priest says:** And that he would count us worthy to listen to the holy Gospel, let us pray to the Lord God.
+**And at once the Priest says:**
+And that he would count us worthy to listen to the holy Gospel, let us pray to the Lord God.
 
 **Reader: Lord, have mercy, Lord, have mercy, Lord, have mercy.**
 
@@ -254,9 +283,12 @@ At that time, as Jesus was going back to the city, he was hungry. And seeing a f
 
 **Reader: Glory to you, Lord, glory to you!**
 
-**And at once:** **Psalm 50** Have mercy on me, O God, in accordance with your great mercy. According to the multitude of your compassion blot out my offence. Wash me thoroughly from my wickedness, and cleanse me from my sin. For I acknowledge my wickedness, and my sin is ever before me. Against you alone I have sinned and done what is evil in your sight, that you may be justified in your words and win when you are judged. For see, in wickedness I was conceived and in sin my mother bore me. For see, you have loved truth; you have shown me the hidden and secret things of your wisdom. You will sprinkle me with hyssop and I shall be cleansed. You will wash me and I shall be made whiter than snow. You will make me hear of joy and gladness; the bones which have been humbled will rejoice. Turn away your face from my sins and blot out all my iniquities. Create a clean heart in me, O God, and renew a right Spirit within me. Do not cast me out from your presence, and do not take your Holy Spirit from me. Give me back the joy of your salvation, and establish me with your sovereign Spirit. I will teach transgressors your ways, and sinners will turn to you again. O God, the God of my salvation, deliver me from bloodshed and my tongue will rejoice at your justice. Lord, you will open my lips, and my mouth will proclaim your praise. For if you had wanted a sacrifice, I would have given it. You will not take pleasure in burnt offerings. A sacrifice to God is a broken spirit; a broken and a humbled heart God will not despise. Do good to Sion, Lord, in your good pleasure; and let the walls of Jerusalem be rebuilt. Then you will be well pleased with a sacrifice of righteousness, oblation and whole burnt offerings. Then they will offer calves upon your altar.
+**And at once:**
+**Psalm 50**
+Have mercy on me, O God, in accordance with your great mercy. According to the multitude of your compassion blot out my offence. Wash me thoroughly from my wickedness, and cleanse me from my sin. For I acknowledge my wickedness, and my sin is ever before me. Against you alone I have sinned and done what is evil in your sight, that you may be justified in your words and win when you are judged. For see, in wickedness I was conceived and in sin my mother bore me. For see, you have loved truth; you have shown me the hidden and secret things of your wisdom. You will sprinkle me with hyssop and I shall be cleansed. You will wash me and I shall be made whiter than snow. You will make me hear of joy and gladness; the bones which have been humbled will rejoice. Turn away your face from my sins and blot out all my iniquities. Create a clean heart in me, O God, and renew a right Spirit within me. Do not cast me out from your presence, and do not take your Holy Spirit from me. Give me back the joy of your salvation, and establish me with your sovereign Spirit. I will teach transgressors your ways, and sinners will turn to you again. O God, the God of my salvation, deliver me from bloodshed and my tongue will rejoice at your justice. Lord, you will open my lips, and my mouth will proclaim your praise. For if you had wanted a sacrifice, I would have given it. You will not take pleasure in burnt offerings. A sacrifice to God is a broken spirit; a broken and a humbled heart God will not despise. Do good to Sion, Lord, in your good pleasure; and let the walls of Jerusalem be rebuilt. Then you will be well pleased with a sacrifice of righteousness, oblation and whole burnt offerings. Then they will offer calves upon your altar.
 
-**We begin the Canon by St Kosmas, of which the Acrostic is: On Monday**
+**We begin the Canon by St Kosmas, of which the Acrostic is:
+On Monday**
 
 ****
 
@@ -298,7 +330,8 @@ Let us sing to the Lord, who by his divine command dried up the pathless, raging
 
 ****
 
-After the small litany the Kontakion Tone 8.
+After the small litany the Kontakion
+Tone 8.
 
 Jacob lamented the loss of Joseph, yet the noble one was seated in a chariot, honoured like a king; for as he had not been slave to the pleasures of the Egyptian woman, he was glorified in return by the one who sees the hearts of men, and bestows an incorruptible crown.
 
@@ -314,9 +347,14 @@ The Menologion of the day and then the following notice:
 
 On holy and great Monday we commemorate the blessed and most virtuous Joseph, and the fig tree which was cursed by the Lord and withered.
 
-**Verses on the most virtuous Joseph. Chaste Joseph a just ruler was revealed,** And furnisher of corn: O wealth of virtues!
+**Verses on the most virtuous Joseph.
+Chaste Joseph a just ruler was revealed,**
+And furnisher of corn: O wealth of virtues!
 
-**Others on the withered fig-tree.** A fig tree to the Hebrews’ congregation Devoid of spiritual fruits Christ here compares, And cursing withers: let us flee its passion.
+**Others on the withered fig-tree.**
+A fig tree to the Hebrews’ congregation
+Devoid of spiritual fruits Christ here compares,
+And cursing withers: let us flee its passion.
 
 At the prayers of the all-virtuous Joseph, Christ God, have mercy on us. Amen.
 
@@ -380,15 +418,18 @@ Christ, our Fashioner, you magnified the Mother of God who gave you birth, from 
 
 ****
 
-After the small litany, the Exapostilarion sung slowly and solemnly: Tone 3. Model Melody.
+After the small litany, the Exapostilarion sung slowly and solemnly:
+Tone 3. Model Melody.
 
 Your bridal chamber, O my Saviour, I see all adorned, but I have no garment so that I may enter it. Make bright the mantle of my soul, O Giver of light, and save me! (**x3)**
 
 ****
 
-At Lauds we insert 4 Idiomel Stichera, doubling them. Tone 1
+At Lauds we insert 4 Idiomel Stichera, doubling them.
+Tone 1
 
-**Psalm 148** \[**A\] Let everything that has breath praise the Lord. Praise the Lord from the heavens; praise him in the highest. To you praise is due, O God.**
+**Psalm 148**
+\[**A\] Let everything that has breath praise the Lord. Praise the Lord from the heavens; praise him in the highest. To you praise is due, O God.**
 
 \[**B\] Praise him, all his angels: Praise him, all his Powers. To you praise is due, O God.**
 
@@ -416,7 +457,8 @@ At Lauds we insert 4 Idiomel Stichera, doubling them. Tone 1
 
 \[**B\] A hymn for all his holy ones; for the children of Israel, a people that draws near him.**
 
-**Psalm 149** \[**A\] Sing to the Lord a new song, his praise in the Church of the holy ones.**
+**Psalm 149**
+\[**A\] Sing to the Lord a new song, his praise in the Church of the holy ones.**
 
 \[**B\] Let Israel rejoice in him that made him, let the children of Sion be joyful in their king.**
 
@@ -434,7 +476,8 @@ At Lauds we insert 4 Idiomel Stichera, doubling them. Tone 1
 
 \[**A\] To execute upon them the judgement that is decreed; such glory will be for all his holy ones.**
 
-**Psalm 150** \[**B\] Praise God in his saints; praise him in the firmament of his power.**
+**Psalm 150**
+\[**B\] Praise God in his saints; praise him in the firmament of his power.**
 
 \[**A\] Praise him for his mighty acts; praise him according to the greatness of his majesty.**
 
@@ -480,11 +523,17 @@ Grant, Lord, this day to keep us without sin. Blessed are you, Lord, the God of 
 
 **Reader: Lord, have mercy.**
 
-Help us, save, have mercy on us and keep us, O God, by your grace. That the whole day may be perfect, holy, peaceful and sinless, let us ask the Lord.
+Help us, save, have mercy on us and keep us, O God, by your grace.
+That the whole day may be perfect, holy, peaceful and sinless, let us ask the Lord.
 
 **Reader: Grant this, O Lord.**
 
-**Priest: An Angel of peace, a faithful guide and guardian of our souls and bodies, let us ask of the Lord.** Pardon and forgiveness of our sins and offences, let us ask of the Lord. Things good, and profitable for our souls, and peace for the world, let us ask of the Lord. That we may live out the rest of our days in peace and repentance, let us ask of the Lord. A Christian end to our life, painless, unashamed and peaceful, and a good defence before the dread judgement seat of Christ, let us ask. Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God.
+**Priest: An Angel of peace, a faithful guide and guardian of our souls and bodies, let us ask of the Lord.**
+Pardon and forgiveness of our sins and offences, let us ask of the Lord.
+Things good, and profitable for our souls, and peace for the world, let us ask of the Lord.
+That we may live out the rest of our days in peace and repentance, let us ask of the Lord.
+A Christian end to our life, painless, unashamed and peaceful, and a good defence before the dread judgement seat of Christ, let us ask.
+Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God.
 
 **Reader: To you, O Lord.**
 
@@ -506,7 +555,8 @@ Help us, save, have mercy on us and keep us, O God, by your grace. That the whol
 
 ****
 
-After the Litany and the Prayer at the Bowing down of heads, the Aposticha: By Monk Kosmas. Tone 5
+After the Litany and the Prayer at the Bowing down of heads, the Aposticha:
+By Monk Kosmas. Tone 5
 
 O Lord, the mother of the sons of Zebedee, not understanding the ineffable mystery of your dispensation, asked you to grant her own children the honour of a temporary kingdom; but instead of this you promised your friends that they would drink cup of death; a cup which you said you would drink before them, a cleansing from sins. And so we cry to you: O Salvation of our souls, glory to you!
 
@@ -574,6 +624,7 @@ We then make 12 small metanias, then one further great metania as we repeat the 
 
 **Then at once Come let us worship, and the First Hour, during which we do not add a Kathisma of the Psalter, nor at the Ninth Hour.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -528,6 +528,7 @@ font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">G</span><span st
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">A</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">ll-spotless Maiden, Mother of God, you are truly called Joy of Apostles and Unfading Crown of Champions; with them, Sovereign Lady, ask redemption from faults and amendment of life for us who ask you with faith and cry to you: Hail, most truly the Treasury of blessings.</span>
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

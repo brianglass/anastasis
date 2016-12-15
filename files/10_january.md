@@ -24,11 +24,13 @@ Venerable Father, all-blessed Gregory; mouth that pours out blessed words, drawi
 
 ****
 
-Prosomia Stichera of St Dometianos. Tone 1. All-praised Martyrs.
+Prosomia Stichera of St Dometianos.
+Tone 1. All-praised Martyrs.
 
 Glory.
 
-**Of Saint Gregory. Tone 4.**
+**Of Saint Gregory.
+Tone 4.**
 
 Making your word of wisdom radiant by unapproachable virtue, Gregory of Nyssa, you became all fair in both, with your voice inspired by God beautifying and delighting the people spiritually, expounding with great wisdom the consubstantial godhead of the Trinity; and so, making war with orthodox doctrines on outlandish heresies, you roused the might of the faith to the ends of the earth. As you stand by Christ with the bodiless Ministers, ask for our souls his peace and great mercy.
 
@@ -40,7 +42,8 @@ The hand of the Baptist trembled when it touched your immaculate head; the river
 
 ****
 
-Aposticha. Prosomia Stichera. Tone 2. House of Ephratha.
+Aposticha. Prosomia Stichera.
+Tone 2. House of Ephratha.
 
 Let the whole earth sing a new song to Christ, born from a Virgin and today baptised in Jordan.
 
@@ -62,7 +65,8 @@ The consubstantial divine Spirit, shining from above and seen ineffably in the f
 
 Glory.
 
-**Of St Gregory. Tone 4.**
+**Of St Gregory.
+Tone 4.**
 
 Having achieved a life inspired by God, you made its practice bright by contemplation, Gregory, revealer of God; for loving wisdom with divine ardour, you were enriched with grace from the mouth of the Spirit. Distilling the sweetness of your words like honeycomb, you ever make God’s Church joyful with divine thoughts. And so, as you dwell a high priest in heaven, intercede unceasingly for us who celebrate your memory.
 
@@ -84,6 +88,7 @@ And of the Feast. Tone 1.
 
 As you were baptized in the Jordan, Lord, the worship of the Trinity was made manifest; for the voice of the Father bore witness to you, naming you the Beloved Son; and the Spirit, in the form of a dove, confirmed the sureness of the word. Christ God, who appeared and enlightened the world, glory to you!
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

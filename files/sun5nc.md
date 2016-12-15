@@ -156,6 +156,7 @@ Theotokion.
 
 As pure, blameless and virgin you bore a Son, who delivers us from temptations, God without change; but now implore him too to give us forgiveness of faults.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -42,7 +42,8 @@ font-style:normal;mso-bidi-font-style:italic">Tone 5.</span>
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">Come, let us go up to the mountain of the Lord, and to the house of our God, and let us contemplate the glory of his Transfiguration, glory as of the only-begotten of the Father. By light let us receive light; and let us, borne aloft in spirit, hymn the consubstantial Trinity to the ages. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-weight:bold;font-style:normal;mso-bidi-font-style:italic">At the Aposticha, prosomia. Tone 2. House of Ephratha.</span>
+color:red;mso-bidi-font-weight:bold;font-style:normal;mso-bidi-font-style:italic">At the Aposticha, prosomia.
+Tone 2. House of Ephratha.</span>
 
 <span style="mso-bidi-font-style:normal">Shining with the light of the virtues, let us go to the holy mountain to see the divine Transfiguration of the Lord </span>
 
@@ -87,7 +88,8 @@ A day of joy has now come for the faithful, day of the divine, and glorious Tran
 
 Glory. Both. <span style="color:red">The same. </span>
 
-<span style="color:red"> After the second Reading, Kathisma. Tone 1. The soldiers watching. </span>
+<span style="color:red"> After the second Reading, Kathisma.
+Tone 1. The soldiers watching. </span>
 
 Let all of us believers go up to Mount Thabor together with Christ’s chosen Disciples, and let us in mind contemplate his Transfiguration, and let us glorify his supreme condescension towards us, through which he grants the world eternal life.
 
@@ -111,7 +113,8 @@ font-family:&quot;Book Antiqua&quot;">Christ knowingly now goes forward to appea
 color:red">And the Canon of the Saint. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Then the Triode of the Forefeast. Ode 1. Tone 4. I will sing to you, Lord my God.</span>
+color:red">Then the Triode of the Forefeast.
+Ode 1. Tone 4. I will sing to you, Lord my God.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">As we, the faithful, celebrate this day of the forefeast of the Transfiguration of Christ our Redeemer, let us clap our hands and sing. </span>
@@ -147,7 +150,8 @@ font-family:&quot;Book Antiqua&quot;">About to fulfil the words of eternal life 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Kathisma of the Saint. </span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Glory. Both now. <span style="color:red">Of the</span> <span style="color:red">Forefeast. Tone 4. Today you have appeared. </span></span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Glory. Both now. <span style="color:red">Of the</span> <span style="color:red">Forefeast.
+Tone 4. Today you have appeared. </span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The Sun of glory has appeared, has blazed forth the rays of the Godhead to those in darkness,<a href="#_ftn7" id="_ftnref7">[7]</a> as he goes up to Thabor. Let us honour his light-bearing coming. </span>
@@ -198,7 +202,8 @@ font-family:&quot;Book Antiqua&quot;">Christ the lamp now begins to appear in a 
 color:red">Of the Saint. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Kontakion of the Forefeast. Tone 4. Today you have appeared.</span>
+color:red">Kontakion of the Forefeast.
+Tone 4. Today you have appeared.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">In the divine Transfiguration all mortal nature divinely shines forth today, as with gladness it cries: Christ is transfigured, saving all. </span>
@@ -214,21 +219,28 @@ font-family:&quot;Book Antiqua&quot;">On the 5th of the month, Forefeast of the 
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Verses.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"> They execute Efsignios, Christ’s friend, Who cries until the blow: To Christ my worship! And on the fifth of the month Efsignios’ head with dust mingled. </span>
+font-family:&quot;Book Antiqua&quot;">
+They execute Efsignios, Christ’s friend,
+Who cries until the blow: To Christ my worship!
+And on the fifth of the month Efsignios’ head with dust mingled. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">On the same day Saints Kattidios and Kattidianos, Martyrs and blood brothers, died by being stoned. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Verses. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;">They piled up lofty hills of stones, O Christ, By means of which two brothers climbed to you. </span>
+color:red">Verses.
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+&quot;Book Antiqua&quot;">They piled up lofty hills of stones, O Christ,
+By means of which two brothers climbed to you. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">On the same day Saint Nonna, the mother of St Gregory the Divine, died in peace. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Verses. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;">Fair offspring to fair Nonna in her death Gives a fair speech of burial, his words. </span>
+color:red">Verses.
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+&quot;Book Antiqua&quot;">Fair offspring to fair Nonna in her death
+Gives a fair speech of burial, his words. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">On the same day Saint Soleb the Egyptian was pierced by an arrow \[<span style="color:blue">belos</span>\] and died. </span>
@@ -236,14 +248,17 @@ font-family:&quot;Book Antiqua&quot;">On the same day Saint Soleb the Egyptian w
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Verses. </span>
 
-If backwards, Soleb, you should spell your name, ‘Belos’ you’ll get, instrument of your end.
+If backwards, Soleb, you should spell your name,
+‘Belos’ you’ll get, instrument of your end.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">On the same day the holy Bishop and Martyr Fabius (or Fabian), Bishop of Rome, died by the sword. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Verses. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;">Fabius lies dead, Christ’s sacrificing priest, New sacrifice offered to Christ by sword. </span>
+color:red">Verses.
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+&quot;Book Antiqua&quot;">Fabius lies dead, Christ’s sacrificing priest,
+New sacrifice offered to Christ by sword. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">At the prayers of your Saints, O God, have mercy on us. Amen. </span>
@@ -347,7 +362,8 @@ color:red">Forefeast. With the Disciples let us go.</span>
 font-family:&quot;Book Antiqua&quot;">We who desire wholly the divine glory, let us cut away the fog of what is earthly and fleshly, as raised high above earth we ascend mount Thabor; and let us hasten to be found worthy to share with Moses and Elias and the princes of the Apostles in the divine and unapproachable radiance, receiving light by light. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">At the Aposticha, Prosomia of the Forefeast. Tone 1. Joy of the heavenly hosts.</span>
+color:red">At the Aposticha, Prosomia of the Forefeast.
+Tone 1. Joy of the heavenly hosts.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">As we go beforehand to meet the all-holy, glorious Transfiguration, on this present day we glorify Christ who refigured our nature with the fire of the Godhead and made it blaze with incorruption as at first. </span>
@@ -411,6 +427,7 @@ color:red">And Dismissal. </span>
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

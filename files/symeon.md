@@ -14,9 +14,11 @@ Theodoret’s account of Saint Symeon is of the greatest importance, since he wa
 
 **THE CANON**
 
-**The Acrostic, without the Theotokia, is:** Accept the hymn, O blessed Symeon.
+**The Acrostic, without the Theotokia, is:**
+Accept the hymn, O blessed Symeon.
 
-**By Monk John Ode 1. Tone 8. Let us sing to the Lord.**
+**By Monk John
+Ode 1. Tone 8. Let us sing to the Lord.**
 
 As with the broken instrument of my tongue I weave this song for you, God-bearing Symeon, grant me through your supplications divinely inspired light of knowledge.
 
@@ -154,8 +156,10 @@ You walked the path of heavenly virtue, you displayed the prize from on high, yo
 
 You were shown, O Virgin, to be the bush that burned yet was not consumed by fire, by conceiving without seed the God and Saviour of the world, whom we unceasingly magnify.
 
-All that remains of Saint Symeon’s pillar at Qal’at Sim’an.
+All that remains of Saint Symeon’s pillar
+at Qal’at Sim’an.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

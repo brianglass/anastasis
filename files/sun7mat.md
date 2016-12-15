@@ -103,7 +103,8 @@ Let everything that has breath…,
 
 **the Dawn Gospel,** Having seen the Resurrection of Christ…, **Psalm 50 and the rest as usual.**
 
-Resurrection Canon. Ode 1. Tone 7. Irmos.
+Resurrection Canon.
+Ode 1. Tone 7. Irmos.
 
 At your behest, O Lord, the nature of the waters that before flowed freely was transformed and became like earth; and so Israel having marched dryshod sings you a song of victory.
 
@@ -123,7 +124,8 @@ The pangs of the foremother Eve have been abolished, for you escaped pangs when 
 
 ****
 
-Of the Cross and Resurrection. Irmos. He who brings wars.
+Of the Cross and Resurrection.
+Irmos. He who brings wars.
 
 Two life-bearing sources the Saviour poured out for us on the Cross from his pierced side. Let us sing to him, for he has been glorified.
 
@@ -137,7 +139,8 @@ Alone you were revealed a virgin even after child-birth; for you gave birth to t
 
 ****
 
-Hymn to the Mother of God, of which the Acrostic is the Alphabet.
+Hymn to the Mother of God,
+of which the Acrostic is the Alphabet.
 
 Irmos. At your behest.
 
@@ -169,7 +172,8 @@ At the entreaties of your Mother who did not know man, grant peace to your world
 
 ****
 
-Another. Of Cross and Resurrection. You established the heavens.
+Another. Of Cross and Resurrection.
+You established the heavens.
 
 You endured the sufferings on the Cross and opened Paradise to the Thief, as benefactor and God; establish my mind to do your will, only Lover of humankind.
 
@@ -183,7 +187,8 @@ O Virgin-mother Mary, who conceived God without seed and delivered Eve from the 
 
 ****
 
-Another. Of the Mother of God. Lord, Saviour who established.
+Another. Of the Mother of God.
+Lord, Saviour who established.
 
 A serpent crawling out of Eden enticed me with a longing to be divine and hurled me to the earth. But he who is by nature compassionate and kind took pity on me and having dwelt in your womb and been made like me, O Virgin-Mother, he makes me divine.
 
@@ -213,7 +218,8 @@ As truly Mother of God, implore your Maker and Son to direct me, O all-blameless
 
 ****
 
-Another. Of Cross and Resurrection. The Prophet, O Christ.
+Another. Of Cross and Resurrection.
+The Prophet, O Christ.
 
 O Lord, who do not know sin, because of which you became what you were not, you took a form that was another’s, that you might save the world and lure the tyrant and slay him.
 
@@ -227,7 +233,8 @@ Born from a Virgin, you die, but you give life to Adam, who had been led astray 
 
 ****
 
-Another, of the Mother of God. Christ God, who did not leave.
+Another, of the Mother of God.
+Christ God, who did not leave.
 
 Wholly chosen and fair, you appeared to God before creation; by the splendour of the light that pours from you make radiant those who sing your praise.
 
@@ -257,7 +264,8 @@ In a manner fitting God, All-praised Mother, you gave birth to God become incarn
 
 ****
 
-Another, of Cross and Resurrection. O Lord my God.
+Another, of Cross and Resurrection.
+O Lord my God.
 
 When, numbered with the lawless, you were lifted up on Calvary, the great lights hid themselves and the earth was shaken, and the splendour of the Temple was rent, showing the rejection of the Hebrews.
 
@@ -301,7 +309,8 @@ What human can explain the manner of your ineffable child-bearing for our sake, 
 
 ****
 
-Another. Of Cross and Resurrection. Jonas from the bowels of Hell.
+Another. Of Cross and Resurrection.
+Jonas from the bowels of Hell.
 
 Willingly lifted up on the Cross, O Saviour, you took prisoner the might of the foe. On it, loving Lord, you nailed the record of our sin.
 
@@ -315,7 +324,8 @@ Mother of God, do not cease to entreat our God, to whom you gave birth beyond ex
 
 ****
 
-Of the Mother of God. Sick on the rolling swell.
+Of the Mother of God.
+Sick on the rolling swell.
 
 Types in the Law and the sayings of the Prophets clearly foretold that you would give birth to the Benefactor of all creation, Pure Virgin, who in many and varied ways had bestowed benefits on those who with faith sing your praise.
 
@@ -325,7 +335,8 @@ The One who by his divine purpose and creative power brought the universe into b
 
 ****
 
-Kontakion. No longer does the sword.
+Kontakion.
+No longer does the sword.
 
 No longer does the might of death have power to keep mortals captive; for Christ came down, breaking in pieces and destroying its power. Now Hell is bound, the Prophets with one in joy declare, ‘The Saviour has appeared to those with faith. Come out you faithful to the Resurrection!’
 
@@ -371,7 +382,8 @@ Mother of God, you made the enlightenment that is before the sun dawn for world,
 
 ****
 
-Of the Mother of God. Another. The Youths of old revealed.
+Of the Mother of God. Another.
+The Youths of old revealed.
 
 Having you as his possession, O Virgin, an adornment wrought in gold, of many colours, he loved you, your Creator and Lord, the highly exalted and highly glorified God of our Fathers.
 
@@ -401,7 +413,8 @@ Your total purity and lack of blemish, O Virgin, purified the inhabited world of
 
 ****
 
-Another. Of Cross and Resurrection. The King of glory, alone without beginning.
+Another. Of Cross and Resurrection.
+The King of glory, alone without beginning.
 
 The One who willingly endured the Passion and by his own design was nailed to a Cross and abolished the powers of Hades, praise him, you Priests, highly exalt him, you peoples, to all the ages.
 
@@ -415,7 +428,8 @@ The Word, alone compassionate and pre-eternal, who was born in the last times fr
 
 ****
 
-Of the Mother of God. Another. Unconsumed by fire.
+Of the Mother of God. Another.
+Unconsumed by fire.
 
 By the splendour of your child-bearing, Mother of God, you have marvellously enlightened the inhabited world. For you carry in your arms the true God, who makes radiant the faithful who ever cry, ‘All you works of the Lord, praise the Lord, and highly exalt him to all the ages’.
 
@@ -445,7 +459,8 @@ As we honour not a Trinity of godheads but of hypostases, not a Unity of persons
 
 ****
 
-Another. Of Cross and Resurrection. Mother of God and Virgin.
+Another. Of Cross and Resurrection.
+Mother of God and Virgin.
 
 Light from light, radiance of the Father’s glory, shining out timelessly, Christ shone for the life of mortals that were in darkness and dispelled the pursuing darkness. Without ceasing we the faithful magnify him.
 
@@ -469,7 +484,8 @@ You are truly higher than all creation, O Maiden; for for us you gave birth in b
 
 ****
 
-At Lauds, Resurrection Stichera. Tone 7.
+At Lauds, Resurrection Stichera.
+Tone 7.
 
 Christ has risen from the dead, loosing the bonds of death; earth proclaim the good tidings of great joy; heavens sing out the glory of God.
 
@@ -499,6 +515,7 @@ Both now. You are highly blessed…
 
 **And after the Doxology, the Resurrection Troparion** Having risen from the grave…
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

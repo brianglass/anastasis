@@ -30,7 +30,8 @@ When the Ewe-lamb, your Mother, saw you nailed to the Cross, Lord, she was struc
 AT MATINS
 ---------
 
-**The Canon Acrostic in the 9th Ode:** J\[o\]seph
+**The Canon
+Acrostic in the 9th Ode:** J\[o\]seph
 
 ****
 
@@ -206,6 +207,7 @@ Every ear trembles at the ineffable condescension of God, how the Most High will
 
 At the Liturgy see, if you wish, the texts for July 26th.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

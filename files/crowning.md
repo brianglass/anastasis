@@ -64,7 +64,8 @@ Master, give the blessing. ****
 
 The Priest, facing East and lifting up the book of the Gospel as usual, says in a clear voice:
 
-Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, now and for ever, and to the ages of ages. ****
+Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit,
+now and for ever, and to the ages of ages. ****
 
 Singers:
 
@@ -138,13 +139,24 @@ Lord, have mercy. ****
 
 The Priest says the following Prayer aloud:
 
-God most pure, Author of all creation, through your love for mankind you transformed the rib of our forefather Adam into a woman and blessed them saying, ‘Increase and multiply and have dominion over the earth’, and declared them both to be one through wedlock, ‘for because of this a man will abandon his father and mother and be attached to his own wife, and the two shall become one flesh’ and ‘those whom God has joined together, let no human separate’. You blessed your servant Abraham and opened Sara’s womb, making him the father of many nations. You gave Isaac to Rebecca and blessed her offspring. You joined Jacob with Rachel and from him revealed the Twelve Patriarchs. You yoked together Joseph and Aseneth and gave them as the fruit of their union Ephraim and Manassee. You accepted Zachary and Elisabeth and declared their offspring to be the Forerunner. You made the Ever-Virgin spring from the root of Jesse according to the flesh, and from her you became incarnate and were born for the salvation of the human race. Through your ineffable gift and great goodness you were present in Cana of Galilee and blessed the marriage there, to show that lawful wedlock and the begetting of children that comes from it is your will.
+God most pure, Author of all creation, through your love for mankind you transformed the rib of our forefather Adam into a woman and blessed them saying, ‘Increase and multiply and have dominion over the earth’, and declared them both to be one through wedlock, ‘for because of this a man will abandon his father and mother and be attached to his own wife, and the two shall become one flesh’ and ‘those whom God has joined together, let no human separate’.
+You blessed your servant Abraham and opened Sara’s womb, making him the father of many nations.
+You gave Isaac to Rebecca and blessed her offspring.
+You joined Jacob with Rachel and from him revealed the Twelve Patriarchs.
+You yoked together Joseph and Aseneth and gave them as the fruit of their union Ephraim and Manassee.
+You accepted Zachary and Elisabeth and declared their offspring to be the Forerunner.
+You made the Ever-Virgin spring from the root of Jesse according to the flesh, and from her you became incarnate and were born for the salvation of the human race.
+Through your ineffable gift and great goodness you were present in Cana of Galilee and blessed the marriage there, to show that lawful wedlock and the begetting of children that comes from it is your will.
 
 All-holy Master, accept the entreaty of us, your suppliants, and, as you were present there, be present here also with your invisible protection.
 
 Bless this marriage and grant to these servants of yours,
 
-**N**. and **M**., a peaceful life, length of days, chastity, love for each other in the bond of peace, long-lived offspring, grace in their children and an unfading crown of glory. Grant that they may see their children’s children. Preserve their marriage bed unassailed. Give them of the dew of heaven from on high and of the richness of the earth. Fill their houses with wheat, wine and oil and every good thing, so that they may also share them with those in need.
+**N**. and **M**., a peaceful life, length of days, chastity, love for each other in the bond of peace, long-lived offspring, grace in their children and an unfading crown of glory.
+Grant that they may see their children’s children.
+Preserve their marriage bed unassailed.
+Give them of the dew of heaven from on high and of the richness of the earth.
+Fill their houses with wheat, wine and oil and every good thing, so that they may also share them with those in need.
 
 Grant also to those here with them all their requests that are for salvation. Because you are a God of mercy and compassion and love for humankind, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages.
 
@@ -168,17 +180,28 @@ Blessed are you, Lord our God, sacred Celebrant of the mystical and most pure ma
 
 **N**. and **M**., and grant that this handmaid of yours may be subject in all things to her husband and that this servant of yours may be the head of his wife, so that they may live in accordance with your will.
 
-Bless them, Lord our God, as you blessed Abraham and Sara. Bless them, Lord our God, as you blessed Isaac and Rebecca. Bless them, Lord our God, as you blessed Jacob and all the Patriarchs. Bless them, Lord our God, as you blessed Joseph and Aseneth. Bless them, Lord our God, as you blessed Moses and Sepphora. Bless them, Lord our God, as you blessed Joachim and Anna. Bless them, Lord our God, as you blessed Zachary and Elisabeth.
+Bless them, Lord our God, as you blessed Abraham and Sara.
+Bless them, Lord our God, as you blessed Isaac and Rebecca.
+Bless them, Lord our God, as you blessed Jacob and all the Patriarchs.
+Bless them, Lord our God, as you blessed Joseph and Aseneth. Bless them, Lord our God, as you blessed Moses and Sepphora. Bless them, Lord our God, as you blessed Joachim and Anna.
+Bless them, Lord our God, as you blessed Zachary and Elisabeth.
 
-Preserve them, Lord our God, as you preserved Noë in the Ark. Preserve them, Lord our God, as you preserved Jonas in the belly of the whale. Preserve them, Lord our God, as you preserved the three holy Youths from the fire, by sending down on them dew from heaven.
+Preserve them, Lord our God, as you preserved Noë in the Ark. Preserve them, Lord our God, as you preserved Jonas in the belly of the whale.
+Preserve them, Lord our God, as you preserved the three holy Youths from the fire, by sending down on them dew from heaven.
 
 And let the joy come upon them that the blessed Helen had when she found the precious Cross.
 
-Remember them, Lord our God, as you remembered Enoch, Sem and Elias. Remember them, Lord our God, as you remembered the holy Forty Martyrs, sending down on them crowns from heaven. Remember also, Lord our God, the parents who have brought them up, for the prayers of parents make firm the foundations of households. Remember, Lord our God, your servants the groomsmen and bridesmaids, who have come together to share this joy. Remember, Lord our God, your servant
+Remember them, Lord our God, as you remembered Enoch, Sem and Elias.
+Remember them, Lord our God, as you remembered the holy Forty Martyrs, sending down on them crowns from heaven.
+Remember also, Lord our God, the parents who have brought them up, for the prayers of parents make firm the foundations of households.
+Remember, Lord our God, your servants the groomsmen and bridesmaids, who have come together to share this joy.
+Remember, Lord our God, your servant
 
 **N**. and your servant **M**., and bless them.
 
-Give them the fruit of the womb, fair offspring, concord of soul and body. Exalt them like the cedars of Lebanon, like a well-cultured vine. Grant then rich harvest, so that, having all sufficiency for themselves, they may overflow into every good work that is also well-pleasing to you, and that they may see their children’s children like newly planted olive trees all around their table. And, having been well pleasing to you, may they shine like beacons in heaven, in you our Lord, to whom belong all glory might, honour and worship, now and for ever, and to the ages of ages.
+Give them the fruit of the womb, fair offspring, concord of soul and body.
+Exalt them like the cedars of Lebanon, like a well-cultured vine.
+Grant then rich harvest, so that, having all sufficiency for themselves, they may overflow into every good work that is also well-pleasing to you, and that they may see their children’s children like newly planted olive trees all around their table. And, having been well pleasing to you, may they shine like beacons in heaven, in you our Lord, to whom belong all glory might, honour and worship, now and for ever, and to the ages of ages.
 
 ****
 
@@ -202,13 +225,15 @@ People:
 
 Amen. ****
 
-The Priest takes the Crowns and first crowns the Bridegroom, saying:
+The Priest takes the Crowns
+and first crowns the Bridegroom, saying:
 
 The servant of God,
 
 **N**., takes as his crown the servant of God, **M**., in the name of the Father, and of the Son, and of the Holy Spirit. Amen. ****
 
-He says this three times as he makes the sign of the Cross on each of them.
+He says this three times
+as he makes the sign of the Cross on each of them.
 
 Then the Priest crowns the Bride, saying:
 
@@ -216,7 +241,8 @@ The servant of God,
 
 **M**., takes as her crown the servant of God, **N**., in the name of the Father, and of the Son, and of the Holy Spirit. Amen. ****
 
-He says this three times as he makes the sign of the Cross on each of them.
+He says this three times
+as he makes the sign of the Cross on each of them.
 
 Then he places the crowns on the heads of the Bride and Groom, chanting three times:
 
@@ -228,7 +254,8 @@ Deacon:
 
 Let us attend. ****
 
-Reader: Prokeimenon. Tone 8. \[Psalm 20\]
+Reader:
+Prokeimenon. Tone 8. \[Psalm 20\]
 
 You have placed upon their head crowns of precious stones.
 
@@ -244,7 +271,8 @@ Wisdom. ****
 
 Reader:
 
-The Reading is from the Epistle of Paul to the Ephesians. \[**Chapter 5,20-33**\] ****
+The Reading is from the Epistle of Paul to the Ephesians.
+\[**Chapter 5,20-33**\] ****
 
 Deacon:
 
@@ -284,7 +312,8 @@ And to your spirit. ****
 
 Priest
 
-The Reading is from the holy Gospel according to John. \[**Chapter 2,1-11**\] ****
+The Reading is from the holy Gospel according to John.
+\[**Chapter 2,1-11**\] ****
 
 Singers:
 
@@ -488,7 +517,8 @@ Glory to you, Christ God, boast of Apostles, joy of Martyrs whose preaching was 
 
 ****
 
-Then the Priest raises the crowns. First that of the Groom, saying:
+Then the Priest raises the crowns.
+First that of the Groom, saying:
 
 Bridegroom, be magnified like Abraham, blessed like Isaac and multiplied like Jacob, as you go your way in peace and carry out in righteousness the commandments of God.
 
@@ -550,7 +580,8 @@ Glory to you, Christ God, our hope, glory to you. ****
 
 Reader
 
-Glory to the Father, and to the Son and to the Holy Spirit, both now and for ever, and to the ages of ages. Amen.
+Glory to the Father, and to the Son and to the Holy Spirit,
+both now and for ever, and to the ages of ages. Amen.
 
 Lord, have mercy. Lord, have mercy. Lord, have mercy. Holy Father, give the blessing.
 
@@ -568,7 +599,8 @@ Singers:
 
 Amen.
 
-**PRAYER FOR THE UNTYING OF CROWNS ON THE EIGHTH DAY**
+**PRAYER FOR THE UNTYING OF CROWNS
+ON THE EIGHTH DAY**
 
 Lord our God, who blessed the crown of the year and granted that the present crowns be placed on those who are joined with one another by the law of marriage and apportion to them, as it were, the reward of chaste living, for those who have been joined together in the marriage which you have ordained are pure, do you yourself, by the untying of these present crowns, also bless those who have been joined to each other and keep their union indissoluble, that they may at all times give thanks to your all-holy Name, of the Father, the Son and the Holy Spirit, now and for ever and to the ages of ages.
 
@@ -610,7 +642,9 @@ Ruling of Nikephoros, Patriarch of Constantinople, the Confessor.
 
 One who marries for a second time is not crowned, but is forbidden to partake of the most pure Mysteries for two years; but one who marries for a third time for five.
 
-From the answers of the blessed Niketas, Metropolitan of Herakleia, to the questions of Bishop Constantine.
+From the answers of the blessed Niketas,
+Metropolitan of Herakleia,
+to the questions of Bishop Constantine.
 
 Strictness did not permit those who married for a second time to be crowned, and the custom of the Great Church does not disregard such things, but nevertheless bestows marriage crowns on those who marry for a second and on those who do so for a third time. They are however forbidden to receive Holy Communion for one or two years. But the Priest who has celebrated their wedding is not allowed to dine with them, in accordance with the 7th canon of the Synod of Neoceasarea.
 
@@ -812,7 +846,8 @@ Holy God, who fashioned man from the dust**…**
 
 Then the Crowning follows and the rest of the service for a first marriage.
 
-SERVICE FOR THE RESTORATION OF THE MARRIAGE OF THOSE WHO HAVE BEEN DIVORCED
+SERVICE FOR THE RESTORATION OF THE MARRIAGE
+OF THOSE WHO HAVE BEEN DIVORCED
 
 Deacon:
 
@@ -924,6 +959,7 @@ People:
 
 Amen.  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

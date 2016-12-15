@@ -23,7 +23,8 @@ The lyre of heavenly songs, struck by God, this mystic writer, mouth inspired by
 
 Beloved of God, giving utterance with your tongue, which sounds as the thunder,<a href="#_ftn3" id="_ftnref3">[3]</a> to the hidden word of the wisdom of God, aptly opening your lips, you ever cry aloud, ‘In the beginning was the Word’,<a href="#_ftn4" id="_ftnref4">[4]</a> and with your torch you guide everyone<a href="#_ftn5" id="_ftnref5">[5]</a> to knowledge of God.
 
-Glory. <span style="color:red">Tone 2. By Germanos (Some say by Vyzantios)</span>
+Glory. <span style="color:red">Tone 2.
+By Germanos (Some say by Vyzantios)</span>
 
 Race of mortals, let us, as is fitting, praise the son of thunder,<a href="#_ftn6" id="_ftnref6">[6]</a> the foundation of divine words, the prince of theology and foremost herald of the true wisdom of the doctrines of God, John the beloved and virgin; for he had the divine unceasingly in himself and said, ‘In the beginning the Word’<a href="#_ftn7" id="_ftnref7">[7]</a>, and again that he is inseparably with the Father, and after this that he is equal in being with the Fa­ther,<a href="#_ftn8" id="_ftnref8">[8]</a> showing us through him the right belief of the Holy Trinity. He showed us that he is creator with the Father, and the one who bears life and true light.<a href="#_ftn9" id="_ftnref9">[9]</a> O ecstatic wonder and astounding fact! Because being full of love he became also full of theology, by glory and honour and faith being a foundation of our in­violate faith; through which ,may we obtain the eternal good things on the day of judgement.
 
@@ -33,19 +34,23 @@ The shadow of the law<a href="#_ftn10" id="_ftnref10">[10]</a> has passed away n
 
 <span style="color:red">Entrance,</span> O Joyful Light<span style="color:red">, the Prokeimenon of the day and the Readings. </span>
 
-The reading is from the 1st Epistle General of John. <span style="color:red">(3,21-24; 4,1-6) </span>
+The reading is from the 1st Epistle General of John.
+<span style="color:red">(3,21-24; 4,1-6) </span>
 
 Beloved, if our heart does not condemn us we have freedom to speak before God. And whatever we ask we receive from him, because we keep his commandments and do those things that are pleasing in his sight. And this is his commandment: that we should believe in the name of his Son Jesus Christ and love one another, as he gave us commandment. And one who keeps his commandments abides in him and he in them. And by this we know that he abides in us, from the Spirit of which he has given us. Beloved, do not believe every spirit, but test the spirits, whether they are of God, because many false prophets have gone out into the world. By this you know the Spirit of God: Every spirit that confesses that Jesus Christ has come in the flesh is of God, and every spirit that does not confess that Jesus Christ has come in the flesh is not of God. And this is the spirit of the Antichrist, which you have heard is coming, and is now already in the world. You are of God, little children, and have overcome them, because he who is in you is greater than he who is in the world. They are of the world. Therefore they speak as of the world, and the world hears them. We are of God. He who knows God hears us; he who is not of God does not hear us.
 
-The reading is from the 1st Epistle General of John. <span style="color:red">(4,11-16) </span>
+The reading is from the 1st Epistle General of John.
+<span style="color:red">(4,11-16) </span>
 
 Beloved, if God so loved us, we also ought to love one another. No one has ever seen God. If we love another, God abides in us, and his love has been perfected in us. By this we know that we abide in him, and he in us, because he has given us of his Spirit. And we have seen and witness that the Father has sent the Son as Saviour of the world. Whoever confesses that Jesus is the Son of God, God abides in them, and they in God. And we have known and have believed the love which God has for us. God is love, and one who abides in love abides in God, and God in them.
 
-The reading is from the 1st Epistle General of John. <span style="color:red">(4,20-21; 5,1-5)</span>
+The reading is from the 1st Epistle General of John.
+<span style="color:red">(4,20-21; 5,1-5)</span>
 
 Beloved, anyone who says, ‘I love God,’ and hates their brother, is a liar; for one who does not love the brother whom they have seen, how can they love God whom they have not seen? And this commandment we have from him: that one who loves God must love their brother also. Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the one who has begotten loves also the one who has been begotten of him. By this we know that we love the children of God, when we love God and keep his commandments. For this is the love of God, that we keep his com­mandments. And his command­ments are not heavy. Because everything that has been born of God conquers the world. And this is the victory that has conquered the world, our faith. Who is the one who conquers the world, if not the one who believes that Jesus is the Son of God?
 
-<span style="color:red">At the Liti, Idiomel stichera. Tone 1. By Germanos. </span>
+<span style="color:red">At the Liti, Idiomel stichera.
+Tone 1. By Germanos. </span>
 
 Rivers of theology poured from your honoured mouth, O Apostle, watered from which the Church of God worships with right belief the consubstantial Trinity; whom, O Theologian John, now ask that our souls may be saved.
 
@@ -73,7 +78,8 @@ Both now.<span style="color:red"> Theotokion. </span>
 
 The Son, who with the Father and the Spirit is glorified in the highest by the Cherubim, wishing to refashion the first fashioned man, emptied himself wholly and ineffably in your womb, all-praised Mother of God, and dawning from you, he enlightened the whole world with his Godhead, delivering it from the folly of idols, and, making humanity divine in himself, he joined it to heaven, Christ our God, and the Saviour of our souls.
 
-<span style="color:red">At the Aposticha, Prosomia. Tone 4. Called from the highest. </span>
+<span style="color:red">At the Aposticha, Prosomia.
+Tone 4. Called from the highest. </span>
 
 Having contemplated the Son of the Most High, co-eternal and consubstantial with the Father, unchanging light from light<a href="#_ftn19" id="_ftnref19">[19]</a> and express imprint of the person of the Begetter,<a href="#_ftn20" id="_ftnref20">[20]</a> who shone forth from him beyond time and impassibly, the Creator and Lord of all ages, you proclaimed him, Beloved Disciple, to the world, Christ our God, who brings light out of darkness.<a href="#_ftn21" id="_ftnref21">[21]</a> Implore him to save and enlighten our souls.
 
@@ -226,7 +232,9 @@ Theologian, Virgin, beloved Disciple of the Saviour, by your in­tercessions sav
 
 <span style="color:red">The Canons, of the Mother of God, and two of the Apostle. </span>
 
-<span style="color:red">Canon of the Mother of God, of which the acrostic is the Alphabet in reverse order. By Theophanes.</span>
+<span style="color:red">Canon of the Mother of God,
+of which the acrostic is the Alphabet in reverse order.
+By Theophanes.</span>
 
 **Ode 1. Tone 2. The Irmos.**
 
@@ -242,9 +250,11 @@ His overwhelming power once smothered in the deep all Pharao’s host; while the
 
 **V**irgin, you wholly renewed the nature of mortals, dried up by every offence, in giving birth to the heavenly rain. But, I beg, show the dried up furrow of my soul to be fruitful, O Bride of God.
 
-**Canon of the Saint, of which the acrostic is:** <span style="color:windowtext">I shall praise the son of thunder in a way pleasing to Christ. </span>
+**Canon of the Saint, of which the acrostic is:
+**<span style="color:windowtext">I shall praise the son of thunder in a way pleasing to Christ. </span>
 
-**By Theophanes. Ode 1. Tone 2. Same Irmos.**
+**By Theophanes.
+Ode 1. Tone 2. Same Irmos.**
 
 Having received the kingdom of heaven which you proclaimed, blessed Saint, and become a heavenly companion to the Word, by your entreaties guard those who believe your honoured proclamation and theology.
 
@@ -256,9 +266,11 @@ Having received knowledge of heavenly things, with true theology you proclaimed 
 
 The choir of godly maidens, greatly inspired, sing of you as beautiful among women, O Lady Mother of God, made lovely with the beauties of the Godhead; for beyond reason you bore the Word who creates beauty.
 
-**A second Canon of the Saint, of which the acrostic is:** <span style="color:windowtext">I bring to God’s Initiate a sixth plea. Joseph. </span>
+**A second Canon of the Saint, of which the acrostic is:
+**<span style="color:windowtext">I bring to God’s Initiate a sixth plea. Joseph. </span>
 
-**Ode 1. Tone 6. Crossing the sea as on dry land.**
+**Ode 1. Tone 6.
+Crossing the sea as on dry land.**
 
 Illumined in thought, you bent down into the deeps of the Spirit and made clear to us the dread begetting, crying out: In the beginning was the Word of God.<a href="#_ftn39" id="_ftnref39">[39]</a>
 
@@ -454,7 +466,10 @@ To learn wholly the high secrets of heaven, to investigate the depths of the sea
 
 On the 26th day of the same month, the Translation of the holy, glorious Apostle and Evangelist, bosom friend, virgin, beloved, John the Theologian.
 
-**Verses.** <span style="color:windowtext">Father’s beloved Word you stand beside, Beloved more than all of the Disciples. Passed on the twenty sixth day unto God the child of the thunder. </span>
+**Verses.
+**<span style="color:windowtext">Father’s beloved Word you stand beside,
+Beloved more than all of the Disciples.
+Passed on the twenty sixth day unto God the child of the thunder. </span>
 
 <span style="mso-bidi-font-size: 10.0pt">He was son of Zebedee and Salome, who was the daughter of Joseph the Be­trothed; for Joseph had four sons, Jacob, Symeon, Juda and Joses, and three daughters, Esther, Martha and Salome, who became the wife of Zebedee and the mother of John; and so our Lord Jesus Christ was the John’s uncle, as brother of Salome, Joseph’s daughter. </span>
 
@@ -502,7 +517,8 @@ We bless you, O all-blameless, who bore the blessed Lord, who crowned with his d
 
 The godlike Children did not worship creation instead of the Creator, but bravely trampling on the threat of fire, rejoicing they sang: O highly exalted Lord and God of our fathers, blessed are you!<a href="#_ftn62" id="_ftnref62">[62]</a>
 
-**Of the Mother of God. Ode 8. Irmos.**
+**Of the Mother of God. Ode 8.
+Irmos.**
 
 A fiery furnace once in Babylon, by divine decree, divided its action, burning up the Chaldeans but refreshing the faithful who sang: All you works of the Lord, bless the Lord.
 
@@ -590,7 +606,8 @@ Becoming son of thunder<a href="#_ftn74" id="_ftnref74">[74]</a> you proclaimed 
 
 As you stood by the Cross of your Lord, All-pure one, with the virgin Disciple, you heard from the creator: Woman, behold your son; while to the Disciple likewise he said: Behold your mother; with him we all hymn you, Virgin Mother of God.<a href="#_ftn77" id="_ftnref77">[77]</a>
 
-**At Lauds we insert 4 prosomia. Tone 8. O marvellous wonder.**
+**At Lauds we insert 4 prosomia.
+Tone 8. O marvellous wonder.**
 
 Blessed and all-wise John, with fervent abundance of the love of Christ you appeared more loved than all Disciples; to the all-seeing Word, who judges the whole inhabited world by just scales of purity and chastity, shining brightly with beauties in body and mind, O blessed of God.
 
@@ -780,6 +797,7 @@ His sound has gone out into all the earth, and his words to the ends of the worl
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

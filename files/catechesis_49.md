@@ -5,8 +5,9 @@
 CATECHESIS 49
 =============
 
-On self-mastery and our present confession. On Friday of Meat Week
-------------------------------------------------------------------
+On self-mastery and our present confession.
+On Friday of Meat Week
+-------------------------------------------
 
 <span style="mso-bidi-font-size: 10.0pt"><a href="#_ftn1" id="_ftnref1">[1]</a></span>
 
@@ -40,6 +41,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">And so we too, h
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

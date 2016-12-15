@@ -31,7 +31,8 @@ O Christ our Saviour, incarnate, yet not parted from heaven, with sounds of prai
 
 ****
 
-Then the following of the Mother of God Tone 5. Hail of ascetic struggles.
+Then the following of the Mother of God
+Tone 5. Hail of ascetic struggles.
 
 Verse:
 
@@ -133,7 +134,8 @@ Assent to the supplications of your servants, O Most Pure, by ending the assault
 
 ****
 
-At the Aposticha, Resurrection Sticheron. Tone 5.
+At the Aposticha, Resurrection Sticheron.
+Tone 5.
 
 O Christ our Saviour, incarnate, yet not parted from heaven, with sounds of praise we magnify you; for, as the Lord who loves mankind, you accepted Cross and death for the sake of our race; you despoiled the gates of Hell, rose on the third day, and saved our souls.
 
@@ -197,6 +199,7 @@ Hail gate of the Lord, through which none may pass; hail wall and protection of 
 
 Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -163,6 +163,7 @@ Theotokion.
 
 Virgin Mother of God, we praise you as the means of the salvation of our race; for your Son and our God, who through the Cross accepted suffering in the flesh he had taken from you, has redeemed us from corruption, for he loves mankind.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

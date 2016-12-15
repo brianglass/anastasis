@@ -121,7 +121,8 @@ How should we not marvel at your Offspring, who is both God and man, all-honoure
 
 ****
 
-At the Liti. The Sticheron of the Saint of the Monastery.
+At the Liti.
+The Sticheron of the Saint of the Monastery.
 
 Glory.
 
@@ -205,6 +206,7 @@ Virgin Mother of God, we praise you as the means of the salvation of our race; f
 
 And Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

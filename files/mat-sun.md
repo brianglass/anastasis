@@ -232,7 +232,8 @@ During the Six Psalms the Priest reads the
 Twelve Morning Prayers
 ----------------------
 
-**1st Prayer** We thank you, Lord our God, who have roused us from our beds and placed in our mouth a word of praise, to worship and call upon your Holy Name, and we beseech you by your acts of pity, with which you have always treated our life. And now send forth your help on those who stand before the presence of your holy glory and who await the rich mercy which comes from you, and grant that they may always serve, praise, hymn and worship your inexpressible loving-kindness.
+**1st Prayer**
+We thank you, Lord our God, who have roused us from our beds and placed in our mouth a word of praise, to worship and call upon your Holy Name, and we beseech you by your acts of pity, with which you have always treated our life. And now send forth your help on those who stand before the presence of your holy glory and who await the rich mercy which comes from you, and grant that they may always serve, praise, hymn and worship your inexpressible loving-kindness.
 
 For to you belong all glory, honour and worship, to the Father, the Son and the holy Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -426,7 +427,8 @@ After the last verse of Psalm 118, or the Polyeleos, if the Feast falls on a Sun
 
 Glory to the Father:
 
-**The Resurrection Evlogitaria** **Tone 5**
+**The Resurrection Evlogitaria
+Tone 5**
 
 Before each Troparion we say: Blessed are you, O Lord: teach me your statutes.
 
@@ -674,7 +676,8 @@ The Magnificat and 9th Ode are traditionally sung by the senior persons present 
 
 The Song of the Mother of God.
 
-**A maiden mother hymns her Son and God. In hymns God’s Mother now we magnify.**
+**A maiden mother hymns her Son and God.
+In hymns God’s Mother now we magnify.**
 
 My soul magnifies the Lord, and my spirit has rejoiced in God my Saviour.
 
@@ -753,7 +756,8 @@ Lauds
 
 **If it is Sunday, or a feast of the Lord, or the memorial of a Saint having the Great Doxology, the two Choirs sing** Let everything that has breath **in the appropriate tone, as follows:**
 
-Psalm 148 \[A\] **Let everything that has breath** praise the Lord. Praise the Lord from the heavens; praise him in the highest. To you praise is due, O God.
+Psalm 148
+\[A\] **Let everything that has breath** praise the Lord. Praise the Lord from the heavens; praise him in the highest. To you praise is due, O God.
 
 ****
 
@@ -811,7 +815,8 @@ His praise is above earth and heaven, and he will exalt the horn of his people. 
 
 A hymn for all his holy ones; for the children of Israel, a people that draws near him. ****
 
-Psalm 149 \[A\]
+Psalm 149
+\[A\]
 
 Sing to the Lord a new song, his praise in the Church of the holy ones. ****
 
@@ -849,7 +854,8 @@ For 8 Verses (Sundays) or 6 Verses.
 
 To execute upon them the judgement that is decreed; such glory will be for all his holy ones. ****
 
-Psalm 150 \[B\]
+Psalm 150
+\[B\]
 
 Praise God in his saints; praise him in the firmament of his power. ****
 
@@ -885,11 +891,13 @@ If a feast with Stichera at Lauds falls on a Sunday, the appropriate Psalm verse
 
 \[A\]
 
-Glory. **On Sunday the Eothinon corresponding to the Gospel.** ****
+Glory.
+**On Sunday the Eothinon corresponding to the Gospel.** ****
 
 \[B\]
 
-Both now. **On Sunday the following Theotokion:**
+Both now.
+**On Sunday the following Theotokion:**
 
 You are most blessed, Virgin Mother of God, for through him who took flesh from you Hell has been taken captive, Adam recalled, the curse slain, Eve set free, death put to death, and we given life. Therefore in praise we cry: Blessed are you, Christ our God, who have been thus well-pleased. Glory to you.
 
@@ -1170,7 +1178,9 @@ FIRST HOUR
 
 **The Holy Doors and the Curtain are shut. The Reader begins straight away with:**
 
-O Come, let us worship and fall down before the King, our God. O Come, let us worship and fall down before Christ, the King, our God. O Come, let us worship and fall down before Christ himself, the King, our God.
+O Come, let us worship and fall down before the King, our God.
+O Come, let us worship and fall down before Christ, the King, our God.
+O Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -1206,7 +1216,10 @@ What shall we call you, O Full of grace? Heaven? For you made the Sun of justice
 
 And immediately:
 
-Direct my steps according to your word, and let no iniquity lord it over me. Deliver me from the slander of men, and I shall keep your commandments. Let your face shine on your servant, and teach me your statutes. Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour.
+Direct my steps according to your word, and let no iniquity lord it over me.
+Deliver me from the slander of men, and I shall keep your commandments.
+Let your face shine on your servant, and teach me your statutes.
+Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour.
 
 ****
 
@@ -1296,7 +1309,8 @@ APPENDICES
 1. THE RESURRECTION EXAPOSTILARIA
 ---------------------------------
 
-**A Composition by the Emperor Constantine, son of Leo the Wise.**
+**A Composition by the Emperor Constantine,
+son of Leo the Wise.**
 
 EXAPOSTILARION 1
 
@@ -1505,11 +1519,76 @@ Servants of the Lord, Alleluia.
 
 Psalm 134
 
-Praise the name of the Lord, praise the Lord his servants. Alleluia. Who stand in the house of the Lord, in the courts of the house of our God. Alleluia. Praise the Lord, for the Lord is good. Alleluia. Sing to his name, for it is fair. Alleluia. For the Lord has chosen Jacob for himself; Alleluia. Israel for his own possession. Alleluia. For I know that the Lord is great. Alleluia. And our Lord is above all gods. Alleluia. Whatever he wished, the Lord has done, Alleluia. In heaven and on earth, Alleluia. In the seas and in all the deeps. Alleluia. He brings up the clouds from the end of the earth. Alleluia. He has made lightnings into rain. Alleluia. He brings winds out of his treasuries, Alleluia. He who smote the first born of Egypt, Alleluia. From humans to beasts of burden. Alleluia. He sent signs and wonders into your midst, O Egypt, Alleluia. Among Pharao and all his servants; Alleluia. He who smote many nations, Alleluia. And killed mighty kings, Alleluia. Sion, King of the Amorites, Alleluia. And Og, King of Basan, Alleluia. And all the kingdoms of Canaan. Alleluia. And he gave their land as a heritage, Alleluia. A heritage to Israel his people. Alleluia. O Lord, your name is for ever, Alleluia. And your memorial to generation and generation. Alleluia. For the Lord will judge his people, Alleluia. And he will comfort his servants. Alleluia. The idols of the nations are silver and gold, works of human hands. Alleluia. They have a mouth, but they will not speak. Alleluia. They have eyes, but they will not see. Alleluia. They have ears, but they will not hear. Alleluia. There is no breath in their mouth. Alleluia. Let all those who make them become like them, Alleluia. And all those who trust in them. Alleluia. House of Israel, bless the Lord. Alleluia. House of Aaron, bless the Lord. Alleluia. House of Levi, bless the Lord. Alleluia. You who fear the Lord, bless the Lord. Alleluia. Blessed be the Lord from Sion, he who dwells in Jerusalem. Alleluia. ****
+Praise the name of the Lord, praise the Lord his servants. Alleluia.
+Who stand in the house of the Lord, in the courts of the house of our God. Alleluia.
+Praise the Lord, for the Lord is good. Alleluia.
+Sing to his name, for it is fair. Alleluia.
+For the Lord has chosen Jacob for himself; Alleluia.
+Israel for his own possession. Alleluia.
+For I know that the Lord is great. Alleluia.
+And our Lord is above all gods. Alleluia.
+Whatever he wished, the Lord has done, Alleluia.
+In heaven and on earth, Alleluia.
+In the seas and in all the deeps. Alleluia.
+He brings up the clouds from the end of the earth. Alleluia.
+He has made lightnings into rain. Alleluia.
+He brings winds out of his treasuries, Alleluia.
+He who smote the first born of Egypt, Alleluia.
+From humans to beasts of burden. Alleluia.
+He sent signs and wonders into your midst, O Egypt, Alleluia.
+Among Pharao and all his servants; Alleluia.
+He who smote many nations, Alleluia.
+And killed mighty kings, Alleluia.
+Sion, King of the Amorites, Alleluia.
+And Og, King of Basan, Alleluia.
+And all the kingdoms of Canaan. Alleluia.
+And he gave their land as a heritage, Alleluia.
+A heritage to Israel his people. Alleluia.
+O Lord, your name is for ever, Alleluia.
+And your memorial to generation and generation. Alleluia.
+For the Lord will judge his people, Alleluia.
+And he will comfort his servants. Alleluia.
+The idols of the nations are silver and gold, works of human hands. Alleluia.
+They have a mouth, but they will not speak. Alleluia.
+They have eyes, but they will not see. Alleluia.
+They have ears, but they will not hear. Alleluia.
+There is no breath in their mouth. Alleluia.
+Let all those who make them become like them, Alleluia.
+And all those who trust in them. Alleluia.
+House of Israel, bless the Lord. Alleluia.
+House of Aaron, bless the Lord. Alleluia.
+House of Levi, bless the Lord. Alleluia.
+You who fear the Lord, bless the Lord. Alleluia.
+Blessed be the Lord from Sion, he who dwells in Jerusalem. Alleluia. ****
 
 Psalm 135
 
-Give thanks to the Lord, for he is good, alleluia: for his mercy endures forever, alleluia. Give thanks to the God of gods, alleluia: for his mercy endures forever, alleluia. Give thanks to the Lord of lords, alleluia: for his mercy endures forever, alleluia. To him who alone has done great wonders, alleluia: for his mercy endures forever, alleluia. To him who made the heavens with understanding, alleluia: for his mercy endures forever, alleluia. To him who set the earth on the waters, alleluia: for his mercy endures forever, alleluia. To him who alone made the great lights, alleluia: for his mercy endures for ever, alleluia. The sun to rule the day, alleluia: for his mercy endures for ever, alleluia. The moon and the stars to rule the night, alleluia: for his mercy endures forever, alleluia. To him who smote Egypt with their first born, alleluia: for his mercy endures forever, alleluia. And led Israel out of their midst, alleluia: for his mercy endures forever, alleluia. With a mighty hand and upraised arm, alleluia: for his mercy endures forever, alleluia. To him who divided the Red Sea in two, alleluia: for his mercy endures forever, alleluia. And led Israel through its midst, alleluia: for his mercy endures forever, alleluia. And shook off Pharao and his power into the Red Sea, alleluia: for his mercy endures forever, alleluia. To him who led his people through the desert, alleluia: for his mercy endures forever, alleluia. To him who smote great kings, alleluia: for his mercy endures forever, alleluia. And slew mighty kings, alleluia: for his mercy endures for ever, alleluia. Sion, King of the Amorites, alleluia: for his mercy endures for ever, alleluia. And Og, King of Basan, alleluia: for his mercy endures forever, alleluia. And who gave their land as a heritage, alleluia: for his mercy endures forever, alleluia. A heritage for Israel his servant, alleluia: for his mercy is for ever, alleluia. For the Lord remembered us in our humiliation, alleluia: for his mercy endures forever, alleluia. And redeemed us from our foes, alleluia: for his mercy endures for ever, alleluia. Who gives food to all flesh, alleluia: for his mercy is for ever, alleluia. Give thanks to the God of heaven, alleluia: for his mercy endures forever, alleluia. ****
+Give thanks to the Lord, for he is good, alleluia: for his mercy endures forever, alleluia.
+Give thanks to the God of gods, alleluia: for his mercy endures forever, alleluia.
+Give thanks to the Lord of lords, alleluia: for his mercy endures forever, alleluia.
+To him who alone has done great wonders, alleluia: for his mercy endures forever, alleluia.
+To him who made the heavens with understanding, alleluia: for his mercy endures forever, alleluia.
+To him who set the earth on the waters, alleluia: for his mercy endures forever, alleluia.
+To him who alone made the great lights, alleluia: for his mercy endures for ever, alleluia.
+The sun to rule the day, alleluia: for his mercy endures for ever, alleluia.
+The moon and the stars to rule the night, alleluia: for his mercy endures forever, alleluia.
+To him who smote Egypt with their first born, alleluia: for his mercy endures forever, alleluia.
+And led Israel out of their midst, alleluia: for his mercy endures forever, alleluia.
+With a mighty hand and upraised arm, alleluia: for his mercy endures forever, alleluia.
+To him who divided the Red Sea in two, alleluia: for his mercy endures forever, alleluia.
+And led Israel through its midst, alleluia: for his mercy endures forever, alleluia.
+And shook off Pharao and his power into the Red Sea, alleluia: for his mercy endures forever, alleluia.
+To him who led his people through the desert, alleluia: for his mercy endures forever, alleluia.
+To him who smote great kings, alleluia: for his mercy endures forever, alleluia.
+And slew mighty kings, alleluia: for his mercy endures for ever, alleluia.
+Sion, King of the Amorites, alleluia: for his mercy endures for ever, alleluia.
+And Og, King of Basan, alleluia: for his mercy endures forever, alleluia.
+And who gave their land as a heritage, alleluia: for his mercy endures forever, alleluia.
+A heritage for Israel his servant, alleluia: for his mercy is for ever, alleluia.
+For the Lord remembered us in our humiliation, alleluia: for his mercy endures forever, alleluia.
+And redeemed us from our foes, alleluia: for his mercy endures for ever, alleluia.
+Who gives food to all flesh, alleluia: for his mercy is for ever, alleluia.
+Give thanks to the God of heaven, alleluia: for his mercy endures forever, alleluia. ****
 
 Then the Selection according to the Feast.
 
@@ -1529,7 +1608,15 @@ The following Psalm of the Polyeleos is sung on the two Sundays before Lent, Mea
 
 Psalm 136
 
-By the rivers of Babylon, there we sat down and we when we remembered Sion. Alleluia. On the willows in the midst of it we hung up our instruments. Alleluia. For there our captors asked us for songs, and those who had led us away for a hymn, saying, ‘Sing us one of the songs of Sion!’ Alleluia. How could we sing the Lord’s song in a foreign land? Alleluia. If I forget you, Jerusalem, let my right hand be forgotten! Alleluia. Let my tongue stick to my throat, if I do not remember you, if I do not set Jerusalem above my highest joy. Alleluia. Remember, Lord, against the Edomites the day of Jerusalem’s fall, how they said, ‘Tear it down! Tear it down! Down to its foundations!’ Alleluia. O daughter of Babylon, the wretched! Blessed is the one who requites you as you have requited us! Alleluia. Blessed is the one who seizes your little children and dashes them against the rock! Alleluia.
+By the rivers of Babylon, there we sat down and we when we remembered Sion. Alleluia.
+On the willows in the midst of it we hung up our instruments. Alleluia.
+For there our captors asked us for songs, and those who had led us away for a hymn, saying, ‘Sing us one of the songs of Sion!’ Alleluia.
+How could we sing the Lord’s song in a foreign land? Alleluia.
+If I forget you, Jerusalem, let my right hand be forgotten! Alleluia.
+Let my tongue stick to my throat, if I do not remember you, if I do not set Jerusalem above my highest joy. Alleluia.
+Remember, Lord, against the Edomites the day of Jerusalem’s fall, how they said, ‘Tear it down! Tear it down! Down to its foundations!’ Alleluia.
+O daughter of Babylon, the wretched! Blessed is the one who requites you as you have requited us! Alleluia.
+Blessed is the one who seizes your little children and dashes them against the rock! Alleluia.
 
 Glory. Both now. Alleluia.
 
@@ -1541,25 +1628,35 @@ Psalm 44
 
 A Good Word. Alleluia.
 
-My heart has uttered a good Word. Hail, all-praised Queen of all, Mother of our God. Alleluia.
+My heart has uttered a good Word.
+Hail, all-praised Queen of all, Mother of our God. Alleluia.
 
-I tell my works to the King. Hail, Queen of Angels, Sovereign of the world. Alleluia.
+I tell my works to the King.
+Hail, Queen of Angels, Sovereign of the world. Alleluia.
 
-My tongue is the pen of ready writer. Hail, proclamation of the Prophets, glory of Patriarchs. Alleluia.
+My tongue is the pen of ready writer.
+Hail, proclamation of the Prophets, glory of Patriarchs. Alleluia.
 
-You are lovely with a beauty beyond the sons of men. Hail, pure Virgin, Sovereign Lady, Bride of God. Alleluia.
+You are lovely with a beauty beyond the sons of men.
+Hail, pure Virgin, Sovereign Lady, Bride of God. Alleluia.
 
-Grace has poured from your lips. Hail, spotless, undefiled, incorrupt, All-holy. Alleluia.
+Grace has poured from your lips.
+Hail, spotless, undefiled, incorrupt, All-holy. Alleluia.
 
-Therefore God has blessed you for ever. Hail, hope of those without hope, and help of those embattled. Alleluia.
+Therefore God has blessed you for ever.
+Hail, hope of those without hope, and help of those embattled. Alleluia.
 
-Gird your sword on your thigh, mighty warrior. Hail, full of grace. The Lord is with you, and through you with us. Alleluia.
+Gird your sword on your thigh, mighty warrior.
+Hail, full of grace. The Lord is with you, and through you with us. Alleluia.
 
-In your splendour and beauty. Hail, blessed are you among women, and blessed is the fruit of your womb. Alleluia.
+In your splendour and beauty.
+Hail, blessed are you among women, and blessed is the fruit of your womb. Alleluia.
 
-Draw your bow and prosper, and reign. Hail, Virgin Mother of God, blessed among women. Alleluia.
+Draw your bow and prosper, and reign.
+Hail, Virgin Mother of God, blessed among women. Alleluia.
 
-In the cause of truth and meekness and justice. Hail, Mary, Lady of us all, the Lord of powers is with you. Alleluia.
+In the cause of truth and meekness and justice.
+Hail, Mary, Lady of us all, the Lord of powers is with you. Alleluia.
 
 ****
 
@@ -1573,9 +1670,11 @@ You have loved right and hated wrong.
 
 **\]**
 
-Therefore God your God has anointed you. Hail, throne formed of fire, more glorious than the four living creatures. Alleluia.
+Therefore God your God has anointed you.
+Hail, throne formed of fire, more glorious than the four living creatures. Alleluia.
 
-With the oil of gladness beyond your fellows. Hail, Mary, Lady of us all. Hail, Mother of life. Alleluia.
+With the oil of gladness beyond your fellows.
+Hail, Mary, Lady of us all. Hail, Mother of life. Alleluia.
 
 ****
 
@@ -1587,15 +1686,18 @@ Kings’ daughters are in your train.
 
 **\]**
 
-The Queen stood at your right hand. Hail, highly blessed, highly glorified. Alleluia.
+The Queen stood at your right hand.
+Hail, highly blessed, highly glorified. Alleluia.
 
 Arrayed in gold, wrought with many colours.
 
 Hail, immaculate Mother of God, for you gave birth to the Saviour of our souls. Alleluia.
 
-Listen my daughter and see, and incline your ear. Hail, Paradise most holy. Hail, Bride without bridegroom. Alleluia.
+Listen my daughter and see, and incline your ear.
+Hail, Paradise most holy. Hail, Bride without bridegroom. Alleluia.
 
-And forget your people and your father’s house. Hail, greater holy of holies. Hail, Bride without bridegroom. Alleluia.
+And forget your people and your father’s house.
+Hail, greater holy of holies. Hail, Bride without bridegroom. Alleluia.
 
 ****
 
@@ -1607,7 +1709,8 @@ And the daughter of Tyre will worship you with gifts.
 
 **\]**
 
-The richest of the people will entreat your favour. All-holy Virgin, listen to the voice of your unprofitable servant. Guide me to offer you without ceasing the groanings of my heart, Sovereign Lady. Alleluia.
+The richest of the people will entreat your favour.
+All-holy Virgin, listen to the voice of your unprofitable servant. Guide me to offer you without ceasing the groanings of my heart, Sovereign Lady. Alleluia.
 
 ****
 
@@ -1623,7 +1726,8 @@ Instead of your fathers, sons are born to you. You will make them rulers over al
 
 **\]**
 
-I will remember your name throughout all generations. All-holy Virgin, Bride of God, accept my pitiable service and bring it to God the compassionate, that rejoicing I may give you glory, O All-blameless. Hail, Bride without bridegroom. Alleluia.
+I will remember your name throughout all generations.
+All-holy Virgin, Bride of God, accept my pitiable service and bring it to God the compassionate, that rejoicing I may give you glory, O All-blameless. Hail, Bride without bridegroom. Alleluia.
 
 ****
 
@@ -1779,6 +1883,7 @@ Ypakoï.
 
 A short hymn that takes the place of the third poetic *Kathisma* at Matins on Sundays and some greater Feasts. It is normally read and not sung. In Greek use it is also read at the Hours on Sundays in place of the *Kontakion*. In strict Athonite use it is sung at the Liturgy after the *Apolytikia* and before the *Kontakia*.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

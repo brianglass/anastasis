@@ -98,7 +98,8 @@ You tore apart the webs of heresies by the power of Christ and enriched the Chur
 
 O holy Apostles, intercede with the merciful God to grant our souls forgiveness of sins.
 
-**Kontakia: of St Bartholomew. Tone 4. Today you have appeared.**
+**Kontakia: of St Bartholomew. Tone 4.
+Today you have appeared.**
 
 You appeared like a great sun to the Church, by the beams of your teachings and awesome wonders guiding to the light all who honour you, Bartholomew, Apostle of the Lord.
 
@@ -318,6 +319,7 @@ O holy Apostles, intercede with the merciful God to grant our souls forgiveness 
 
 To-day Christ the Rock radiantly glorifies the rock of the faith, the chief of the disciples, and with Paul the whole regiment of the twelve. As we faithfully celebrate their memory we glorify him who glorified them.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -40,23 +40,27 @@ mso-bidi-font-size:10.0pt">Let us praise today the mystical trumpets of the Spir
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">Entrance,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> O Joyful Light, <span style="color:red;mso-bidi-font-style:italic">the Pro­keimenon of the day, and the Readings: </span></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Genesis. \[<span style="color:red">14:14-20</span>\] </span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Genesis.
+\[<span style="color:red">14:14-20</span>\] </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants, three hundred and eighteen,<a href="#_ftn9" id="_ftnref9">[9]</a> and pursued the enemy as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologomor and the kings with him, to the valley of Sabi; this was the plain of Kings. And Melchizedek, king of Salem, brought out bread and wine; he was Priest of God Most High. And he blessed Abram and said: Blessed is Abram by God Most High, who created the heaven and the earth. And blessed God is Most High, who has delivered your enemies into your hand. </span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Deuteronomy. \[<span style="color:red">1:8-11 & 15-17b</span>\] </span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Deuteronomy.
+\[<span style="color:red">1:8-11 & 15-17b</span>\] </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">Moses said to the sons of Israel: See, I have delivered the land before you; go in and inherit the land which I swore to your fathers, to Abraham and to Isaac and to Jacob, to give it to them and to their seed after them. And I spoke to you at that time saying: I shall not be able to bear you alone. The Lord your God has multiplied you, and behold, you are to-day as the stars of heaven in multitude. May the Lord, the God of our fathers, multiply you a thousand times more than you are, and bless you as he said to you. And I took from you wise and understanding and prudent men, and I set them to rule over you, captains of thousands and hundreds and fifties and tens and recorders for your judges. And I commanded your judges at that time, saying: Administer justice between your brethren, and judge rightly between a man and his brother and his proselyte. You shall not have respect to persons in judging. You shall hear the small as well as the great. You shall not shrink before any man’s person; for the judgement is God’s. </span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Deuteronomy. \[<span style="color:red">10:14-18 & 20-21</span>\] </span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">The Reading is from Deuteronomy.
+\[<span style="color:red">10:14-18 & 20-21</span>\] </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">Moses said to the sons of Israel: Behold the heaven and the highest heaven belong to the Lord your God, the earth and all that is in it. Moreover the Lord preferred your fathers, to love them: and he chose their seed after them, you above all nations, as it is at this day. So circumcise the hardness of your heart and do not be stiff necked. For the Lord your God is God of Gods and Lord of Lords, the great God, mighty and awesome, who shows no partiality, who takes no bribe. He executes judgement for the proselyte, the orphan and the widow; and loves the proselyte, giving him food and clothing. You shall fear the Lord your God and serve him, and to him you shall hold fast, and take oaths in his name. He is your boast, he your God, who has done for you the great and wonderful things which your eyes have seen. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:
-italic">At the Aposticha, Stichera of the Resurrection.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-style:italic"> Glory.<span style="color:red"> Tone 3.</span> </span>
+italic">At the Aposticha, Stichera of the Resurrection.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-style:italic">
+Glory.<span style="color:red"> Tone 3.</span> </span>
 
 You became strict defenders of the apostolic traditions, Holy Fathers, for correctly teaching that the Holy Trinity was consubstantial, you overthrew in council the blasphemy of Arius. After him you also refuted Make­donios, the opponent of the Spirit, you condemned Nestorios, Eftyches and Dioskoros, Sabellios and the Leaderless Severos. Ask that we, de­livered from their error, may preserve our life unspotted in the faith, we beg.
 
@@ -88,13 +92,16 @@ mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic
 mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:italic">The usual reading from the Psalter and the Canons. That of the Res­urrection to 4, of the Mother of God to 2 and of the Fathers to 8. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;mso-bidi-font-style:
-italic">The two canons of the Fathers, the acrostic of the first is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> I hymn the skilful purgers of error. </span>
+italic">The two canons of the Fathers, the acrostic of the first is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">
+I hymn the skilful purgers of error. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">In the Theotokia:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> Philotheos. </span>
+10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">In the Theotokia:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">
+Philotheos. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 1. Tone 1. Your victorious right hand</span>
+10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Ode 1. Tone 1.
+Your victorious right hand</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">Master, as I propose to sing the praise of the skilled demolishers of error, I call on your almighty grace from on high, and on your force; for you are indeed the right hand and power of the Father. </span>
@@ -111,7 +118,8 @@ From on high the prophetic choir and the godly company of the Apostles plainly t
 mso-bidi-font-size:10.0pt">As through God’s action you con­tained in your womb the Light with triple lamp, as you are loving, enlighten the hearts of those who de­voutly sing your praise; for you are light and glory and eternal salvation. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Second Canon. Tone 8. The wonderworking staff. </span>
+10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Second Canon.
+Tone 8. The wonderworking staff. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">The devout gathering of the Fathers, which was welded together against Eftyches, following and abiding by the teachings of the godlike Father, Cyril,<a href="#_ftn10" id="_ftnref10">[10]</a> truly defined the Saviour with two undivided natures. </span>
@@ -167,7 +175,8 @@ You have been declared higher than the Cherubim and Seraphim, Mother of God; for
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Kontakion and Ikos of the Tone. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Kathisma. Tone 4. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal;
+10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Kathisma. Tone 4.
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal;
 mso-bidi-font-style:italic">Come speedily to help. </span>
 
 <span style="font-size:14.0pt;
@@ -310,7 +319,9 @@ mso-bidi-font-size:10.0pt">The preaching of the Apostles and the teachings of th
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Verses.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal;mso-bidi-font-style:
-italic"> Stars of the spiritual sky now bearing light My mind do you enlighten with your rays. </span>
+italic">
+Stars of the spiritual sky now bearing light
+My mind do you enlighten with your rays. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt">At the intercessions of the holy Fathers, O God, have mercy on us. Amen. </span>
@@ -499,6 +510,7 @@ mso-bidi-font-size:10.0pt">The choir of holy Fathers, having hurried together fr
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

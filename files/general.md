@@ -1,6 +1,16 @@
 \[ [Home](index.md) \] \[ [Up](menaion.md) \] \[ [September](sep-int.md) \] \[ [October](oct-int.md) \] \[ [November](nov-int.md) \] \[ [December](dec-int.md) \] \[ [January](jan-int.md) \] \[ [February](february.md) \] \[ [June](Menaion-June.md) \] \[ [July](july1.md) \] \[ [August](aug.md) \] \[ General Menaion \]
 
-[Office for a Prophet](prophet.md) [Office for an Apostle](apostle.md) [Office for Two or More Apostles](apostles.md) [Office for a Martyr](martyr.md) [Office for a Woman Martyr](wmart.md) [Office for Two or More Martyrs](martyrs.md) [Office for Two or More Women martyrs](wmarts.md) [Office for a Hieromartyr](hieromartyr.md) [Office for a Bishop](bishop.md) [Office for an Ascetic](monk.md) [Office for a Woman Ascetic](wascetic.md)
+[Office for a Prophet](prophet.md)
+[Office for an Apostle](apostle.md)
+[Office for Two or More Apostles](apostles.md)
+[Office for a Martyr](martyr.md)
+[Office for a Woman Martyr](wmart.md)
+[Office for Two or More Martyrs](martyrs.md)
+[Office for Two or More Women martyrs](wmarts.md)
+[Office for a Hieromartyr](hieromartyr.md)
+[Office for a Bishop](bishop.md)
+[Office for an Ascetic](monk.md)
+[Office for a Woman Ascetic](wascetic.md)
 
 GENERAL MENAION
 ===============
@@ -23,6 +33,7 @@ The translation is on the whole conservative and keeps closely to the Greek, tho
 
 Normally the Canon of the Saint of the day will be sung last and therefore the Irmi of the Odes will not be needed, except as ‘Katavasias’ for the 3rd, 6th 8th and 9th Odes. In Lent, however, the Canon from the Menaion is sung first. I have therefore included all the Irmi, but placed in square brackets. This will obviate the need for the use of the Irmologion, which is also a book that has not been translated and is not easy to obtain even in the original Greek. The musical volume entitled Irmologion only contains the irmi that are commonly sung, that is those for Sundays, major feasts and Holy Week.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

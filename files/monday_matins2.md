@@ -7,7 +7,8 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter Kathismata of Compunction. Tone 3.
+After the 1st Reading from the Psalter Kathismata of Compunction.
+Tone 3.
 
 As you sojourn on earth, my soul, repent; dust in tomb does not sing hymns, is not delivered from faults; cry out to Christ God: Knower of hearts, I have sinned; before you condemn me, spare me, O God, and have mercy on me.
 
@@ -319,6 +320,7 @@ As truly greater than the Angels in heaven, bring the supplication of humans upo
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

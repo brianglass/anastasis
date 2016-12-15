@@ -34,7 +34,8 @@ You bowed your head to the Forerunner, you crushed the heads of the dragons,<a h
 
 <span style="color:red">Entrance,</span> ‘O Joyful Light’. <span style="color:red">Prokeimenon of the day and the Readings. \[See the [Prophetologion for 11 January](readings_for_january.md)\] </span>
 
-<span style="color:red">Aposticha Prosomia Stichera of the Feast</span><a href="#_ftn3" id="_ftnref3">[3]</a><span style="color:red">. Tone 4. You have given as a sign.</span>
+<span style="color:red">Aposticha Prosomia Stichera of the Feast</span><a href="#_ftn3" id="_ftnref3">[3]</a><span style="color:red">.
+Tone 4. You have given as a sign.</span>
 
 <span style="color:red">Ι </span>‘See how I wear your image which I fashioned, humbling myself beyond understanding’, said the Lord, ‘What is strange then, my friend, if I bow low beneath your right hand, like one of your fellow servants, and stripped naked wrap myself in the waters? For I wish to clothe those who have been stripped naked with everlasting incorruption.’
 
@@ -46,7 +47,8 @@ You bowed your head to the Forerunner, you crushed the heads of the dragons,<a h
 
 <span style="mso-bidi-font-size:10.0pt;color:red">Σ</span><span style="mso-bidi-font-size:10.0pt"> ‘Wash me, who am wholly without stain, in the waters of Jordan’, said the Lord, ‘and human nature, stained by Adam’s transgression, when washed will become new. For when I am baptised, there is the rebirth of every human being through water and the Spirit’. </span>
 
-Glory. <span style="color:red">Tone 8. By the Studite. </span>
+Glory. <span style="color:red">Tone 8.
+By the Studite. </span>
 
 We, the multitudes of monastics, honour you, our Father Theodosios, for through you we have learnt to walk the truly straight path. Blessed are you, for you became Christ’s slave and triumphed over the power of the foe, companion of Angels, colleague of the Venerable and the Righteous. With them intercede with the Lord to have mercy on our souls.
 
@@ -71,6 +73,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Psalm 73:13.</sp
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

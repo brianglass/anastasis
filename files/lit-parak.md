@@ -1,6 +1,8 @@
 \[ [Home](index.md) \] \[ [Up](horologion.md) \] \[ [Saints of the Month](saintsof.md) \] \[ [Vespers for Sundays and Feasts](vespers.md) \] \[ [Matins for Sundays and Feasts](mat-sun.md) \] \[ [Weekday Matins](weekday_matins.md) \] \[ [Midnight Office](midnight_office.md) \] \[ [Saturday Midnight Office](saturday_midnight_office.md) \] \[ [Sunday Midnight Office](sunday_midnight_office.md) \] \[ [Lesser Hours](lesser_hours.md) \] \[ [Small Compline](small_compline.md) \] \[ [Lenten Offices](lenten_offices.md) \] \[ Little Paraklesis \]
 
-**SERVICE OF THE LITTLE CANON OF SUPPLICATION TO THE MOST HOLY MOTHER OF GOD**
+**SERVICE
+OF THE LITTLE CANON OF SUPPLICATION
+TO THE MOST HOLY MOTHER OF GOD**
 
 ****
 
@@ -21,7 +23,9 @@ PREFACE
 
 **The icon of the Gorgoÿpikoos,** ’**She Who Responds Quickly**’**, Proctectress of the Monastery of Docheiariou on the Holy Mountain, was painted for Archimandrite Ephrem by Monk Silouan of the Monastery of St Arsenios in Chalkidiki. This icon is an icon of the Mother of God ’Hodegitria’, in whose honour the service is sung, as the penultimate Megalynarion makes clear.**
 
-**SERVICE OF THE LITTLE CANON OF SUPPLICATION TO THE MOST HOLY MOTHER OF GOD**
+**SERVICE
+OF THE LITTLE CANON OF SUPPLICATION
+TO THE MOST HOLY MOTHER OF GOD**
 
 ****Icon of the Holy Mother of God Gorgoÿpikoos****
 
@@ -55,7 +59,15 @@ The Lord is God, and has appeared to us. Blessed is he who comes in the name of 
 
 **Tone 4. Lifted up on the Cross.**
 
-Now to God’s Mother let us humble sinners run in haste and in repentance let us fall down before her feet, crying aloud with fervour from the depths of our souls, ‘Sovereign Lady, help us now, have compassion upon us, hasten, for we perish from our many offences. Let not your servants go empty away; we have you as our only hope’.
+Now to God’s Mother let us humble sinners run in haste
+and in repentance let us fall down before her feet,
+crying aloud with fervour from the depths of our souls,
+‘Sovereign Lady, help us now,
+have compassion upon us,
+hasten, for we perish
+from our many offences.
+Let not your servants go empty away;
+we have you as our only hope’.
 
 Glory. **The same again, or the Apolytikion of the Church.**
 
@@ -63,7 +75,16 @@ Glory. **The same again, or the Apolytikion of the Church.**
 
 Both now. **The following.**
 
-Though most unworthy, may we never by silence fail to proclaim your mighty acts and accomplishments, for if you do not stand to intercede for us all, Mother of our God, who then will preserve us in freedom? Who would have delivered us from such terrible dangers? O Sovereign Lady, from all kinds of threats you save your servants, may we not abandon you.
+Though most unworthy, may we never by silence
+fail to proclaim your mighty acts and accomplishments,
+for if you do not stand to intercede for us all,
+Mother of our God, who then
+will preserve us in freedom?
+Who would have delivered us
+from such terrible dangers?
+O Sovereign Lady, from all kinds of threats
+you save your servants,
+may we not abandon you.
 
 **Then Psalm 50, read by the Reader.**
 
@@ -77,41 +98,89 @@ Have mercy on me, O God, in accordance with your great mercy. According to the m
 
 **Ode 1, Tone 8. The Irmos.**
 
-****O****n crossing the water as though dry land, escaping from Egypt and its miseries in his flight, the Israelite raised his voice and cried aloud, ‘To our Redeemer and our God now let us sing!’
+****O****n crossing the water as though dry land,
+escaping from Egypt
+and its miseries in his flight,
+the Israelite raised his voice and cried aloud,
+‘To our Redeemer and our God now let us sing!’
 
-**Troparia. In each Ode, after the first two Troparia we sing,** Most holy Mother of God, save us!
+**Troparia.
+In each Ode, after the first two Troparia we sing,***
+*Most holy Mother of God, save us!
 
-****B****y many temptations I am held fast, and seeking salvation come for refuge in flight to you O Mother of God’s own Word and Virgin, from my dread dangers and troubles now rescue me.
+****B****y many temptations I am held fast,
+and seeking salvation
+come for refuge in flight to you
+O Mother of God’s own Word and Virgin,
+from my dread dangers and troubles now rescue me.
 
-****T****he passions torment with their assaults, despondency’s burden presses heavily on my soul, with the calm of your Son and God, pure Maiden, O All-immaculate Virgin, now give me peace.
+****T****he passions torment with their assaults,
+despondency’s burden
+presses heavily on my soul,
+with the calm of your Son and God, pure Maiden,
+O All-immaculate Virgin, now give me peace.
 
 Glory.
 
-****T****o God and our Saviour, you once gave birth, pure Maiden, I beg you, from dread troubles may I be saved, for as I now run to you for refuge, it is to you that I lift both my soul and mind.
+****T****o God and our Saviour, you once gave birth,
+pure Maiden, I beg you,
+from dread troubles may I be saved,
+for as I now run to you for refuge,
+it is to you that I lift both my soul and mind.
 
 Both now.
 
-****I****n body and soul, sick as I am, consider me worthy, only Mother of our true God, of your godly providence and kindness, for you are good and the one who gave birth to Good.
+****I****n body and soul, sick as I am,
+consider me worthy,
+only Mother of our true God,
+of your godly providence and kindness,
+for you are good and the one who gave birth to Good.
 
 **Ode 3. The Irmos.**
 
-****Y****ou constructed the heavens’ high vault, O Lord, and the Church, has you as its builder, do you establish me in your love, you are the pinnacle of all desires, and foundation, mankind’s only Lover, of all who believe in you.
+****Y****ou constructed the heavens’ high vault, O Lord, and the Church,
+has you as its builder, do you establish me in your love,
+you are the pinnacle
+of all desires, and foundation,
+mankind’s only Lover, of all who believe in you.
 
 **Troparia.**
 
-****A****s protection I set you and as the shield of my life, you gave birth to God, Virgin Mother, guide me as a pilot now into your anchorage, you the support of the faithful, source of all good things, you alone the one all-praised.
+****A****s protection I set you and as the shield of my life,
+you gave birth to God, Virgin Mother, guide me as a pilot now
+into your anchorage,
+you the support of the faithful,
+source of all good things, you alone the one all-praised.
 
-****I**** entreat you, O Virgin, dispel the strife in my soul, pacify, I pray you, the tempest of my despondency, for you, O Bride of God, gave birth to him who is calm’s source, you gave birth to Christ, you alone are the one all-praised.
+****I**** entreat you, O Virgin, dispel the strife in my soul,
+pacify, I pray you, the tempest of my despondency,
+for you, O Bride of God,
+gave birth to him who is calm’s source,
+you gave birth to Christ, you alone are the one all-praised.
 
-****B****enefactor is he whom you bore and cause of all good, pour out then for all the abundant wealth of his benefits, power to do all things, is yours who bore Christ the mighty, powerful in strength is he, O greatly blessed by God.
+****B****enefactor is he whom you bore and cause of all good,
+pour out then for all the abundant wealth of his benefits,
+power to do all things,
+is yours who bore Christ the mighty,
+powerful in strength is he, O greatly blessed by God.
 
-****C****ruel illnesses test me, and passions most damaging, help me, I beseech you, O Virgin, aid me, all-blameless one, for I know you to be the inexhaustible treasure, never failing storehouse, of healings that have no price.
+****C****ruel illnesses test me, and passions most damaging,
+help me, I beseech you, O Virgin, aid me, all-blameless one,
+for I know you to be
+the inexhaustible treasure,
+never failing storehouse, of healings that have no price.
 
 **Other Troparia.**
 
-Save your servants, from every danger, O Mother of God, for next after God we all fly for refuge to you as unbreachable wall and protection.
+Save your servants,
+from every danger, O Mother of God,
+for next after God
+we all fly for refuge to you
+as unbreachable wall and protection.
 
-With kindness, all-praised Mother of God, look on the dire affliction of my body and heal the pain of my soul.
+With kindness, all-praised Mother of God,
+look on the dire affliction of my body
+and heal the pain of my soul.
 
 **Then the Litany of supplication.**
 
@@ -133,55 +202,128 @@ Also we pray for the servants of God who make this supplication, and for the ser
 
 **Kathisma. Tone 2. Seeking things on high.**
 
-Invincible rampart, fervent intercession, the wellspring of mercy, refuge of the world, to you we all cry insistently, ‘Sovereign Lady, Mother who bore our God, hasten, from perils swiftly set us free, alone you are ever swift in our defence’.
+Invincible rampart, fervent intercession,
+the wellspring of mercy, refuge of the world, to you
+we all cry insistently,
+‘Sovereign Lady, Mother who bore our God,
+hasten, from perils swiftly set us free,
+alone you are ever swift in our defence’.
 
 **Ode 4. Irmos.**
 
-****I**** have heard, Lord, the mystery of your dispensation, I heard and was afraid, I have meditated on your works and exalt and glorify your Deity.
+****I**** have heard, Lord, the mystery
+of your dispensation, I heard and was afraid,
+I have meditated on your works
+and exalt and glorify your Deity.
 
 **Troparia.**
 
-****I**** entreat you, O Bride of God, still my passions’ tumult, the tempest of my faults, still the raging turmoil in my soul; you who brought to birth my pilot and my Lord.
+****I**** entreat you, O Bride of God,
+still my passions’ tumult, the tempest of my faults,
+still the raging turmoil in my soul;
+you who brought to birth my pilot and my Lord.
 
-****A****s I call on you grant to me your compassion’s depths, let me know your tenderness, you who bore the Saviour of all those who now lift their voices and who sing your praise.
+****A****s I call on you grant to me
+your compassion’s depths, let me know your tenderness,
+you who bore the Saviour of all those
+who now lift their voices and who sing your praise.
 
-****A****ll-Immaculate Virgin, we acknowledge you as the Mother of our God as we offer you our hymns of thanks, for your many gracious gifts which we enjoy.
+****A****ll-Immaculate Virgin,
+we acknowledge you as the Mother of our God
+as we offer you our hymns of thanks,
+for your many gracious gifts which we enjoy.
 
-****A****s our hope and assurance, rampart of salvation which none can overthrow we have gained you, highly honoured one, and from every trouble you deliver us.
+****A****s our hope and assurance,
+rampart of salvation which none can overthrow
+we have gained you, highly honoured one,
+and from every trouble you deliver us.
 
 **Ode 5. The Irmos**.
 
-****L****ord, enlighten us, with your ordinances and commands, and with your upraised arm grant unto us your peace, for you alone, O Lord, are Lover of humanity.
+****L****ord, enlighten us,
+with your ordinances and commands,
+and with your upraised arm grant unto us your peace,
+for you alone, O Lord, are Lover of humanity.
 
 **Troparia.**
 
-****F****ill my heart, I pray, with your gladness and unsullied joy, Virgin most pure, the only Mother of our God, for you who gave birth to him who is the cause of gladness.
+****F****ill my heart, I pray,
+with your gladness and unsullied joy,
+Virgin most pure, the only Mother of our God,
+for you who gave birth to him who is the cause of gladness.
 
-****C****ome, deliver us from all dangers, Mother of our God, you bore eternal liberation, Maid most pure, the peace which passes all understanding came to birth from you.
+****C****ome, deliver us
+from all dangers, Mother of our God,
+you bore eternal liberation, Maid most pure,
+the peace which passes all understanding came to birth from you.
 
-****D****issipate the fog, Bride of God, the murk of my misdeeds, with the illumination of your radiance, you who gave birth to the divine and pre-eternal light.
+****D****issipate the fog,
+Bride of God, the murk of my misdeeds,
+with the illumination of your radiance,
+you who gave birth to the divine and pre-eternal light.
 
-****H****eal me, O Most Pure, heal the sickness that afflicts my soul, making it worthy of your kindness and your care, and by your fervent intercession grant me health, I pray.
+****H****eal me, O Most Pure,
+heal the sickness that afflicts my soul,
+making it worthy of your kindness and your care,
+and by your fervent intercession grant me health, I pray.
 
 **Ode 6. Irmos.**
 
-****I**** pour out my supplication to the Lord, and to him I shall declare my afflictions, for, see, my soul has been filled up with evils and now my life has been drawn very close to Hell. Like Jonas I appeal to you, ‘O my God, bring me up from corruption!’
+****I**** pour out
+my supplication to the Lord,
+and to him I shall declare my afflictions,
+for, see, my soul has been filled up with evils
+and now my life has been drawn very close to Hell.
+Like Jonas I appeal to you,
+‘O my God, bring me up from corruption!’
 
 **Troparia.**
 
-****A****s from death and from corruption and decay, when to death and to decay it captive, he saved my nature held fast by corruption giving himself over into the hand of death, O Virgin, beg your Lord and Son from the malice of foes to deliver me.
+****A****s from death
+and from corruption and decay,
+when to death and to decay it captive,
+he saved my nature held fast by corruption
+giving himself over into the hand of death,
+O Virgin, beg your Lord and Son
+from the malice of foes to deliver me.
 
-****I**** know you to be my life’s sure guardian its protection and shield, O pure Virgin, you who dispel the great throng of temptations, and drive away assaults of demon hordes, unceasingly I plead with you, ‘From the passions’ corruption deliver me’.
+****I**** know you
+to be my life’s sure guardian
+its protection and shield, O pure Virgin,
+you who dispel the great throng of temptations,
+and drive away assaults of demon hordes,
+unceasingly I plead with you,
+‘From the passions’ corruption deliver me’.
 
-****O**** Maiden, complete salvation of our souls, we have gained you as our rampart of refuge, as our relief in afflictions and torment, and in your light evermore we are filled with joy. O Sovereign Lady, save us now from the passions and dangers besetting us.
+****O**** Maiden,
+complete salvation of our souls,
+we have gained you as our rampart of refuge,
+as our relief in afflictions and torment,
+and in your light evermore we are filled with joy.
+O Sovereign Lady, save us now
+from the passions and dangers besetting us.
 
-****I****n sickness and with no healing in my flesh now I lie upon my bed, yet I implore you, as you gave birth to our God and the world’s Saviour, to him who frees us from sickness and malady, O good one, hear me, I implore, ‘From disease’s corruption now raise me up’.
+****I****n sickness
+and with no healing in my flesh
+now I lie upon my bed, yet I implore you,
+as you gave birth to our God and the world’s Saviour,
+to him who frees us from sickness and malady,
+O good one, hear me, I implore,
+‘From disease’s corruption now raise me up’.
 
 **Other Troparia.**
 
-Save your servants, from every danger, O Mother of God, for next after God we all fly for refuge to you as unbreachable wall and protection.
+Save your servants,
+from every danger, O Mother of God,
+for next after God
+we all fly for refuge to you
+as unbreachable wall and protection.
 
-Immaculate, who through a word gave birth to the Word beyond explanation in the last days, make intercession, as you have a mother’s freedom to speak.
+Immaculate,
+who through a word gave birth to the Word
+beyond explanation in the last days,
+make intercession,
+as you have a mother’s freedom to speak.
 
 **Then again the Litany of supplication.**
 
@@ -206,7 +348,15 @@ Also we pray for the servants of God who make this supplication, and for the ser
 **P**
 -----
 
-rotection of Christians that cannot be put to shame, unfailing mediation with the Maker, do not despise the voices of us sinners as we pray; but, in your love, be quick to help us who cry to you with faith, ‘Hasten to intercede, make speed to entreat, O Mother of God’, for you ever protect those who honour you.
+rotection of Christians that cannot be put to shame,
+unfailing mediation with the Maker,
+do not despise the voices of us sinners as we pray;
+but, in your love, be quick to help us
+who cry to you with faith,
+‘Hasten to intercede,
+make speed to entreat,
+O Mother of God’,
+for you ever protect those who honour you.
 
 **Then the Anavathmi, the 1st Antiphon in Tone 4:**
 
@@ -262,13 +412,38 @@ Have mercy on me, O God, according to your great mercy; according to the fullnes
 
 **Tone 6. Having placed all your hope.**
 
-Sovereign and all-holy one, do not trust me to protection which is merely human, but accept the pleading of your supplicant, anguish has hold of me, nor can I endure the hostile demons’ arrows; no shelter can I find, no, nor place of refuge, wretch that I am, from every side I am assailed, and, save you, I find none that offers solace, Queen of all creation, Protection of the faithful and our hope, do not despise my entreaty, but take action for my good.
+Sovereign and all-holy one,
+do not trust me to protection
+which is merely human,
+but accept the pleading of your supplicant,
+anguish has hold of me,
+nor can I endure
+the hostile demons’ arrows;
+no shelter can I find,
+no, nor place of refuge, wretch that I am,
+from every side I am assailed,
+and, save you, I find none that offers solace,
+Queen of all creation,
+Protection of the faithful and our hope,
+do not despise my entreaty,
+but take action for my good.
 
 **Other Theotokia in the same Tone.**
 
-No one who has recourse to you goes from your presence put to shame and rejected, O Mother of God, pure Virgin, but asking for grace they receive gifts and benefits most advantageous to the plea they make.
+No one who has recourse to you
+goes from your presence put to shame and rejected,
+O Mother of God, pure Virgin,
+but asking for grace
+they receive gifts and benefits
+most advantageous to the plea they make.
 
-For the afflicted, transformation and liberation for the ailing are you, O Mother of God, most pure Virgin: save your City, save us all. To all those embattled, you are peace, you are calm to those tossed by the tempest the one Protection of the faithful.
+For the afflicted, transformation
+and liberation for the ailing
+are you, O Mother of God, most pure Virgin:
+save your City, save us all.
+To all those embattled, you are peace,
+you are calm to those tossed by the tempest
+the one Protection of the faithful.
 
 **Priest:**
 
@@ -282,69 +457,169 @@ O God, save your people and bless your inheritance, visit your world with mercy 
 
 **Ode 7. Irmos.**
 
-****T****he Three Youths from Judea who attained to the faith of the holy Trinity in Babylon of old, sang out as they trampled on the furnace’s raging flames, ‘Blessed are you, O God, the God of our Fathers!’
+****T****he Three Youths from Judea
+who attained to the faith of the holy Trinity
+in Babylon of old,
+sang out as they trampled
+on the furnace’s raging flames,
+‘Blessed are you, O God,
+the God of our Fathers!’
 
 **Troparia**.
 
-****W****ith the will to accomplish our salvation, O Saviour, you made your dwelling place within the Virgin’s womb, revealed her as the champion and protection for all the world. ‘Blessed are you, O God, the God of our Fathers!’
+****W****ith the will to accomplish
+our salvation, O Saviour, you made your dwelling place
+within the Virgin’s womb,
+revealed her as the champion
+and protection for all the world.
+‘Blessed are you, O God,
+the God of our Fathers!’
 
-****O**** pure Mother implore him who desires to grant mercy, the one you brought to birth, that they may be set free from faults and soul’s defilements, those who cry out with faith and sing, ‘Blessed are you, O God, the God of our Fathers!’
+****O**** pure Mother implore him
+who desires to grant mercy, the one you brought to birth,
+that they may be set free
+from faults and soul’s defilements,
+those who cry out with faith and sing,
+‘Blessed are you, O God,
+the God of our Fathers!’
 
-****Y****ou revealed her who bore you as a tower of safety, as incorruption’s fount, salvation’s treasure store and doorway to repentance for all those who now cry aloud, ‘Blessed are you, O God, the God of our Fathers!’
+****Y****ou revealed her who bore you
+as a tower of safety, as incorruption’s fount,
+salvation’s treasure store
+and doorway to repentance
+for all those who now cry aloud,
+‘Blessed are you, O God,
+the God of our Fathers!’
 
-****A****s you bore Christ the Saviour for our sake, deign to heal from all sicknesses of the soul and weakness of the body those who with love and longing, O most pure, who gave birth to God, come close to you, to draw near to your divine protection.
+****A****s you bore Christ the Saviour
+for our sake, deign to heal from all sicknesses of the soul
+and weakness of the body
+those who with love and longing,
+O most pure, who gave birth to God,
+come close to you, to draw near
+to your divine protection.
 
 **Ode 8. Irmos.**
 
-****T****he King of heaven, whose praise the Angels are singing, all the hosts of the bodiless powers praise him and exalt him most highly to all ages.
+****T****he King of heaven,
+whose praise the Angels are singing,
+all the hosts of the bodiless powers
+praise him and exalt him most highly to all ages.
 
 **Troparia.**
 
-****D****o not despise those who beg your help, O pure Virgin, as their raise their song up in your honour, praising and exalting you, Maiden, to the ages.
+****D****o not despise those
+who beg your help, O pure Virgin,
+as their raise their song up in your honour,
+praising and exalting you, Maiden, to the ages.
 
-****U****nending rivers of healings you pour, O Virgin, for all those who him and extol and praise you, those whose songs exalt your Birth-Giving beyond language.
+****U****nending rivers
+of healings you pour, O Virgin,
+for all those who him and extol and praise you,
+those whose songs exalt your Birth-Giving beyond language.
 
-****Y****ou cure, O Virgin, all my soul’s weakness and sickness, and the flesh’s tormenting afflictions, so that I may sing of your glory, Highly Favoured.
+****Y****ou cure, O Virgin,
+all my soul’s weakness and sickness,
+and the flesh’s tormenting afflictions,
+so that I may sing of your glory, Highly Favoured.
 
-****T****he passions’ onslaughts and the assaults of temptations you, O Virgin, repel and drive from us, wherefore we shall praise and hymn you to all ages.
+****T****he passions’ onslaughts
+and the assaults of temptations
+you, O Virgin, repel and drive from us,
+wherefore we shall praise and hymn you to all ages.
 
 **Ode 9. Irmos**.
 
-****W****e who through you, O Virgin, have been saved confess you to be most truly the one who gave birth to God, with all the choirs of the heavens you we now magnify.
+****W****e who through you, O Virgin,
+have been saved confess you
+to be most truly the one who gave birth to God,
+with all the choirs of the heavens you we now magnify.
 
 **Troparia.**
 
-****D****o not reject my weeping, tears that flow unceasing, for you, O Virgin, gave birth to our Saviour Christ, and it he who has wiped every tear from every face.
+****D****o not reject my weeping,
+tears that flow unceasing,
+for you, O Virgin, gave birth to our Saviour Christ,
+and it he who has wiped every tear from every face.
 
-****C****ome, fill my heart, O Virgin, fill my heart with gladness, for you received in his fullness the joy of all, and made the pain and the sadness of sin now disappear.
+****C****ome, fill my heart, O Virgin,
+fill my heart with gladness,
+for you received in his fullness the joy of all,
+and made the pain and the sadness of sin now disappear.
 
-****O**** Virgin, be the haven, shelter and protection of those who flee to you, rampart unshakeable, may they have as their refuge, their gladness and their joy.
+****O**** Virgin, be the haven,
+shelter and protection
+of those who flee to you, rampart unshakeable,
+may they have as their refuge, their gladness and their joy.
 
-****D****ispel the fog of error, ignorance’s darkness, and let your light’s rays, O Virgin, illumine those who with devotion proclaim you the Mother of our God.
+****D****ispel the fog of error,
+ignorance’s darkness,
+and let your light’s rays, O Virgin, illumine those
+who with devotion proclaim you the Mother of our God.
 
-****H****eal one laid low and wretched, in a place of sickness, a place, O Virgin, of ill and of wretchedness, grant transformation from weakness and feebleness to health.
+****H****eal one laid low and wretched,
+in a place of sickness,
+a place, O Virgin, of ill and of wretchedness,
+grant transformation from weakness and feebleness to health.
 
 **Then the Megalynaria, during which the Priest censes.**
 
-****I****t is truly right to call you blessed, who gave birth to God, ever-blessed and most pure, and Mother of our God.
+****I****t is truly right to call you blessed,
+who gave birth to God,
+ever-blessed and most pure, and Mother of our God.
 
-****G****reater in honour than the Cherubim and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word; truly the Mother of God, we magnify you.
+****G****reater in honour than the Cherubim
+and beyond compare more glorious than the Seraphim,
+without corruption
+you gave birth to God the Word;
+truly the Mother of God,
+we magnify you.
 
-****H****igher than the heavens is she by far, and yet more resplendent than the sun with its blazing rays, she who has delivered us from the curse’s power, in hymns now let us honour her who rules all the world.
+****H****igher than the heavens is she by far,
+and yet more resplendent than the sun with its blazing rays,
+she who has delivered
+us from the curse’s power,
+in hymns now let us honour
+her who rules all the world.
 
-****F****rom the swarming multitude of my sins, both my soul and body are now weakened, they are both sick, O Most Highly Favoured, to you I fly for refuge, the hope of those who have none, grant me, I pray you, your help.
+****F****rom the swarming multitude of my sins,
+both my soul and body are now weakened, they are both sick,
+O Most Highly Favoured,
+to you I fly for refuge,
+the hope of those who have none,
+grant me, I pray you, your help.
 
-****M****other of the One who redeemed us all, hear the supplications your unworthy household makes, be our intercessor with him, the One born from you, the world’s true Sovereign Lady, become our Advocate.
+****M****other of the One who redeemed us all,
+hear the supplications your unworthy household makes,
+be our intercessor
+with him, the One born from you,
+the world’s true Sovereign Lady,
+become our Advocate.
 
-****F****ervently and joyfully we now sing hymns and odes to you, the all-praised Mother of our God, with the Lord’s Forerunner and all the Saints in heaven, implore your Son, O Mother, to show us pity now.
+****F****ervently and joyfully we now sing
+hymns and odes to you, the all-praised Mother of our God,
+with the Lord’s Forerunner
+and all the Saints in heaven,
+implore your Son, O Mother,
+to show us pity now.
 
-****L****et the impious’ lips be bereft of speech, who do not worship this your icon, the all-revered, this which was depicted by Luke, the Lord’s Apostle, the icon with the title, ‘She who points out the Way’.
+****L****et the impious’ lips be bereft of speech,
+who do not worship this your icon, the all-revered,
+this which was depicted
+by Luke, the Lord’s Apostle,
+the icon with the title,
+‘She who points out the Way’.
 
 **The Megalynarion of the Patron of the Church.**
 
 **Then**
 
-****A****ll you hosts of heaven, the Angel Bands, John, the Lord’s Forerunner, the Apostles, the holy Twelve, Saints beyond all number, with our God’s own Mother, make intercession for us, that we may all be saved.
+****A****ll you hosts of heaven, the Angel Bands,
+John, the Lord’s Forerunner, the Apostles, the holy Twelve,
+Saints beyond all number,
+with our God’s own Mother,
+make intercession for us,
+that we may all be saved.
 
 **Reader:** Holy God, Holy Strong, Holy Immortal, have mercy on us **(three times)**.
 
@@ -414,31 +689,71 @@ Also we pray for the protection of this city and land from plague, famine, earth
 
 **Tone 2. When from the Tree**.
 
-All those, loving Virgin, you protect, with your mighty hand, who in faith come to seek refuge with you; for we sinners, bowed beneath the weight of many faults, have no other who in our dangers and our afflictions is ever-present intercessor before God, Mother of God, the Most High, whence we fall before you, ‘Deliver all your servants in every predicament’.
+All those, loving Virgin, you protect,
+with your mighty hand, who in faith come
+to seek refuge with you;
+for we sinners, bowed beneath the weight of many faults,
+have no other who in our dangers and our afflictions
+is ever-present intercessor before God,
+Mother of God, the Most High,
+whence we fall before you, ‘Deliver
+all your servants in every predicament’.
 
 **The same melody.**
 
-Joy of all who are afflicted, champion of all dealt injustice, the food for those who are in need, you, the stranger’s advocate, support and staff of the blind, loving care of the sick are you, to all who are crushed down shield, defence and aid are you, the orphan’s succour and help, Mother of our God the Most High, hasten, All-Immaculate, hasten, hear our prayer, deliver all your servants.
+Joy of all who are afflicted,
+champion of all dealt injustice,
+the food for those who are in need,
+you, the stranger’s advocate, support and staff of the blind,
+loving care of the sick are you, to all who are crushed down
+shield, defence and aid are you, the orphan’s succour and help,
+Mother of our God the Most High,
+hasten, All-Immaculate, hasten,
+hear our prayer, deliver all your servants.
 
 **Tone 8.**
 
-Accept the pleadings of your servants, O Lady, and rescue us from every constraint and affliction.
+Accept the pleadings
+of your servants, O Lady,
+and rescue us from every constraint and affliction.
 
 **Tone 2.**
 
-All my hope I lay on you, Mother of God. Guard me beneath your protection.
+All my hope I lay on you,
+Mother of God.
+Guard me beneath your protection.
 
 **During the first fortnight of August it is customary to sing, instead of the preceding Theotokia, the following Exapostilaria.**
 
 **Tone 3. As God you adorned the heavens.**
 
-Apostles, you assembled here brought here from the earth’s furthest limits, here in the bounds of Gethsemane I bid you inter my body. And you, my Son and my God, my dear Son, receive my spirit.
+Apostles, you assembled here
+brought here from the earth’s furthest limits,
+here in the bounds of Gethsemane
+I bid you inter my body.
+And you, my Son and my God,
+my dear Son, receive my spirit.
 
-O sweetness of the Angels, the joy of all those in distress, the Virgin Mother of the Lord, you are the protection of Christians, come to my aid, deliver me from the eternal torments.
+O sweetness of the Angels,
+the joy of all those in distress,
+the Virgin Mother of the Lord,
+you are the protection of Christians,
+come to my aid, deliver me
+from the eternal torments.
 
-For you I have as advocate before the God who loves mankind, do not expose what I have done before the sight of the Angels, and I entreat you, O Virgin, pray, come to my aid, come swiftly.
+For you I have as advocate
+before the God who loves mankind,
+do not expose what I have done
+before the sight of the Angels,
+and I entreat you, O Virgin,
+pray, come to my aid, come swiftly.
 
-O Tower wreathed in gold, O glorious Twelve-walled City, The Throne from which the sun pours down, the Seat of the King of all, O wonder beyond understanding! How is it you suckle the Master?
+O Tower wreathed in gold,
+O glorious Twelve-walled City,
+The Throne from which the sun pours down,
+the Seat of the King of all,
+O wonder beyond understanding!
+How is it you suckle the Master?
 
 **Priest**
 
@@ -448,6 +763,7 @@ Through the prayers of our holy fathers, Lord Jesus Christ our God, have mercy o
 
 The Translation is © by Archimandrite Ephrem and David Melling 
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -45,19 +45,22 @@ Entrance;
 
 O Joyful Light; **the Prokeimenon of the day, and the Readings.**
 
-The Reading is from Jesus son of Navi. \[
+The Reading is from Jesus son of Navi.
+\[
 
 **5, 13-15**\]
 
 It came to pass, when Jesus was in Jericho, that he looked up with his eyes and saw a man standing in front of him, and his drawn sword was in his hand. And Jesus approached him and said: ‘Are you one of ours? Or are you one of the enemy’s?’ But he said to him: ‘I am Chief Captain of the power of the Lord, and now I have come here’. And Jesus fell on his face to the ground and said: ‘Master, what orders have you for your servant?’ And the Chief Captain of the Lord said to Jesus: ‘Untie the sandals from your feet; for the place where you are standing is holy’; and Jesus did so.
 
-The Reading is from Judges. \[
+The Reading is from Judges.
+\[
 
 **6, 6.11-24**\]
 
 It came to pass in that day that Madiam prevailed against the children of Israel, and they cried to God. And behold, the Angel of the Lord came and sat under the oak of Joas in Ephrata, and Gedeon his son was threshing wheat in the wine-press, and hastening to escape from the presence of Madiam. And the Angel of the Lord appeared to him and said to him: ‘The Lord is with you, powerful in strength’. And Gedeon said to him: ‘In me, my Lord; and if the Lord is with us, why have all these evils come upon us? And where are all his wonders, of which our fathers told us, saying: ‘Did not the Lord lead us up out of Egypt?’ And now he has abandoned us, and handed us over to the hand of Madiam’. And the Angel of the Lord looked on him and said to him: ‘Go in this strength of yours and you will save Israel from the hand of Madiam. See, I have sent you’. And Gedeon said to him: ‘In me, Lord. How shall I save Israel? See, my thousand is the humblest in Manasse, and I am the smallest in my father’s house’. And the Angel of the Lord said to him: ‘The Lord will be with you, and you will smite Madiam as one man’. And Gedeon said to him: ‘If I have found grace in your eyes, and you do for me to-day everything of which you have spoken with me, do not, pray, leave here until I come back to you, and I shall bring my sacrifice and offer sacrifice before you’. And he said; ‘I am, I shall sit here until you return’. And Gedeon went and prepared a goat kid and an measure of unleavened flour, and he put the meat in a basket and the broth he put in a pot and brought them to him under the oak, and approached. And the Angel of the Lord said to him: ‘Take the meat and the unleavened loaves and put them on that rock and pour out the broth next it’. And he did so. And the Angel of the Lord stretched out the tip of the rod in his hand and touched the meat and the unleavened loaves; and fire was kindled from the rock and it devoured the meat and the unleavened loaves; and the Angel of the Lord disappeared from his sight. And Gedeon saw that it was the Angel of the Lord, and Gedeon said: ‘Alas Lord, Lord! Because I have seen the Angel of the Lord face to face’. And the Lord said to him: ‘Peace to you, do not be afraid, you shall not die’. And Gedeon built there an altar to the Lord, and called it PEACE OF THE LORD until this day.
 
-The Reading is from the Prophecy of Daniel. \[
+The Reading is from the Prophecy of Daniel.
+\[
 
 **10, 1-21**\]
 
@@ -166,7 +169,8 @@ And Dismissal.
 AT MATINS
 ---------
 
-**After the 1st Psalter Reading, Kathisma. Tone 4. Lifted up on the Cross.**
+**After the 1st Psalter Reading,
+Kathisma. Tone 4. Lifted up on the Cross.**
 
 Chief Captain of the bodiless Ministers, you stand before God and are made radiant with the rays that come from him, make bright, make holy those who faithfully sing your praise, deliver them from every tyranny of the foe, and ask for a peaceful life for our Sovereigns and all the ends of the earth.
 
@@ -182,7 +186,8 @@ We your servants, Mother of God, Sovereign Lady, will never cease to hymn your m
 
 ****
 
-After the 2nd Psalter Reading, Kathisma. Tone 4. Lifted up on the Cross.
+After the 2nd Psalter Reading,
+Kathisma. Tone 4. Lifted up on the Cross.
 
 The Cherubim and many-eyed Seraphim, the hosts of ministering Archangels with the Virtues, Thrones, Dominations, Angels, Powers and Principalities implore you, our Maker and God and Master: Do not despise the supplication of a sinful people, O Christ most merciful.
 
@@ -198,7 +203,8 @@ Come speedily to help, before we are enslaved to foes who blaspheme you and thre
 
 ****
 
-After the Polyeleos \[see the end of this page for the Selection\]. Kathisma. Tone 8. Taking knowledge.
+After the Polyeleos \[see the end of this page for the Selection\]. Kathisma.
+Tone 8. Taking knowledge.
 
 Princes and Chiefs of the heavenly realms, of the high-throned and dread regions of the divine glory, Michael and Gabriel, Chief Captains and Ministers, with all the Bodiless Powers, who ever intercede with the Master on the world’s behalf, ask forgiveness of offences for us, and that we may find mercy and grace on the day of judgement.
 
@@ -246,7 +252,8 @@ As you surround the immaterial throne, O spiritual beings, divine Bodiless ones,
 
 Then the Canons are sung, that of the Mother of God \[from the Little Paraklesis\] to 6, and the following two of the Bodiless Powers to 8.
 
-First Canon of the Bodiless Powers. A Composition of Monk John.
+First Canon of the Bodiless Powers.
+A Composition of Monk John.
 
 Ode 1. Tone 8. Peoples, let us raise.
 
@@ -484,7 +491,9 @@ On the 8th day of the month, the Assembly of the Chief Captains, Michael and Gab
 
 Verses.
 
-Michael, a fitting song I wished to sing You fittingly; but matter-free have none. Leaders of heaven’s high host the eighth of November now honours.
+Michael, a fitting song I wished to sing
+You fittingly; but matter-free have none.
+Leaders of heaven’s high host the eighth of November now honours.
 
 For the Assembly of the Nine Orders of Seraphim, Cherubim, Thrones, Dominations, Virtues, Principalities, Powers, Archangels and Angels.
 
@@ -492,7 +501,8 @@ For the Assembly of the Nine Orders of Seraphim, Cherubim, Thrones, Dominations,
 
 Verses.
 
-What offering worthy of the Orders nine Could one the offspring of nine months pronounce?
+What offering worthy of the Orders nine
+Could one the offspring of nine months pronounce?
 
 Michael the pre-eminent Captain of the bodiless Powers, in both the Old Testament and the New Grace, has shown and shows to the human race his many graces and benefactions. For when the opponent and enemy of our salvation tossing his mane against the Creator, said swaggeringly: ‘I shall place my throne above the clouds’ and boastingly: ‘I shall be like the Most High’, he fell, as the Lord says, from his Archangel’s dignity. For he says: ‘I saw Satan falling from heaven like lightning.’ Moreover the bragging Order under him suffered the same fate. But all-honoured Michael, maintaining, as a faithful servant, his respect for the Master and showing his great care for our race was appointed by the Almighty to lead the spiritual and archangelic ranks. For when he saw the rebel fall, he assembled the choirs of Angels and saying: ‘Let us attend’ hymned aloud the Lord of all things, as though saying: ‘Let us, who are creatures, attend to what they have suffered who until now were with us, beings of light, but now have become darkness. This support then has been named the Assembly of the Angels, that is attention, agreement and unity.
 
@@ -680,7 +690,8 @@ Who makes spirits his Angels, and flames of fire his Ministers.
 
 **SELECTION FOR THE POLYELEOS**
 
-FOR THE ASSEMBLY OF THE ARCHANGELS MICHAEL AND GABRIEL AND ALL THE HEAVENLY POWERS.
+FOR THE ASSEMBLY OF THE ARCHANGELS MICHAEL AND GABRIEL
+AND ALL THE HEAVENLY POWERS.
 
 I shall sing to you, Alleluia.
 
@@ -742,6 +753,7 @@ Both now.
 
 Your people, O Christ, brings your Mother to intercede; at her entreaties grant us your pity, that we may glorify you, O Good one, who dawned for us from the grave.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

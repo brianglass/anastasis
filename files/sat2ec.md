@@ -160,6 +160,7 @@ Theotokion.
 
 All your mysteries are beyond understanding, all beyond glory, Mother of God; sealed in purity and guarded in virginity you were known without deception to be a Mother, in giving birth to the true God: implore him that our souls may be saved.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

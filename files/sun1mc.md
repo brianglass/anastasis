@@ -101,7 +101,8 @@ Verse: The Lord’s words are pure words, silver tried by fire, tested in earth,
 
 ****
 
-Resurrection Canon. Ode 1. Tone 1. The Irmos.
+Resurrection Canon.
+Ode 1. Tone 1. The Irmos.
 
 Your triumphant right hand, in a manner fitting God, has been glorified in strength, O Immortal; for in its infinite strength it broke in pieces the enemy, and made a strange new way for the Israelites in the deep.
 
@@ -121,7 +122,8 @@ Hail source of grace, hail ladder and gate of heaven, hail lampstand and golden 
 
 ****
 
-Another Canon, of Cross and Resurrection. Irmos. Christ is born, give glory!
+Another Canon, of Cross and Resurrection.
+Irmos. Christ is born, give glory!
 
 Christ incarnate makes me divine. Christ being humbled exalts me. Christ the Giver of life by suffering the passion in the flesh makes me dispassionate. Therefore I raise a song of thanksgiving, for he has been glorified.
 
@@ -135,7 +137,8 @@ All-pure Virgin, you conceived God; in virginity you gave birth to Christ who wa
 
 ****
 
-Another Canon, to the Mother of God. Irmos. Your triumphant right hand.
+Another Canon, to the Mother of God.
+Irmos. Your triumphant right hand.
 
 What hymn worthy of you can our weakness offer? Unless the joyful one which Gabriel revealed to us: Hail Mother of God, Virgin Mother without bridegroom!
 
@@ -165,7 +168,8 @@ Having conceived God in the womb through the All-holy Spirit, O Virgin, you rema
 
 ****
 
-Of Cross and Resurrection. To the Son begotten.
+Of Cross and Resurrection.
+To the Son begotten.
 
 To Christ God, who took the wandering sheep upon his shoulders and through a tree destroyed his sin, let us cry aloud, you that exalt our horn, Holy are you, O Lord!
 
@@ -179,7 +183,8 @@ To the Son who without seed was incarnate by his will from a Virgin, and who by 
 
 ****
 
-Another, of the Mother of God. You alone know.
+Another, of the Mother of God.
+You alone know.
 
 Truthfully, O Virgin, following the words of the Prophet, we name you the light cloud; for on you the Lord came to destroy the Egypt’s idols of error and to enlighten those who served them.
 
@@ -209,7 +214,8 @@ We know you to be the tree of life, O Virgin; for from you there did not bud the
 
 ****
 
-Another, of Cross and Resurrection. Rod out of Jesse’s root.
+Another, of Cross and Resurrection.
+Rod out of Jesse’s root.
 
 Who is this fair one from Edom, and the scarlet of his garments from the vine of Bosor? He is fair as God and as a mortal he has reddened his robe with the blood of his flesh. To him we faithful sing, Glory to your power, O Lord!
 
@@ -223,7 +229,8 @@ You paid the ancient debt of Eve, O All-praised, by the new Adam who was made ma
 
 ****
 
-Another, of the Mother of God. Avvakoum with foreseeing eyes.
+Another, of the Mother of God.
+Avvakoum with foreseeing eyes.
 
 Hear wonders, O heaven, take note, O earth, for a daughter of the earthly, fallen Adam has been declared God’s daughter, and mother of her own Creator, for our salvation and refashioning.
 
@@ -253,7 +260,8 @@ All-praised, do not despise the prayers of those who faithfully entreat you, but
 
 ****
 
-Another, of Cross and Resurrection. As you are God of peace.
+Another, of Cross and Resurrection.
+As you are God of peace.
 
 O the riches and depth of the wisdom of God! The Lord who catches the wise has ransomed us from their trickery; for having suffered willingly through the weakness of the flesh, through his own strength he has been raised, a life-giving corpse.
 
@@ -267,7 +275,8 @@ Pure Virgin, Holy of Holies, you gave birth to the Holy of Holies, who hallows a
 
 ****
 
-Another, of the Mother of God. O Christ, who enlightened.
+Another, of the Mother of God.
+O Christ, who enlightened.
 
 Seeing you the Powers of heaven are glad, and the ranks of mortals rejoice with them; for they have been united, Virgin Mother of God, by your offspring; whom we fittingly glorify.
 
@@ -297,7 +306,8 @@ The Forefathers of the race rejoice in you, immaculate Virgin, for through you t
 
 ****
 
-Another, of Cross and Resurrection. The monster from the deep.
+Another, of Cross and Resurrection.
+The monster from the deep.
 
 Christ God, being Mind dispassionate and immaterial, mingles with the human mind that stands midway between the divine nature and the solidity of flesh; and was wholly united to the whole of me without change, that by being crucified he might hand salvation to the whole of me, who had fallen.
 
@@ -311,7 +321,8 @@ Not leaving the bosom of his Begetter, who is without beginning, he lodges and c
 
 ****
 
-Another, of the Mother of God. The deepest abyss.
+Another, of the Mother of God.
+The deepest abyss.
 
 The heavenly Ranks stand beside your Offspring like servants, fittingly struck with amazement at your child-bearing without seed, O Ever-virgin; for you are pure both before bearing child and after giving birth.
 
@@ -321,7 +332,8 @@ The foe has been slain by your life-bearing Fruit, O Full of God’s grace, and 
 
 ****
 
-Kontakion. When you come upon the earth.
+Kontakion.
+When you come upon the earth.
 
 You rose from the grave in glory as God and raised the world up with you; mortal nature sang your praise as God, and death disappeared; Adam dances, Master, and now Eve, freed from her chains, rejoices as she cries: It is you, O Christ, who grant Resurrection to all.
 
@@ -353,7 +365,8 @@ Hail, spring of ever-living water! Hail, Paradise of pleasure! Hail, wall for th
 
 ****
 
-Another, of Cross and Resurrection. The youths brought up together.
+Another, of Cross and Resurrection.
+The youths brought up together.
 
 Of old the earth was cursed, made crimson with the blood of Abel by a brother’s murdering hand; but watered by your blood that flowed from God it is blessed and leaping for joy cries out, God of our Fathers, blessed are you!
 
@@ -363,7 +376,8 @@ Lo, the dazzling Angel cried out to the Myrrhbearing Women, Come, see the tokens
 
 ****
 
-Another, of the Mother of God. We the faithful recognise.
+Another, of the Mother of God.
+We the faithful recognise.
 
 Jacob in prophecy discerned you in the ladder, O Mother of God; for through you the Highly Exalted was well-pleased to appear and to live among men: the God of our fathers. praised and glorified above all.
 
@@ -393,7 +407,8 @@ Let us praise her who without seed and beyond nature brought forth Christ the pr
 
 ****
 
-Another, of Cross and Resurrection. The furnace moist with dew.
+Another, of Cross and Resurrection.
+The furnace moist with dew.
 
 Come, peoples, let us worship the place on which stood Christ’s immaculate feet, and where his divine, life-giving palms were stretched out on a tree for the salvation of all mortals; and we circle the tomb of life let us raise the song, Let all creation bless the Lord, and highly exalt him to all the ages.
 
@@ -403,7 +418,8 @@ The most pure Seraphim, as they praise the glory of the one lordship in thrice-h
 
 ****
 
-Another, of the Mother of God. In the furnace
+Another, of the Mother of God.
+In the furnace
 
 Let us all sing the praise of the Bridal Chamber filled with light, from whom Christ, the Master of all, came forth as a bridegroom, as we cry: All you his works bless the Lord, praise and highly exalt him to all the ages.
 
@@ -433,7 +449,8 @@ Save your people, Lord, whom you purchased with your precious blood, strengtheni
 
 ****
 
-Another, of Cross and Resurrection. A strange and wonderful.
+Another, of Cross and Resurrection.
+A strange and wonderful.
 
 Your Cross, O Lord, has been glorified with ineffable power; for your weakness was revealed to all as above power. Through it the powerful have been cast down to earth, while paupers have been brought safely to heaven.
 
@@ -443,7 +460,8 @@ The nature that is without beginning and without limit is acknowledged in three 
 
 ****
 
-Another, of the Mother of God. The burning bush.
+Another, of the Mother of God.
+The burning bush.
 
 O Virgin, fulfilling prophecy, you sprang from David’s root; yet David too you truly glorified in giving birth to him that was foretold, the Lord of glory whom fittingly we magnify.
 
@@ -555,6 +573,7 @@ You rose from the tomb as God in glory, and raised the world up with you. Mortal
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

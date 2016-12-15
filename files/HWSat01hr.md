@@ -6,7 +6,9 @@ FIRST HOUR
 
 The First Hour being joined to the Morning Office, as has been said above, begins straight away with:
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -44,7 +46,10 @@ What shall we call you, O Full of grace? Heaven? For you made the Sun of righteo
 
 Then we chant the following Verses:
 
-Direct my steps according to your word, and let no iniquity lord it over me. Deliver me from the slander of men, and I shall keep your commandments. Let your face shine on your servant, and teach me your statutes. Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour. ****
+Direct my steps according to your word, and let no iniquity lord it over me.
+Deliver me from the slander of men, and I shall keep your commandments.
+Let your face shine on your servant, and teach me your statutes.
+Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour. ****
 
 Then:
 
@@ -98,6 +103,7 @@ Christ, the true light, you enlighten and sanctify everyone who comes into the w
 
 And Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

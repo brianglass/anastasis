@@ -3,11 +3,15 @@
 SEPTEMBER 24
 ============
 
-**CANON TO THE HOLY PROTOMARTYR AND EQUAL OF THE APOSTLES THEKLA**
+**CANON TO THE HOLY PROTOMARTYR
+AND EQUAL OF THE APOSTLES THEKLA**
 
-A Composition by Monk John. The Acrostic, without the Theotokia, is **First Woman Martys is glorified**.
+A Composition by Monk John.
+The Acrostic, without the Theotokia, is
+**First Woman Martys is glorified**.
 
-Ode 1. Tone 8. Let us sing to the Lord.
+Ode 1. Tone 8.
+Let us sing to the Lord.
 
 > **F**irst Woman Martyr’s far-famed struggles tongue’s sound has not the strength to tell; for it is far too weak to raise a worthy hymn.
 >
@@ -121,6 +125,7 @@ Theotokion.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

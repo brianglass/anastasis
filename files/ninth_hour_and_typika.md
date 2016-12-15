@@ -39,7 +39,9 @@ Reader:
 
 Amen. Lord, have mercy (**x12**), Glory. Both now.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -291,6 +293,7 @@ Then the Lamplighter goes out and strikes the large simandron. We pray quietly a
 
 Come, let us worship (***x3***) **and 3 prostrations and we chant Psalm 103 of Vespers.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

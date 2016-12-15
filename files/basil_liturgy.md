@@ -8,6 +8,7 @@ This page contains a draft translation of the prayers proper to the Liturgy of S
 [The Prayers of the Liturgy of St Basil](Basil%20noted%5B3%5D.pdf)
 ------------------------------------------------------------------
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

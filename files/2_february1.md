@@ -6,6 +6,7 @@ For an annotated translation, in PDF format, of the office of the feast followin
 
 [2 February](2%20February%20Notes.pdf)
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 17 February 2007**

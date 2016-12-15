@@ -245,6 +245,7 @@ Both now. **Theotokion**.
 
 Let Jesse rejoice and David dance, for see, the Virgin, the stem of God’s planting, has blossomed with the flower, Christ the ever-living.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

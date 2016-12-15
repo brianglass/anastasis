@@ -39,7 +39,9 @@ Reader:
 
 Amen.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -123,13 +125,15 @@ Verse:
 
 Blessed is one who considers the poor and needy; the Lord will deliver in an evil day.
 
-The Reading is from the Prophecy of Zachary \[
+The Reading is from the Prophecy of Zachary
+\[
 
 **11:10-13**\]
 
 Thus says the Lord: I shall take my beautiful staff and I shall throw it away, to annul my covenant that I had made with all the peoples. And it shall be annulled on that day, and the Chananites, the sheep that will be guarded for me, will know that it is the word of the Lord. And I shall say to them, ‘If it seems right to you, weigh out and give me my wages; but if not, keep them.’ So they weighed out as my wages thirty pieces of silver. Then the Lord said to me, ‘Cast it into the furnace, and see if it is proved metal, in the same way that I was proved by them. So I took the thirty pieces of silver and threw them into the furnace into the house of the Lord, as the Lord had commanded me.
 
-The Reading is from the Epistle of Paul to the Galatians. \[
+The Reading is from the Epistle of Paul to the Galatians.
+\[
 
 **6:14-18**\]
 
@@ -245,7 +249,9 @@ Brethren and Fathers, while the sufferings of our Lord Jesus Christ when they ar
 
 THIRD HOUR
 
-Come, let us worship and fall down before the King, our God. O Come, let us worship and fall down before Christ, the King, our God. O Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+O Come, let us worship and fall down before Christ, the King, our God.
+O Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -261,7 +267,8 @@ Do not be silent, O God of my praise. For wicked and deceitful mouths are opened
 
 Psalm 50
 
-Have mercy on me, O God, in accordance with your great mercy. According to the multitude of your compassion blot out my offence. Wash me thoroughly from my wickedness, and cleanse me from my sin. For I acknowledge my wickedness, and my sin is ever before me. Against you only I have sinned and done what is evil in your sight, that you may be justified in your words and win when you are judged. For see, in wickedness I was conceived and in sin my mother bore me. For see, you have loved truth; you have shown me the hidden and secret things of your wisdom. You will sprinkle me with hyssop and I shall be cleansed. You will wash me and I shall be made whiter than snow. You will make me hear of joy and gladness; the bones which have been humbled will rejoice. Turn away your face from my sins and blot out all my iniquities. Create a clean heart in me, O God, and renew a right Spirit within me. Do not cast me out from your presence, and do not take your Holy Spirit from me. Give me back the joy of your salvation, and establish me with your sovereign Spirit. I will teach transgressors your ways, and sinners will turn to you again. O God, the God of my salvation, deliver me from bloodshed and my tongue will rejoice at your justice. Lord, you will open my lips, and my mouth will proclaim your praise. For if you had wanted a sacrifice, I would have given it. You will not take pleasure in burnt offerings. A sacrifice to God is a broken spirit. A broken and a humbled heart God will not despise. Do good to Sion, Lord, in your good pleasure, and let the walls of Jerusalem be rebuilt. Then you will be well pleased with a sacrifice of righteousness, oblation and whole burnt offerings. Then they will offer calves upon your altar.
+**
+**Have mercy on me, O God, in accordance with your great mercy. According to the multitude of your compassion blot out my offence. Wash me thoroughly from my wickedness, and cleanse me from my sin. For I acknowledge my wickedness, and my sin is ever before me. Against you only I have sinned and done what is evil in your sight, that you may be justified in your words and win when you are judged. For see, in wickedness I was conceived and in sin my mother bore me. For see, you have loved truth; you have shown me the hidden and secret things of your wisdom. You will sprinkle me with hyssop and I shall be cleansed. You will wash me and I shall be made whiter than snow. You will make me hear of joy and gladness; the bones which have been humbled will rejoice. Turn away your face from my sins and blot out all my iniquities. Create a clean heart in me, O God, and renew a right Spirit within me. Do not cast me out from your presence, and do not take your Holy Spirit from me. Give me back the joy of your salvation, and establish me with your sovereign Spirit. I will teach transgressors your ways, and sinners will turn to you again. O God, the God of my salvation, deliver me from bloodshed and my tongue will rejoice at your justice. Lord, you will open my lips, and my mouth will proclaim your praise. For if you had wanted a sacrifice, I would have given it. You will not take pleasure in burnt offerings. A sacrifice to God is a broken spirit. A broken and a humbled heart God will not despise. Do good to Sion, Lord, in your good pleasure, and let the walls of Jerusalem be rebuilt. Then you will be well pleased with a sacrifice of righteousness, oblation and whole burnt offerings. Then they will offer calves upon your altar.
 
 Glory. Both now. Alleluia (
 
@@ -321,13 +328,15 @@ Verse:
 
 O Lord, do not rebuke me in your anger; nor chasten me in your wrath.
 
-The Reading is from the Prophecy of Isaias. \[
+The Reading is from the Prophecy of Isaias.
+\[
 
 **50:4-11**\]
 
 The Lord God has given me the tongue of instruction, that I may know when to speak a word. Very early in the morning he has given me, given me an ear to hear; and the instruction of the Lord, of the Lord opens my ear, and I do not disobey, I do not dispute. I gave my back to scourges, and my cheeks to blows; I did not turn my face from the shame of spitting. The Lord God became my helper; therefore I was not ashamed, but I set my face like solid rock, and I knew that I would not be put to shame; he who justifies me is near. Who will contend with me? Let him stand up against me at the same time; who will contend with me? Let him draw near me. See, the Lord, the Lord will help me; who will injure me? All of you will wear out like a garment; the moth will eat you up. Who among you fears the Lord? Let him obey the voice of his servant; you that walk in darkness and have no light, trust in the name of the Lord and place your reliance on God? See, all of you burn like fire, make the flame grow strong. Walk in the light of your fire, and in the flame that you have kindled! For my sake this happened to you: you shall lie down in sorrow.
 
-The Reading is from the Epistle of Paul to the Romans. \[
+The Reading is from the Epistle of Paul to the Romans.
+\[
 
 **5:6-10**\]
 
@@ -419,13 +428,16 @@ Priest:
 
 May God take pity on us and be merciful to us, and make his face shine on us and have mercy on us. ****
 
-And the Superior says the following Prayer of St Mardarios
+And the Superior says the following
+Prayer of St Mardarios
 
 God and Master, Father almighty, Lord, only begotten Son, Jesus Christ and Holy Spirit, one godhead, one power, have mercy on me a sinner; and by the judgements which you know, save me your unworthy servant; for you are blessed to the ages of ages. Amen.
 
 SIXTH HOUR
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us fall down and worship before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us fall down and worship before Christ himself, the King, our God.
 
 ****
 
@@ -437,7 +449,8 @@ O God, save my by your name, and you will judge me by your power. O God, hear my
 
 Psalm 139
 
-Deliver me, O Lord, from evildoers; protect me from those who are violent, who plan evil things in their minds and stir up wars continually. They make their tongue sharp as a snake’s, and under their lips is the venom of vipers. Guard me, O Lord, from the hands of the wicked; protect me from the violent who have planned my downfall. The arrogant have hidden a trap for me, and with cords they have spread a net, along the road they have set snares for me. I say to the Lord, ‘You are my God; give ear, O Lord, to the voice of my supplications.’ O Lord, my Lord, my strong deliverer, you have covered my head in the day of battle. Do not grant, O Lord, the desires of the wicked; do not further their evil plot. Those who surround me lift up their heads; let the mischief of their lips overwhelm them! Let burning coals fall on them! Let them be flung into pits, no more to rise! Do not let the slanderer be established in the land; let evil speedily hunt down the violent! I know that the Lord maintains the cause of the needy, and executes justice for the poor. Surely the righteous shall give thanks to your name; the upright shall live in your presence. ****
+**
+**Deliver me, O Lord, from evildoers; protect me from those who are violent, who plan evil things in their minds and stir up wars continually. They make their tongue sharp as a snake’s, and under their lips is the venom of vipers. Guard me, O Lord, from the hands of the wicked; protect me from the violent who have planned my downfall. The arrogant have hidden a trap for me, and with cords they have spread a net, along the road they have set snares for me. I say to the Lord, ‘You are my God; give ear, O Lord, to the voice of my supplications.’ O Lord, my Lord, my strong deliverer, you have covered my head in the day of battle. Do not grant, O Lord, the desires of the wicked; do not further their evil plot. Those who surround me lift up their heads; let the mischief of their lips overwhelm them! Let burning coals fall on them! Let them be flung into pits, no more to rise! Do not let the slanderer be established in the land; let evil speedily hunt down the violent! I know that the Lord maintains the cause of the needy, and executes justice for the poor. Surely the righteous shall give thanks to your name; the upright shall live in your presence. ****
 
 Psalm 90
 
@@ -503,11 +516,13 @@ Verse:
 
 For your majesty is raised high above the heavens.
 
-The Reading is from the Prophecy of Isaias. \[**52:13-53:12\]**
+The Reading is from the Prophecy of Isaias.
+\[**52:13-53:12\]**
 
 Thus says the Lord: See, my servant will understand; he shall be exalted and glorified exceedingly. Just as there many will be astonished at you, so your appearance will be without glory from men, and your glory from the sons of men. So many nations will marvel at him; kings shall shut their mouths; for that which had not been told them about him they shall see, and that which they had not heard they shall contemplate. Who has believed what we have heard? And to whom has the arm of the Lord been revealed? We brought a report as of a child before him, as a root out of dry ground; he had no form or glory, and we saw him, and he had neither form nor beauty. But his form was without honour and inferior to the children of men. He was a man in suffering and acquainted with bearing weakness, because his face has been away, he was dishonoured and not esteemed. He bears our sins and is in pain for us. We reckoned him to be in toil and in affliction and trouble. But he was wounded for our sins and crushed for our iniquities; upon him was the punishment of our peace, and by his bruises we are healed. All we like sheep have gone astray; Every one has gone astray in their own way, and the Lord handed him over for our sins. And he, because of his affliction, does not open his mouth; like a sheep he was led to the slaughter, and like a lamb before its shearer is silent, so he does not open his mouth. In his humiliation his judgement was taken away; who shall declare his generation? for his life is taken away from the earth; because of the iniquities of my people he was led to death. And I will give the evil for his burial and the rich for his death, because he practised no iniquity, nor was there guile in his mouth. And the Lord wishes to cleanse him of his blow. If you give an offering for sin, your soul will seed a long-lived descendence. And the Lord wishes to take away from the toil of his soul, to show him light and to fashion him with understanding, to justify the just one, who serves many well, and he will bear their sins. Therefore he will inherit many and divide the spoils of the strong. Because his soul was handed over to death, and was numbered with the transgressors; and he bore the sin of many, and was handed over because of their iniquities. Rejoice, barren one who do not give birth, break out and cry, you who are not in labour, for the children of the desolate are more than those of her that has a husband.
 
-The Reading is from the Epistle of Paul to the Hebrews. \[**2:11-18\]**
+The Reading is from the Epistle of Paul to the Hebrews.
+\[**2:11-18\]**
 
 Brethren, the one who sanctifies and those who are sanctified are all from One. For this reason he is not ashamed to call them brethren saying, ‘I will proclaim your name to my brethren, in the midst of the church I will praise you.’ And again, ‘I will put my trust in him.’ And again, ‘Here am I and the children whom God has given me.’ Since, therefore, the children share flesh and blood, he himself likewise shared the same things, so that through death he might destroy the one who has the power of death, that is, the devil, and free those who all their lives were held in slavery by the fear of death. For it is clear he did not take upon himself the nature angels, but he took on that of the descendants of Abraham. Therefore he had to become like his brethren in every respect, so that he might be a merciful and faithful high priest in the things of God, to make atonement for the sins of the people. For because he himself was tested by what he suffered, he is able to help those who are being tested.
 
@@ -609,7 +624,9 @@ It is truly right to call you blessed, who gave birth to God, ever-blessed and m
 
 NINTH HOUR
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -677,7 +694,9 @@ Glory. Both now.
 
 To-day he is hung upon a tree, he who hung the earth upon the waters (
 
-**x3**). He is arrayed in a crown of thorns, he who is the King of the Angels. He is wrapped in mocking purple, he who wraps the heaven in clouds. He receives a blow on the face, he who freed Adam in Jordan. He is transfixed with nails, the Bridegroom of the Church. He is pierced by a lance, the Son of the Virgin. We worship your Sufferings, O Christ (**x3**). Show us also your glorious Resurrection.
+**x3**).
+He is arrayed in a crown of thorns, he who is the King of the Angels. He is wrapped in mocking purple, he who wraps the heaven in clouds. He receives a blow on the face, he who freed Adam in Jordan. He is transfixed with nails, the Bridegroom of the Church. He is pierced by a lance, the Son of the Virgin. We worship your Sufferings, O Christ (**x3**).
+Show us also your glorious Resurrection.
 
 Prokeimenon in the 6th Tone. \[
 
@@ -691,13 +710,15 @@ Verse:
 
 There is none who does good; no, not one.
 
-The Reading is from the Prophecy of Jeremias. \[
+The Reading is from the Prophecy of Jeremias.
+\[
 
 **11:18-12:5a.9b-11a.14-15**\]
 
 Lord, make me know, and I shall know; then I saw their practices. But I, like an innocent lamb led to be sacrificed, did not know; against me they devised an evil thought, saying: Come, and let us cast wood into his bread and let us wipe him out of the land of the living, and let his name be remembered no more. Lord, you judge justly, you try reins and hearts, may I see vengeance upon them from you, because I have revealed to you my justification. Therefore thus says the Lord to the men of Anathoth who seek for my life and who say: Do not prophesy in the name of the Lord, otherwise you will die at our hands. See, I shall visit them; their youths will die by the sword, their sons and daughters will perish by hunger, and there will not be a remnant of them; because I shall bring evils upon the inhabitants of Anathoth, in the year of their visitation. \[*12:1*\] You are just, Lord, so I shall make my defence to you, moreover I shall speak of judgements to you: why does the way of the ungodly go well? Those who set breaches of faith at nothing have prospered, you planted them and they have taken root; they begot children and produced fruit; you are near to their mouth and far from their reins. And you, Lord, know me, you have tried my heart before you; purify them for the day of their slaughter. How long will the land grieve and the grass of the field be dried from the wickedness of its inhabitants? Animals and birds have vanished, because they &lt;the inhabitants&gt; said: God will not see our ways. Your feet run and make you faint. Assemble all the beasts of the field and let them come and eat it. Many shepherds have destroyed my vineyard, they have defiled my portion, they have made my desired portion a trackless desert, it has been made into utter destruction. Because thus says the Lord of all the evil neighbours who touch my inheritance, which I have apportioned to my people Israel: See, I shall drag them from their land and I shall cast Juda out of their midst. And it shall be that after I have cast them out, I shall turn back and have mercy on them, and I shall make them dwell, each in his inheritance and each in his land.
 
-The Reading is from the Epistle of Paul to the Hebrews. \[
+The Reading is from the Epistle of Paul to the Hebrews.
+\[
 
 **10:19-31**\]
 
@@ -793,7 +814,8 @@ Master, Lord Jesus Christ, our God, who have long endured our transgressions, an
 
 TYPIKA
 
-In your kingdom remember us, O Lord, when you come in your kingdom. Blessed are the poor in spirit, for theirs is the kingdom of heaven.
+In your kingdom remember us, O Lord, when you come in your kingdom.
+Blessed are the poor in spirit, for theirs is the kingdom of heaven.
 
 Blessed are those who mourn, for they shall be comforted.
 
@@ -875,7 +897,9 @@ Reader:
 
 It is truly right to call you blessed, who gave birth to God, ever-blessed and most pure, and the Mother of our God. Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word, truly the Mother of God we magnify you. In the name of the Lord bless, Father.
 
-Blessed be the name of Lord, from this time forth and for evermore. Blessed be the name of Lord, from this time forth and for evermore. Blessed be the name of Lord, from this time forth and for evermore.
+Blessed be the name of Lord, from this time forth and for evermore.
+Blessed be the name of Lord, from this time forth and for evermore.
+Blessed be the name of Lord, from this time forth and for evermore.
 
 Glory. Both now.
 
@@ -899,6 +923,7 @@ Through the prayers of our holy fathers, Lord Jesus Christ, our God, have mercy 
 
 **People: Amen.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -110,7 +110,8 @@ AT MATINS
 
 ****
 
-After the 1st reading from the Psalter, Kathisma. Tone 1. Τοῦ λίθου σφραγισθέντος.
+After the 1st reading from the Psalter, Kathisma.
+Tone 1. Τοῦ λίθου σφραγισθέντος.
 
 We worship the tree of your Cross, O Lover of mankind, because you, the life of all, were nailed upon it. You opened Paradise, O Saviour, to the Thief when he came to you with faith, and he was granted its delight when he confessed to you: Remember me, O Lord. Receive us too like him, as we cry: We have all sinned; in your compassion do not despise us.
 
@@ -118,7 +119,8 @@ Glory. Both now.
 
 **The same.**
 
-After the 2nd reading from the Psalter, Kathisma. Tone 1. Τὸν τάφον σου Σωτήρ.
+After the 2nd reading from the Psalter, Kathisma.
+Tone 1. Τὸν τάφον σου Σωτήρ.
 
 When you stretched out your hands on the Cross, O Merciful, the nations that had gone far from you, you gathered together to glorify you goodness; but look upon your inheritance and cast down those who war against us by your precious Cross.
 
@@ -130,7 +132,8 @@ And the Canons of the Feast and of the Saint, of which the acrostic \[including 
 
 The champion named victory \[*nike*\] I praise.
 
-**By Theophanes.**
+**
+By Theophanes.**
 
 Ode 1. Tone 4. Θαλάσσης τὸ ἐρυθραῖον.
 
@@ -254,7 +257,9 @@ On the 15th of the same month, Contest of the holy Great Martyr Nikitas.
 
 Verses.
 
-You burn, Nikitas, and bear off the victory \[*nike*\], Or rather Fire-bearer is Victory-bearer. And on the fifteenth day, Nikitas was cast in the furnace.
+You burn, Nikitas, and bear off the victory \[*nike*\],
+Or rather Fire-bearer is Victory-bearer.
+And on the fifteenth day, Nikitas was cast in the furnace.
 
 He was born in the reign of Constantine the Great and brought up in the country of the barbarians called Goths, beyond the Danube. But he did not join with the barbarians, but was of the devout just as was outstanding by race and property. He was arrested by the ruler of the nation Athenariches because of his faith in Christ, savagely tortured and he died by fire.
 
@@ -264,7 +269,8 @@ On the same day, commemoration of our venerable Father Philotheos, Presbyter and
 
 Verses.
 
-Philotheos, who lived as God’s \[*theou*\] good friend, \[*philos*\] Has found unending life with God’s good friends.
+Philotheos, who lived as God’s \[*theou*\] good friend, \[*philos*\]
+Has found unending life with God’s good friends.
 
 He was from a village called Myrmix, of the district of Opsikios, and had a name which corresponded to his father’s. For he was called Theophilis. Having married and become the father of children, he was found worthy of the priesthood. From then on he fasted and was devoted to prayer and became the author of mighty wonders. He provided bread for the destitute poor, he changed a stream of water into wine, he moved a huge stone and a year after his death, as he was being moved to a another place, he stretched out his hands, as though alive, and having grasped the shoulders of the two priests who wished to move him, he arose and having walked three paces, he was put down in the place where he lies. He also causes a wondrous and unending spring of sweet myrrh to gush out, so providing a marvellous proof of his way of life.
 
@@ -274,7 +280,8 @@ On the same day commemoration of St Porphyrios the Actor.
 
 Verses.
 
-Urged to mock Baptism, you mocked at error, You cleanse yourself, Porphyrios, and are slain.
+Urged to mock Baptism, you mocked at error,
+You cleanse yourself, Porphyrios, and are slain.
 
 He was ordered by Julian, during the celebration of his birthday, to insult and mock at Christians rites, and as he was about to plunge into water and be baptised he shouted: Porphyrios is baptised in the name of the Father and of the Son and of the Holy Spirit. He came up out of the water and put on white garments, and having boldly confessed himself a Christian his head was cut off.
 
@@ -284,7 +291,8 @@ On the same day the Finding of the relics of Saint Akakios, Bishop of Melitini.
 
 Verses.
 
-The Finding of your relics as we honour, Release from ills \[*kakon*\] Akakios may we find.
+The Finding of your relics as we honour,
+Release from ills \[*kakon*\] Akakios may we find.
 
 On the same day the holy Martyr Maximos died by the sword.
 
@@ -292,7 +300,8 @@ On the same day the holy Martyr Maximos died by the sword.
 
 Verses.
 
-Seeing Christ stretching out to you a crown You stretch your head out Maximos to the sword.
+Seeing Christ stretching out to you a crown
+You stretch your head out Maximos to the sword.
 
 On the same day, two holy Maidens died by the sword.
 
@@ -300,7 +309,8 @@ On the same day, two holy Maidens died by the sword.
 
 Verses.
 
-Having but one intent and one desire, Two maidens bowed their necks before the sword.
+Having but one intent and one desire,
+Two maidens bowed their necks before the sword.
 
 On the same day, Finding of the relics of the holy Protomartyr Stephen.
 
@@ -308,7 +318,8 @@ On the same day, Finding of the relics of the holy Protomartyr Stephen.
 
 Verses.
 
-Saint Stephen’s finding all creation shares, He the first champion of the greatest God.
+Saint Stephen’s finding all creation shares,
+He the first champion of the greatest God.
 
 Our father among the saints Vessarion, archbishop of Larissa, died in peace.
 
@@ -390,7 +401,8 @@ The Cross is the guardian of the whole world; the Cross is the beauty of the Chu
 
 ****
 
-At the Aposticha, Prosomia. Tone 2. Οἶκος τοῦ Ἐφραθᾶ.
+At the Aposticha, Prosomia.
+Tone 2. Οἶκος τοῦ Ἐφραθᾶ.
 
 To-day the Cross of Christ, the life-bearing tree is exalted, on which to call all back he was nailed in the flesh.
 
@@ -422,6 +434,7 @@ Both now.
 
 To-day the tree of life on which Christ was nailed is lifted up from the hidden places of the earth, confirming the resurrection; and lifted up by priestly hands declares his raising to the heavens, by which our matter, raised from its fall to the earth, becomes a citizen of heaven. And so with thanksgiving let us cry aloud: Lord, who were lifted up upon it, and through it lifted us up with yourself, make those who sing your praise worthy of the joy of heaven!
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

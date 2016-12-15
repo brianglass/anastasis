@@ -23,7 +23,8 @@ The Apostles of God the Word watered the earth with streams, and the ear of grai
 
 Glory. Both now.
 
-**Theotokion. Awed by the beauty.**
+**Theotokion.
+Awed by the beauty.**
 
 As I called to mind the measureless wealth of your sympathy and the invincible might of your power, beset by trouble and in dread despair, I ran to your protection; crying with tears from the depths of my heart, I cry to you Virgin Mother of God, ‘Save me, save the unworthy!’
 
@@ -407,6 +408,7 @@ O Lady, honoured first of saints, praise of the heavenly Orders, hymn of the Apo
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -1,6 +1,8 @@
 \[ [Home](index.md) \] \[ [Up](jo-hym.md) \] \[ [Second Canon for the Assumption](asccan2.md) \] \[ [Prophet Elias](20julcan2.md) \] \[ [Paralysed Man](ParalCan.md) \] \[ [Samaritan Woman](SamarCan.md) \] \[ Blind Man \] \[ [Akathist](akathist.md) \] \[ [Holy Cross](1augcan1.md) \]
 
-**CANON FOR THE MAN BORN BLIND** BY **SAINT JOSEPH OF THESSALONIKI**
+**CANON FOR THE MAN BORN BLIND**
+BY
+**SAINT JOSEPH OF THESSALONIKI**
 
 INTRODUCTION
 
@@ -15,7 +17,8 @@ I have not included detailed references to holy Scripture, though there are many
 THE CANON
 =========
 
-**The Acrostic in the 9th Ode** J O S E P H
+**The Acrostic in the 9th Ode
+**J O S E P H
 
 ****
 
@@ -259,6 +262,7 @@ Theotokion.
 
 oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

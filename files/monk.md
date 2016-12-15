@@ -26,7 +26,8 @@ When she saw Christ, the lover of mankind, crucified and pierced in the side by 
 AT MATINS
 =========
 
-**The Canon. Ode 1. Tone 8. Irmos. Let us sing to the Lord.**
+**The Canon.
+Ode 1. Tone 8. Irmos. Let us sing to the Lord.**
 
 \[Let us sing to the Lord, who led his people in the Red Sea, for he alone has been greatly glorified.\]
 
@@ -246,6 +247,7 @@ We, who through you, O Virgin, have been saved, confess you to be most truly the
 
 At the Liturgy, for the Apostle and Gospel, see January 17th.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

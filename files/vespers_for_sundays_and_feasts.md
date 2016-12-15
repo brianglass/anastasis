@@ -38,7 +38,9 @@ Then the Superior, or the appointed person, reads the Opening Psalm, one of the 
 
 Amen.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King and our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
@@ -182,19 +184,23 @@ First Kathisma
 
 ****
 
-Psalm 1 Of David. Untitled in the Hebrew.
+Psalm 1
+Of David. Untitled in the Hebrew.
 
 Blessed is the man who has not walked in the council of the ungodly, nor stood in the way of sinners, nor sat on the seat of the pestilent. But his will is in the law of the Lord, and on his law he will meditate day and night. He will be like a tree that has been planted beside streams of water, which will give its fruit in its season, and its leaves will not fall; and whatever he does will prosper. Not so the ungodly, not so: but like the chaff that the wind blows away from the face of the earth. Therefore the ungodly will not rise in judgement, nor sinners in the council of the just. Because the Lord knows the way of the just, but the way of the ungodly will perish.
 
 ****
 
-Psalm 2 A Psalm of David.
+Psalm 2
+A Psalm of David.
 
 Why were the nations insolent and why did the peoples meditate vain things? The kings of the earth stood up and the rulers were assembled together against the Lord and against his Christ. ‘Let us break through their bonds and cast away their yoke from us.’ He that dwells in heaven will laugh them to scorn and the Lord will mock them. Then he will speak to them in his anger and panic them in his fury. But I was established as king by him, on Sion his holy mountain announcing the Lord’s decree: The Lord said to me, ‘You are my Son. Today I have begotten you. Ask me, and I shall give you nations as your inheritance, and the ends of the earth as your possession. You will shepherd them with an iron rod; like a potter’s vessels you will smash them.’ And now, kings, understand; be corrected, all who judge the earth. Serve the Lord in fear and rejoice in him with trembling. Accept correction, lest the Lord be angry, and you perish from the right way whenever his fury is suddenly kindled. Blessed are all who have put their trust in him.
 
 ****
 
-Psalm 3 A Psalm of David, when he fled from his son Absalom in the wilderness.
+Psalm 3
+A Psalm of David,
+when he fled from his son Absalom in the wilderness.
 
 Lord, why have those who afflict me been multiplied? Many rise up against me. Many say to my soul, ‘There is no salvation for him in his God.’ But you, Lord, are my protector, my glory, and the one who lifts up my head. I cried to the Lord with my voice and he heard me from his holy mountain. I lay down and slept; I have been roused, because the Lord will protect me. I shall not be afraid of tens of thousands of people who attack me from every side. Arise, Lord; save me, my God, because you have struck all who are vainly my foes, you have smashed the teeth of sinners. Salvation is the Lord’s, and your blessing is upon your people.
 
@@ -222,19 +228,22 @@ Both now and for ever, and to the ages of ages. Amen.
 
 ****
 
-Psalm 4 To the end. In hymns. A Psalm of David.
+Psalm 4
+To the end. In hymns. A Psalm of David.
 
 When I called you heard me, God of my justice, when I was in trouble you set me at large; have pity on me and hear my prayer. Children of men, how long will you be heavy-hearted? Why do you love vanity and seek falsehood? Know too that the Lord has made his Holy One wonderful. The Lord will hear me when I cry to him. Be angry, and do not sin; for what you say in your hearts, feel compunction on your beds. Sacrifice a sacrifice of righteousness and hope in the Lord. Many say: Who will show us good things? The light of your countenance has been signed upon us, O Lord. You have given joy to my heart; from the fruit of their wheat, wine and oil they have been filled. I shall lie down in peace and sleep at once; because you alone, Lord, have made me dwell in hope.
 
 ****
 
-Psalm 5 To the end: for her that inherits: a Psalm of David.
+Psalm 5
+To the end: for her that inherits: a Psalm of David.
 
 Give ear to my words, O Lord, understand my cry. Attend to the voice of my supplication, my King and my God; for to you I shall pray, O Lord. In the morning you will hear my voice, in the morning I shall stand before you and you will watch over me, because you are not a God who wills iniquity. One who does evil will not dwell with you, nor will the lawless remain before your eyes. You have hated all who work iniquity; you will destroy all who speak falsehood. The Lord abhors a man of bloodshed and deceit. But I in the multitude of your mercy will enter your house, I will bow down towards your holy temple in fear of you. Lord, guide me in your justice because of my foes, make my way straight before you. Because truth is not in their mouth; their heart is vain. Their throat is a opened tomb, they have deceived with their tongues: judge them, O God. Let them fall through their counsels, cast them out in accordance with the multitude of their impious deeds, because they have provoked you, O Lord. And let all who hope on you be glad in you; they will rejoice forever, and you will dwell in them, and all those who love your name will boast in you, because you will bless the just. O Lord, as with a shield of good pleasure you have crowned us.
 
 ****
 
-Psalm 6 To the end. In hymns, for the eighth. A Psalm of David.
+Psalm 6
+To the end. In hymns, for the eighth. A Psalm of David.
 
 O Lord, do not rebuke me in your anger, nor chastise me in your wrath. Have mercy on me, Lord, for I am weak; heal me for my bones have been troubled and my soul exceedingly troubled; but you, Lord, how long? Turn back, O Lord, deliver my soul; save me for your mercy’s sake. For in death no one remembers you, and in Hell who will confess you? I have toiled in my groaning, every night I shall wash my bed and drench my couch with my tears. My eye has been troubled through anger, I have grown old among all my foes. Depart from me all you evil doers, for the Lord has heard the voice of my weeping. The Lord has heard my supplication, the Lord has accepted my prayer. Let all my enemies be ashamed and greatly troubled, let them be turned back and speedily be utterly ashamed.
 
@@ -262,17 +271,21 @@ Both now and for ever, and to the ages of ages. Amen.
 
 ****
 
-Psalm 7 A Psalm of David, which he sang to the Lord about the words of Chusi the son of Jemeni.
+Psalm 7
+A Psalm of David, which he sang to the Lord about the words of Chusi the son of Jemeni.
 
 O Lord my God I have hoped in you; save me from all those who persecute me and deliver me. Lest he ever seize me soul like a lion, when there is none to deliver me or save me. O Lord my God, if I have done this, if there is injustice in my hands; if I have repaid with evils those who repaid me, let me fall empty before my foes. Let the foe pursue my soul and seize it, trample down my life and make my glory dwell down there in the dust. Arise, Lord, in your anger, be exalted in the furthest boundaries of your foes. Rise up, O Lord my God, by the decree which you commanded, and an assembly of peoples will surround you, and for this return on high. The Lord will judge peoples. Judge me, Lord, according to my justice and according to the innocence that is in me. Let the evil of sinners be brought to an end and you will keep the just straight, O God the searcher of hearts and reins. Just my help from God, who saves the upright of heart. God is a judge, just and strong and patient, not producing anger every day. If you do not return he will burnish his sword, he has drawn and prepared his bow. And on it he has prepared the instruments of death, he has made ready his arrows for those who are burning. Behold he has been in labour with injustice, he has conceived toil and given birth to iniquity. He has dug a pit and scooped it out, and he will fall into the hole which he has made. His toil will return upon his own head and his injustice will come down upon his crown. I will give thanks to the Lord in accordance with his justice and I will sing to the name of the Lord Most High.
 
 ****
 
-Psalm 8 To the end; for the wine vats; a Psalm of David.
+Psalm 8
+To the end; for the wine vats; a Psalm of David.
 
 O Lord, our Lord, how wonderful is your name in all the earth! For your majesty is raised up above the heavens. From the mouth of babes and sucklings you have perfected praise, because of your enemies, to destroy the enemy and the avenger. For I will look at the heavens the works of your fingers, the moon and the stars which you fixed. What is man that you remember him? Or a son of man that you visit him? You have made him a little less than the Angels; you have crowned him with glory and honour, and set him over the works of your hands. You have subjected all things under his feet, sheep and all cattle and even all the beasts of the field the birds of the air and the fish of the sea, all that pass through the paths of the sea. O Lord, our Lord, how wonderful is your name in all the earth!
 
-Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God*.*
+Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God*.*
 
 **(x3)**
 
@@ -416,7 +429,8 @@ For 8 Verses
 
 \[**Always at a full Vigil**\]**.**
 
-Psalm 129 8.
+Psalm 129
+8.
 
 **Out of the depths** I have cried to you, O Lord. Lord hear my voice. **7.** Let your ears be attentive, to the voice of my supplication. ****
 
@@ -476,7 +490,9 @@ Wisdom. Stand upright.
 
 And they enter the sanctuary through the Holy Doors, the one with the censer censing the holy Table.
 
-And we sing Thanksgiving at the Lighting of the Lamps An ancient poem, or, as some say, by the martyr Athenogenes.
+And we sing
+Thanksgiving at the Lighting of the Lamps
+An ancient poem, or, as some say, by the martyr Athenogenes.
 
 O joyful Light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life. Therefore the world glorifies you.
 
@@ -512,7 +528,8 @@ The Lord is King: \* he has clothed himself with glory.
 
 ****
 
-On Sunday evening. Tone 8.
+On Sunday evening.
+Tone 8.
 
 Come, bless the Lord: all you servants of the Lord.
 
@@ -526,7 +543,8 @@ Come, bless the Lord: \* all you servants of the Lord.
 
 ****
 
-On Monday evening. Tone 4.
+On Monday evening.
+Tone 4.
 
 When I call to the Lord: \* he will hear me.
 
@@ -536,7 +554,8 @@ Verse:
 
 Answer me when I call, O God of my justice. ****
 
-On Tuesday evening. Tone 1.
+On Tuesday evening.
+Tone 1.
 
 Your mercy, Lord, will follow me: \* all the days of my life.
 
@@ -546,7 +565,8 @@ Verse:
 
 The Lord is my shepherd, therefore can I lack nothing. ****
 
-On Wednesday evening. Tone 5.
+On Wednesday evening.
+Tone 5.
 
 Save me, O God, by the power of your name: \* and vindicate me by your might.
 
@@ -556,7 +576,8 @@ Verse:
 
 Hear my prayer, O God, and listen to the words of my mouth. ****
 
-On Thursday evening Tone 6.
+On Thursday evening
+Tone 6.
 
 My help comes from the Lord: \* who made both heaven and earth.
 
@@ -566,7 +587,8 @@ Verse:
 
 I have lifted up my eyes to the hills, from which my help will come. ****
 
-On Friday evening. Tone 7.
+On Friday evening.
+Tone 7.
 
 O God you are my helper: \* your mercy will go before me.
 
@@ -630,7 +652,12 @@ Amen. ****
 
 After the Litany say this prayer, one of the Gerontika.
 
-Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen. Let your mercy, Lord be upon us, as we have hoped in you. Blessed are you, Lord: teach me your statutes. Blessed are you, Master: make me understand your statutes. Blessed are you, Holy One: enlighten me with your statutes. Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
+Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen.
+Let your mercy, Lord be upon us, as we have hoped in you.
+Blessed are you, Lord: teach me your statutes.
+Blessed are you, Master: make me understand your statutes.
+Blessed are you, Holy One: enlighten me with your statutes.
+Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -732,7 +759,9 @@ Verse 3.
 
 Holiness befits your house, O Lord, to length of days. ****
 
-On the completion of the Aposticha, we say the Song of Symeon who Received God (Luke 2,29), one of the Gerontika
+On the completion of the Aposticha, we say the
+Song of Symeon who Received God (Luke 2,29),
+one of the Gerontika
 
 Now, Master, you let your servant depart in peace, according to your word; For my eyes have seen your salvation, which you have prepared before the face of all peoples, a light to bring revelation to the nations, and the glory of your people Israel.
 
@@ -1262,6 +1291,7 @@ Troparion.
 
 Any hymn may be called a Troparion, but the word more commonly indicates the *Apolytikion* of the day or one of the stanzas of a Canon. Plural *Troparia.*
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

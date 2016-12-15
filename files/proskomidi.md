@@ -2,8 +2,10 @@
 
 **PROSKOMIDI**
 
-SERVICE OF PREPARATION FOR THE DIVINE LITURGY
----------------------------------------------
+SERVICE OF PREPARATION
+FOR
+THE DIVINE LITURGY
+----------------------
 
 Because the text of this file with all its footnotes and the diagram of the arrangement of the portions on the Diskos is somewhat complex, I have decided to publish it as in PDF format, for which Adobe Acrobat Reader is needed. This can be downloaded free from Adobe:
 
@@ -14,6 +16,7 @@ Click on the hyperlink below to read the PDF file
 [Proskomidi](Proskom02+notes+diag.pdf)
 --------------------------------------
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

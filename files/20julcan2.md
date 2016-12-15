@@ -2,9 +2,11 @@
 
  
 
-**Second Canon, whose acrostic is:** Give to me God’s grace, blessed Elias. Joseph.
+**Second Canon, whose acrostic is:**
+Give to me God’s grace, blessed Elias. Joseph.
 
-**Ode 1. Tone 8. The wonder-working staff.**
+**Ode 1. Tone 8.
+The wonder-working staff.**
 
 As to the widow’s son, give life to my soul, which has become a corpse, and make it bright with godly virtues, blessed Saint, guide it towards life and make it a partaker of everlasting delight, longing to take delight in you.
 
@@ -108,6 +110,7 @@ As you are loving, do not despise the voices of your servants, all-blameless Lad
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

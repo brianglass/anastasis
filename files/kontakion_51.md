@@ -10,6 +10,7 @@ This Kontakion is called *On Adam and Eve* by the French editor, but *On Fasting
 
 <span style="mso-bidi-font-size: 10.0pt">The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.</span>
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

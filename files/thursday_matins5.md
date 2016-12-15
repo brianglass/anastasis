@@ -400,6 +400,7 @@ Glory. Both now.
 
 You who were chosen beforehand, hearken to our voice, and grant our souls our requests; deliver us from passions and pains through the Apostles; as Mother of God you can do all things.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

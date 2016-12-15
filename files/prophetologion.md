@@ -1,6 +1,10 @@
 \[ [Home](index.md) \] \[ [Up](lectionary.md) \] \[ [Apostle](apostle1.md) \] \[ [Gospel](gospel.md) \] \[ Prophetologion \]
 
-[Readings September to November](readings_september_to_november.md) [Readings December](readings_december.md) [Readings for January](readings_for_january.md) [Readings February to April](Readings%20February%20to%20April.md) [Readings May to August](readings_may_to_august.md)
+[Readings September to November](readings_september_to_november.md)
+[Readings December](readings_december.md)
+[Readings for January](readings_for_january.md)
+[Readings February to April](Readings%20February%20to%20April.md)
+[Readings May to August](readings_may_to_august.md)
 
 **PROPHETOLOGION**
 
@@ -29,10 +33,11 @@ The majority of the readings are those for Vespers, but I have also included tho
 
 A certain number of footnotes have been included. These are mostly concerned with problems of readings and translation, but some are of more general interest and could be expanded in a final draft. Where appropriate inclusive language is used, but it is perhaps worth remarking that the words *anthropos* and *aner*, though they normally denote ‘human being’ and ‘male person’ respectively, are not univocal. *Anthropos* may refer to a male person and *aner* to a human being.
 
-The readings for Vespers in [Lent](http://www.anastasis.org.uk/readLent.htm) and [Holy Week](http://www.anastasis.org.uk/holyweek.htm) and the period of the *Pentecostarion* can be found elsewhere on these pages
+The readings for Vespers in [Lent](/readLent.md) and [Holy Week](/holyweek.md) and the period of the *Pentecostarion* can be found elsewhere on these pages
 
 Comments on this first draft will be welcomed by the translator.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

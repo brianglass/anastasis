@@ -4,7 +4,8 @@ AT MATINS
 
 ****
 
-After the 1st Psalter Reading, Resurrection Kathismata. Tone 5. The Word without beginning.
+After the 1st Psalter Reading, Resurrection Kathismata.
+Tone 5. The Word without beginning.
 
 Let us celebrate the Cross of the Lord, let us honour in hymns his holy Burial and highly glorify his Resurrection; for with himself he raised the dead from the graves, as God having despoiled the might of death and the devil’s strength, and he made light dawn for those in Hell.
 
@@ -529,6 +530,7 @@ AT THE LITURGY
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

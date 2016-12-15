@@ -7,7 +7,16 @@ THE STAR OF BETHLEHEM
 
 Every year around Christmas reports appear in the papers or on television which claim to give an astronomical explanation of the Star of Bethlehem. They are all nonsense. St **John Chrysostom** in his homily on the story explains clearly why the Star could not have been a natural phenomenon, but that it was an angelic appearance, like the Pillar of Cloud in the Old Testament. The true source for the Star is in the Old Testament, in **Numbers 24:17**, where the Seer Balaam, who came from a town on the banks of the Euphrates, utters his great prophecy, ‘I will point to him, but not now; I bless him, but he does not come near. **A Star shall dawn from Jacob, a Man shall arise out of Israel**’. This is what we read in the Greek Septuagint, which is the Orthodox text. The Hebrew has, ‘a sceptre shall arise out of Israel’. St **Justin**, in his Dialogue with Trypho 106, cites the verse, though instead of ‘man’ he has the word ‘ruler’, which is the word used in Matthew 2:6 in the citation of Micheas. **Origen** links the Magi with the prophecy of Balaam, adding that the prophecy of Balaam had no doubt been preserved in the east. **Eusebios** does the same. St **Gregory of Nyssa** also links the Magi with the prophecy of Balaam. The real Star of Bethlehem is Christ himself, as St **Amphilochios** explains in a Christmas sermon. Saint **Romanos** takes this up in his Kontakion for the Nativity, Ikos 5 (the Magi are speaking):
 
-<span style="font-family:&quot;Book Antiqua&quot;">For Balaam laid before us precisely The meaning of the words he spoke in prophecy, When he said that a star would dawn, A star that quenches all prophecies and auguries; A star which resolves the parables of the wise, And their sayings and their riddles, A star far more brilliant than the star Which has appeared, for he is the Maker of all the stars, Of whom it was written of old, From Jacob there dawns</span>**<span style="font-family:&quot;Book Antiqua&quot;"> A little Child, God before the ages.</span>**
+<span style="font-family:&quot;Book Antiqua&quot;">For Balaam laid before us precisely
+The meaning of the words he spoke in prophecy,
+When he said that a star would dawn,
+A star that quenches all prophecies and auguries;
+A star which resolves the parables of the wise,
+And their sayings and their riddles,
+A star far more brilliant than the star
+Which has appeared, for he is the Maker of all the stars,
+Of whom it was written of old, From Jacob there dawns</span>**<span style="font-family:&quot;Book Antiqua&quot;">
+A little Child, God before the ages.</span>**
 
 *St John Chrysostom’s words are:*
 
@@ -17,6 +26,7 @@ Do you see then, by what a large number of proofs this star is shown not to be o
 
 Homily 6 on Matthew \[PG 57:64}
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

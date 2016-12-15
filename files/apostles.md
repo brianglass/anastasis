@@ -28,7 +28,8 @@ O all-immaculate Ewe-lamb, you bore the unblemished Lamb, who came to heal the s
 AT MATINS
 =========
 
-**The Canon, of which the acrostic is:** I honour the wise Apostles of Christ.
+**The Canon, of which the acrostic is:
+**I honour the wise Apostles of Christ.
 
 ****
 
@@ -256,6 +257,7 @@ A cornerstone not cut by hand, O Virgin, was cut from you an unhewn mountain: Ch
 
 At the Liturgy look, if you wish, on the 18th of October.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

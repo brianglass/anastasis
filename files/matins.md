@@ -4,7 +4,8 @@ THE THIRD SUNDAY IN LENT
 
 ****
 
-THE ADORATION OF THE PRECIOUS AND LIFE-GIVING CROSS
+THE ADORATION OF THE PRECIOUS
+AND LIFE-GIVING CROSS
 
 AT MATINS
 
@@ -196,13 +197,29 @@ Jonas in the belly of the whale foreshadowed by his outstretched hands the figur
 
 Kontakion. Tone 7. \[By St Romanos\]
 
-The sword of flame no longer guards the gate of Eden, For a strange bond came upon it: the wood of the Cross. The sting of Death and the victory of Hell were nailed to it. But you appeared, my Saviour, crying to those in Hell: ‘Be brought back Again to Paradise’**.**
+The sword of flame no longer guards the gate of Eden,
+For a strange bond came upon it: the wood of the Cross.
+The sting of Death and the victory of Hell were nailed to it.
+But you appeared, my Saviour, crying to those in Hell:
+‘Be brought back
+Again to Paradise’**.**
 
 ****
 
 Ikos.
 
-Three crosses Pilate fixed on Golgotha, Two for the thieves and one for the Giver of life, Whom Hades saw and said to those below, ‘My ministers and powers, Who has fixed a nail in my heart? A wooden lance has suddenly pierced me and I am being torn apart. My insides are in pain, my belly in agony. My senses make my spirit tremble, And I am compelled to disgorge Adam and Adam’s race, given me by a tree, A tree is bringing them back Again to Paradise’.
+Three crosses Pilate fixed on Golgotha,
+Two for the thieves and one for the Giver of life,
+Whom Hades saw and said to those below,
+‘My ministers and powers,
+Who has fixed a nail in my heart?
+A wooden lance has suddenly pierced me and I am being torn apart.
+My insides are in pain, my belly in agony.
+My senses make my spirit tremble,
+And I am compelled to disgorge
+Adam and Adam’s race, given me by a tree,
+A tree is bringing them back
+Again to Paradise’.
 
 ****
 
@@ -214,7 +231,8 @@ On the same day, the 3rd Sunday of the Fast, we celebrate the adoration of the p
 
 Verses
 
-Let all the earth bow down before the Cross, Through which it learned to worship you, O Word.
+Let all the earth bow down before the Cross,
+Through which it learned to worship you, O Word.
 
 By its power, Christ God, guard us from the assaults of the evil one and make us worthy to worship your divine Sufferings and life-bringing Resurrection, when we have passed successfully through the stadium of forty days, and have mercy on us as you alone are good and love mankind.
 
@@ -356,6 +374,7 @@ The Lord of all has taught us in a parable to shun the boastful thoughts of the 
 
 The usual Theotokion.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

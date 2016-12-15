@@ -18,6 +18,7 @@ I ordered you in a previous instruction not to go off on your own and live by yo
 
 Such was the blessed Dometianos, whom we have praised and whose memorial is with the Saints. How great the business he achieved, how great the life he accomplished by few toils and struggles, inheriting eternal glory, a man of no worth in human terms, but since he chose virtue and loved God, God exalted him, in accordance with what is written, *Because I will glorify those who glorify me, and the one who despises me will be dishonoured* \[1 Kingd. 2:30.\]. It is right to rejoice and be glad in such brothers; but it is of no use unless we also make our own contribution. If we contribute as best we can, we too will have a portion with the Saints in Christ Jesus our Lord, to whom be the glory and the might with the Father and the holy Spirit now and for ever, and to the ages of ages. Amen.   
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -258,7 +258,8 @@ God displayed the Tent of witness, and Moses set it up on earth, and Solomon ded
 
 ****
 
-Kathisma of the Cross. Tone 4. You have appeared today.
+Kathisma of the Cross. Tone 4.
+You have appeared today.
 
 Your Cross, O Lord, shining like light dispels the forces of darkness; and makes bright the faithful who sing: The Cross is the boast of the world.
 
@@ -430,7 +431,8 @@ The Lord of glory was alone incarnate from your maiden blood, as he purposed to 
 
 ****
 
-Kontakion of the Dedication. Tone 4. You have appeared today.
+Kontakion of the Dedication. Tone 4.
+You have appeared today.
 
 The Church has been declared a heaven filled with light, which guides all the faithful to the light; standing in it we cry: Establish this house, O Lord.
 
@@ -450,7 +452,9 @@ On the 13th of the same month, Commemoration of the Dedication of the holy \[Chu
 
 Verses
 
-New Israel fulfilling ancient law, Honours your tomb, O Word, with dedication. Sanctified on the thirteenth was the Temple of Christ’s Resurrection.
+New Israel fulfilling ancient law,
+Honours your tomb, O Word, with dedication.
+Sanctified on the thirteenth was the Temple of Christ’s Resurrection.
 
 On the same day, Commemoration of the holy Centurion Cornelius.
 
@@ -458,7 +462,8 @@ On the same day, Commemoration of the holy Centurion Cornelius.
 
 Verses
 
-Cornelius you lead from unbelief, O Christ, The firstfruits of the faithful of the nations.
+Cornelius you lead from unbelief, O Christ,
+The firstfruits of the faithful of the nations.
 
 On the same day, Commemoration of the Holy Martyrs Chronidis, Leontius, Serapion, Strato, Selefkos, Macrobius, Gordian, Zotikos, Eli, Lucianus and Valerian.
 
@@ -658,7 +663,8 @@ With gladness we cry ‘Hail’ to you, O Virgin; hail Adam’s redemption and E
 
 ****
 
-At Lauds we insert 6 Verses and we sing the following Prosomia. Tone 4.
+At Lauds we insert 6 Verses
+and we sing the following Prosomia. Tone 4.
 
 Today the divine, sacred, honoured and light-bearing house of the resurrection of Christ is shiningly dedicated; and the divine tomb distributes life to the world and furnishes an immortal fount; it gushes forth streams of grace; bursts forth rivers of wonders; grants healings to those who hymn it with faith.
 
@@ -700,6 +706,7 @@ Christ, our God, you accepted your voluntary crucifixion for the general resurre
 
 Great Doxology, and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

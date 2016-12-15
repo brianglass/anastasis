@@ -9,7 +9,8 @@ Acrostic in the 9th Ode:
 
 Joseph ****
 
-Composition of Joseph of Thessaloniki. Ode 1. The Irmos. Tone 3.
+Composition of Joseph of Thessaloniki.
+Ode 1. The Irmos. Tone 3.
 
 O God, you are glorious in your wonders; you do marvels; you turned the deep into dry land, covered chariots and saved a people who sing to you, as God our redeemer.
 
@@ -245,6 +246,7 @@ Both now.
 
 e came from your light-bearing womb, Christ the great Sun, and enlightened the world with his bright rays, O Immaculate, and removed the darkness of the transgression; therefore we sing your praise as cause of all good, O bride of God.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -52,7 +52,8 @@ Glory. Both now.
 
 ****
 
-After the 3rd Reading from the Psalter, Kathismata. The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.
+After the 3rd Reading from the Psalter, Kathismata.
+The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.
 
 Willingly nailed to the Cross, O Compassionate, you made our corrupted nature divine, and put to death the dragon that destroys humankind. But buttress the world by orthodoxy and put down the uprisings of heresy by your precious Cross.
 
@@ -68,7 +69,8 @@ The glorious Champions have surrounded you, O Lord, as the boast of struggle and
 
 Glory. Both now.
 
-**Cross-Theotokion.** **The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.**
+**Cross-Theotokion.**
+**The soldiers watching. Ôὸí ôάöïí óïõ Óùôήñ.**
 
 The spotless Ewe-lamb, seeing the Lamb and Shepherd on the Cross like a lamb that was slain, tore at her eyes and cried out in grief: Oh, the daring of the bloodthirsty Hebrews! Oh, your divine long-suffering, my Son! For you have suffered willingly.
 
@@ -450,6 +452,7 @@ All-praised Martyrs.
 
 Sweetest child, you have been lifted up on the Cross like an innocent lamb, willingly slaughtered, cried the spotless Ewe-lamb with lamentation when she saw the Lord on the Tree. I burn and am wounded in heart, but I hymn your measureless mercy.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

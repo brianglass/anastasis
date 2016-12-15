@@ -22,13 +22,15 @@ The Virgin lays you in a manger of dumb beasts, O Word of God without beginning,
 
 Both now.
 
-**Forefeast. Tone 6. By Vyzas.**
+**Forefeast.
+Tone 6. By Vyzas.**
 
 Virgin without bridegroom, whence have you come? Who begot you? And who is your mother? How do you bear the Creator in your arms? How was your womb not corrupted? We see great marvels come to pass on earth, O All-holy, and we make ready in advance that which fits your need, the Cave from the earth; and we ask heaven to provide the Star; and Magi are advancing from the eastern regions of the earth towards the West, to look on the salvation of mortals being suckled as a babe.
 
 ****
 
-At the Aposticha, Prosomia of the Forefeast. Tone 2.
+At the Aposticha, Prosomia of the Forefeast.
+Tone 2.
 
 Christ is coming to crush the evil one, to enlighten those in darkness and release the prisoners; let us go forth to meet him.
 
@@ -116,7 +118,8 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter, Kathisma. Tone 4.
+After the 1st Reading from the Psalter, Kathisma.
+Tone 4.
 
 Inspired by God let creation to-day be glad; for Christ the Lord, the Son of our God, is born of a pure Maiden, so making the whole human race immortal and abolishing the curse of the foremother Eve; and so as to our benefactor let bring a song.
 
@@ -124,7 +127,8 @@ Glory. Both now.
 
 **The same.**
 
-After the 2nd Reading, Kathisma. Tone 3. Today the Virgin.
+After the 2nd Reading, Kathisma.
+Tone 3. Today the Virgin.
 
 Joseph the just, as he hymned the Virgin who bore the pre-eternal Word, cried out: I see you, who have become the Temple of the Lord, bearing the One who has come to save all mortals, and who shows those who praise him to be temples through pity of the divine.
 
@@ -164,11 +168,13 @@ The Irmos.
 
 ****
 
-Kathisma of the Saint. Tone 8. The Wisdom and Word.
+Kathisma of the Saint.
+Tone 8. The Wisdom and Word.
 
 Glory. Both now.
 
-**Of the Forefeast. Tone 4. Taking knowledge.**
+**Of the Forefeast.
+Tone 4. Taking knowledge.**
 
 As we celebrate the Forefeast of Christ’s Nativity, we faithful keep festival and all go forth to meet him as is fitting, like the Magi bearing virtues as gifts and singing the Angels’ new song to the One who is being brought to birth in Bethlehem from a Maiden, child of God, without seed. He is our God, whom all creation glorifies.
 
@@ -210,7 +216,8 @@ The Irmos.
 
 ****
 
-Kontakion of the Saint. Tone 2. Seeking things on high.
+Kontakion of the Saint. Tone 2.
+Seeking things on high.
 
 Those in trials and tribulations hasten to your temple and receive the revered gifts of the divine grace which dwells in you, Anastasia; for you ever pour out healings for the world.
 
@@ -230,7 +237,9 @@ Pharmakolytria\]. ****
 
 Verses*.*
 
-Anastasia is for those with faith A cure \[pharmakon\] ‘gainst every drug \[pharmakon\], and she is burned. Second and twentieth day, the Great Martyr is burned by fierce fire.
+Anastasia is for those with faith
+A cure \[pharmakon\] ‘gainst every drug \[pharmakon\], and she is burned.
+Second and twentieth day, the Great Martyr is burned by fierce fire.
 
 On the same day, Commemoration of the holy Martyr Chrysogonos.
 
@@ -238,7 +247,8 @@ On the same day, Commemoration of the holy Martyr Chrysogonos.
 
 Verses.
 
-To sword now Chrysogonos gives his neck, In spirit golden \[*chrysous*\], but in strength of bronze.
+To sword now Chrysogonos gives his neck,
+In spirit golden \[*chrysous*\], but in strength of bronze.
 
 On the same day, Commemoration of the holy Martyr Theodoti and her children.
 
@@ -246,7 +256,8 @@ On the same day, Commemoration of the holy Martyr Theodoti and her children.
 
 Verses.
 
-Fire Theodoti with her loved ones bears, Burning with fiercer love for God than fire.
+Fire Theodoti with her loved ones bears,
+Burning with fiercer love for God than fire.
 
 On the same day, Commemoration of the holy Martyr Zoïlos.
 
@@ -254,7 +265,8 @@ On the same day, Commemoration of the holy Martyr Zoïlos.
 
 Verses.
 
-Zoïlos, leaving passing life \[zoê\] behind, In land of living found enduring life.
+Zoïlos, leaving passing life \[zoê\] behind,
+In land of living found enduring life.
 
 On the same day the Opening of the doors of the Great Church of God.
 
@@ -262,7 +274,9 @@ On the same day the Opening of the doors of the Great Church of God.
 
 Verses.
 
-Now holy men lift up the gates of Christ, For us an image of the Psalmist’s Minds.
+*
+*Now holy men lift up the gates of Christ,
+For us an image of the Psalmist’s Minds.
 
 On the same day the Light race of the Church of God.
 
@@ -270,7 +284,8 @@ On the same day the Light race of the Church of God.
 
 Verses.
 
-Lights that today race round the Temple’s walls Show to the world the course of light divine.
+Lights that today race round the Temple’s walls
+Show to the world the course of light divine.
 
 At the prayers of your Saints, O God, have mercy and save us. Amen.
 
@@ -352,7 +367,8 @@ David, leap for joy, for Christ comes from your loins! Jesse, be glad, for your 
 
 ****
 
-Aposticha. Prosomia. Tone 2. House of Ephratha.
+Aposticha. Prosomia.
+Tone 2. House of Ephratha.
 
 The Star shines out already in the Cave; you Shepherds with Angels, you Magi with gifts, get ready to arrive.
 
@@ -374,7 +390,8 @@ Bethlehem, rejoice! The One who shepherds Israel, the Saviour, is upon you. Jude
 
 Glory.
 
-**Of the Saint. Tone 5. By Vyzas.**
+**Of the Saint.
+Tone 5. By Vyzas.**
 
 Today a day of the forefeast of the incarnation of Christ God has shone out with the feast of the all-praised Martyr Anastasia. See, the Virgin is approaching Bethlehem to lay, wrapped in swaddling clothes, in a manger of irrational beasts, the Babe who has freed us from the ancient curse and saves our souls.
 
@@ -388,6 +405,7 @@ Both. now.
 
 The rest of the Office of Matins as usual and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

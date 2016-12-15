@@ -82,7 +82,8 @@ Ephrem I honour, the spiritual Euphrates.
 
 ****
 
-By Theophanes Ode 1. Tone 6. As Israel marched on foot.
+By Theophanes
+Ode 1. Tone 6. As Israel marched on foot.
 
 The gladdening shower of your prayers water my soul parched by the drought of the passions, All blessed Father, and with your words breathe upon me who praise your festival.
 
@@ -214,7 +215,9 @@ On the 28th of the same month, Commemoration of our Venerable Father Ephrem the 
 
 Verses.
 
-Ephrem, the Syrian by tongue, once heard in psalms a tongue he knew not calling him on high. And on the twenty eighth day Ephrem’s spirit was taken by Angels.
+Ephrem, the Syrian by tongue, once heard in psalms
+a tongue he knew not calling him on high.
+And on the twenty eighth day Ephrem’s spirit was taken by Angels.
 
 On the same day, Commemoration of our Venerable Father Palladios.
 
@@ -222,7 +225,8 @@ On the same day, Commemoration of our Venerable Father Palladios.
 
 Verses.
 
-Being stronger than the leapings of the flesh, Through this Palladios now leaps in heaven.
+Being stronger than the leapings of the flesh,
+Through this Palladios now leaps in heaven.
 
 On the same day, Commemoration of our Venerable Father James the Ascetic.
 
@@ -230,7 +234,8 @@ On the same day, Commemoration of our Venerable Father James the Ascetic.
 
 Verses.
 
-As from a snare James left the flesh behind For by the flesh’s snares he was not caught.
+As from a snare James left the flesh behind
+For by the flesh’s snares he was not caught.
 
 On the same day two Martyrs, mother and daughter, died by the sword.
 
@@ -238,7 +243,8 @@ On the same day two Martyrs, mother and daughter, died by the sword.
 
 Verses.
 
-A mother bowed her head with her own child And with her daughter died upon one sword.
+A mother bowed her head with her own child
+And with her daughter died upon one sword.
 
 On the same day the holy Charis died by amputation of her legs.
 
@@ -246,7 +252,8 @@ On the same day the holy Charis died by amputation of her legs.
 
 Verses.
 
-Charis, her legs cut off, now runs to God, For her soul’s legs were in no way cut off.
+Charis, her legs cut off, now runs to God,
+For her soul’s legs were in no way cut off.
 
 On the same day, Commemoration of our Venerable Father, Isaac the Syrian.
 
@@ -346,6 +353,7 @@ When you saw the Maker of the universe enduring many affronts and hanged on Cros
 
 The rest of the Office of matins as usual and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

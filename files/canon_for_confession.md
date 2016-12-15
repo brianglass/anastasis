@@ -166,7 +166,9 @@ color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">Then: </span>
 font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold">It is truly right to called you blessed, who gave birth to God, ever blessed and most pure and Mother of our God. Greater in honour than the Cherubim and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word; truly the Mother of God we magnify you. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">And at once the Gospel according to Mark</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+color:red;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">And at once the Gospel according to Mark</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+mso-bidi-font-weight:bold">
+</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;mso-bidi-font-weight:bold;mso-bidi-font-style:italic">\[<span style="color:red">11:22-26</span>\]</span>
 
 <span style="font-size:14.0pt;
@@ -205,6 +207,7 @@ font-family:&quot;Book Antiqua&quot;;mso-fareast-font-family:&quot;Times New Rom
 mso-bidi-font-family:&quot;Times New Roman&quot;;mso-ansi-language:EN-GB;mso-fareast-language:
 EN-US;mso-bidi-language:AR-SA;mso-bidi-font-weight:bold">.</span> 
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

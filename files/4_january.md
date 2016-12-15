@@ -281,15 +281,20 @@ Irmos.
 <span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">On the 4th day of the same month, Assembly of the holy and glorious Seventy Apostles. </span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses </span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:
-&quot;Book Antiqua&quot;"> The Seventy Apostles fair renowned To praise them thus together is most fit. And on the fourth of the month far famed are the men that I honour.<a href="#_ftn1" id="_ftnref1">[1]</a> </span>
+mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses
+</span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:
+&quot;Book Antiqua&quot;"> The Seventy Apostles fair renowned
+To praise them thus together is most fit.
+And on the fourth of the month far famed are the men that I honour.<a href="#_ftn1" id="_ftnref1">[1]</a> </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">On the same day, our Venerable Father Theoctistos, Superior of the monastery in Koukoumos in Sicily, died in peace.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;letter-spacing:-.15pt;layout-grid-mode:line;mso-bidi-font-weight:
-bold">God’s \[<span style="color:blue">theou</span>\] uncreated \[<span style="color:blue">aktistos</span>\] Word, to Theoctist </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:
+bold">God’s \[<span style="color:blue">theou</span>\] uncreated \[<span style="color:blue">aktistos</span>\] Word, to Theoctist
+</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:
 &quot;Book Antiqua&quot;">In Eden’s</span><span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.15pt;layout-grid-mode:line;
 mso-bidi-font-weight:bold"> verdant land his lot you give. </span>
@@ -299,9 +304,11 @@ letter-spacing:-.15pt;layout-grid-mode:line;mso-bidi-font-weight:bold">On the sa
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;letter-spacing:
--.15pt;layout-grid-mode:line;mso-bidi-font-weight:bold">Verses </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+-.15pt;layout-grid-mode:line;mso-bidi-font-weight:bold">Verses
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;letter-spacing:-.15pt;layout-grid-mode:line;mso-bidi-font-weight:
-bold">Six radiant souls, from this life taking wing, Now stand together with the Six-winged Minds. </span>
+bold">Six radiant souls, from this life taking wing,
+Now stand together with the Six-winged Minds. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.15pt;
@@ -309,9 +316,11 @@ mso-ansi-language:EN-GB;mso-bidi-font-weight:bold">On the same day, Commemoratio
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;letter-spacing:-.15pt;mso-ansi-language:EN-GB;mso-bidi-font-weight:
-bold">Verses </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+bold">Verses
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;letter-spacing:-.15pt;mso-ansi-language:EN-GB;mso-bidi-font-weight:
-bold">With Zosimas died Athanasios Within a rock with him can sweetly live. </span>
+bold">With Zosimas died Athanasios
+Within a rock with him can sweetly live. </span>
 
 On the same day, Commemoration of the Venerable Apollinaria of Senatorial rank.
 
@@ -319,7 +328,9 @@ On the same day, Commemoration of the Venerable Apollinaria of Senatorial rank.
 color:red;letter-spacing:-.15pt;mso-ansi-language:EN-GB;mso-bidi-font-weight:
 bold">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;letter-spacing:-.15pt;mso-ansi-language:EN-GB;
-mso-bidi-font-weight:bold"> They take Apollinaria from earth, For worthy was she found to dwell in heaven. </span>
+mso-bidi-font-weight:bold">
+They take Apollinaria from earth,
+For worthy was she found to dwell in heaven. </span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Times Roman; mso-fareast-font-family: Times New Roman; mso-bidi-font-family: Times New Roman; mso-ansi-language: EN-US; mso-fareast-language: EN-US; mso-bidi-language: AR-SA; layout-grid-mode: line; mso-bidi-font-weight: bold" lang="EN-US">At their holy intercessions, O God, have mercy and save us.</span> ****
 
@@ -431,6 +442,7 @@ The rest of the office of Matins, as usual, and Dismissal.
 
 <span style="font-family: Book Antiqua"><a href="#_ftnref1" id="_ftn1">1]</a><span lang="EN-US" style="font-family:&quot;Book Antiqua&quot;"> In Greek this hexameter call scarcely be said to scan.</span></span>
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

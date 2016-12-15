@@ -32,6 +32,7 @@ The adjective, sodomitikos, is not attested in the lexica. Here it is linked wit
 
 Another unattested word. 
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

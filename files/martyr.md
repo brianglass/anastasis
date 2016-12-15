@@ -28,7 +28,9 @@ When the Ewe-lamb, your Mother, saw you nailed to the Cross, Lord, she was struc
 AT MATINS
 =========
 
-**Canon, of which the Acrostic is:** Accept my eighth ode, O All-blessed. Joseph. **By Joseph.**
+**Canon, of which the Acrostic is:
+**Accept my eighth ode, O All-blessed. Joseph.
+**By Joseph.**
 
 ****
 
@@ -254,6 +256,7 @@ Every ear trembled at the ineffable condescension of God: how the Most High will
 
 At the Liturgy, see the Apostle Gospel and Communion for the 26th of October.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

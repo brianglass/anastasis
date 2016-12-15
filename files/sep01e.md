@@ -28,7 +28,8 @@ Christ God, who once on Mount Sinai wrote the tables of the law, now too, accord
 
 ****
 
-Stichera of the Saint. Tone 5. Model Melody. Venerable Father.
+Stichera of the Saint.
+Tone 5. Model Melody. Venerable Father.
 
 Venerable Father, you found a fair ladder, by which you went up on high, the ladder which Elias found as a chariot of fire. He though did not leave his mount to others, but you keep your pillar even after death. Man of heaven, angel of earth, unsleeping beacon of the inhabited world, Venerable Symeon, intercede that our souls may be saved.
 
@@ -78,7 +79,8 @@ Entrance,
 
 O joyful light, **Prokeimenon of the Day and the Readings.**
 
-The reading is from the prophecy of Isaias. \[
+The reading is from the prophecy of Isaias.
+\[
 
 **Chap. 61,1-10**\] ****
 
@@ -86,7 +88,8 @@ T
 
 he Spirit of the Lord is upon me, because he has anointed me. He has sent me to preach good tidings to the poor, to heal the broken-hearted, to proclaim forgiveness to prisoners and sight to the blind; to declare an acceptable year of the Lord, and a day of recompense for our God; to comfort all who mourn, that there may be given to those who mourn Sion, glory instead of ashes; an anointing of joy for those who mourn, clothing of glory instead of a spirit of despondency; and they will be called a generation of righteousness, a plant of the Lord for glory. And they will rebuild everlasting deserts, those formerly quite deserted; they will raise up and renew deserted cities, deserted from generation to generation. And strangers will come shepherding your flocks, and foreigners will be your ploughmen and your vinedressers. But you will be called Priests of the Lord, ministers of our God. You will be told, ‘Devour the strength of nations’, and in their wealth you will be marvelled at; instead of your double shame and instead of humiliation their portion will rejoice. Therefore they will inherit their land a second time, and everlasting joy shall be upon their head. For I am the Lord, who love righteousness and hate robberies from injustice; and I shall give their calf to the righteous, and I shall make an everlasting covenant with them. And their seed will be known among the nations, and their offspring in the midst of the peoples. And the one who sees them will recognise them, because they are a seed blessed to the ages by God, and with joy they will rejoice in the Lord.
 
-The Reading is from Leviticus. \[
+The Reading is from Leviticus.
+\[
 
 **26:3-12, 14-17, 19-20, 22, 33, 23-24**\] ****
 
@@ -94,7 +97,8 @@ T
 
 he Lord spoke to the children of Israel saying: If you walk in my ordinances and keep my commandments and do them, I will give you rain in its season and the earth will give its produce and the trees of the plains their fruit. And your threshing time will overtake the vintage, and the vintage will overtake the sowing. And you will eat your bread to the full and dwell in safety on your land. And no one shall make you afraid; and I will destroy the evil wild beasts from your lands, and war shall not pass through your land. And enemies will fall before you. And five of you will pursue a hundred and a hundred of you will pursue tens of thousands. And I will look upon you and bless you and make you increase and multiply and I will establish my covenant with you. And you will eat what is old and very old, and bring out the old to make way for the new. And I will set my tabernacle among you and my soul shall not abhor you; and I will walk among you; and I will be your God and you shall be my people. But if you will not listen to me, nor observe these ordinances of mine, but disobey them, and if your soul loathes my judgements, so that you do not keep all my commandments, I in turn will do thus to you: I will bring distress upon you, and you will sow your seed in vain and your enemies will devour your labours. And I will set my face against you and you will fall before your foes and they will pursue you and you will flee though no one pursues you; and I will smash the arrogance of your pride. And I will make the heaven like iron for you and your earth like solid bronze. And your strength will be in vain and your land will not give its fruit, and the trees of the field will not give their fruit. And I will send the wild beasts of the earth against you, and they will consume your cattle, and the sword will come against you and make you few in number. And your land will be desert and your farms will be desert; because you have walked against me crookedly, and I will walk against you with crooked rage, says the Lord God, the Holy One of Israel.
 
-The reading is from the Wisdom of Solomon. \[
+The reading is from the Wisdom of Solomon.
+\[
 
 **Chap. 4,7-15**\] ****
 
@@ -178,6 +182,7 @@ Hail full of grace, Virgin Mother of God, harbour and protection of the human ra
 
 And Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -10,6 +10,7 @@ The Iambic Canon for Pentecost is one of the most difficult of the canons and ra
 
 The page is printed in Adobe PDF format, for which Acrobat Reader is necessary. Acrobat Reader can be freely downloaded by clicking on the link below:
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

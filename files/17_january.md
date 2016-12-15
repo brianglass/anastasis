@@ -45,7 +45,8 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-weight:bold">W</span><span style="font-s
 mso-bidi-font-size:10.0pt;color:red">Entrance,</span><span style="font-size:
 14.0pt;mso-bidi-font-size:10.0pt"> ‘O Joyful Light’. <span style="color:red">Prokeimenon of the day and the Readings. \[See the [Prophetologion](readings_for_january.md) for January\] </span></span>
 
-**At the Liti, Idiomel Stichera. Tone 2. By the Studite.**
+**At the Liti, Idiomel Stichera.
+Tone 2. By the Studite.**
 
 Constructing an ascetic gymnastic school on earth, Venerable Antony, you blunted all the assaults of the passions with the stream of your tears. Your godly way of life was acknowledged for all as a ladder leading up to heaven; for by it you displayed the fruits of true religion, and through them you the diseases of the passions of those who cry to with faith, ‘Hail, radiant golden star of the East, torchbearer and shepherd of Monastics! Hail, fairest offspring of the desert, and unshakeable bulwark of the Church! Hail, great guide of those who gone astray! Hail, our boast, and bright glory of the inhabited world!
 
@@ -69,7 +70,8 @@ Both now. <span style="color:red">Theotokion. Same Tone.</span>
 
 Virgin Mother of God, we the faithful call you blessed and glorify you as is fitting, the unshakeable city, the unbreachable wall, the indestructible protection and refuge of our souls.
 
-<span style="mso-bidi-font-style:italic">**At the Aposticha Prosomia Stichera. Tone 5. Hail, of ascetics.** </span>
+<span style="mso-bidi-font-style:italic">**At the Aposticha Prosomia Stichera.
+Tone 5. Hail, of ascetics.** </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Hail, prince of ascetics and their undefeated champion, for cutting out the roots of the passions and withstanding the assaults of the demons, you triumphed over their enfeeblements and their soul-destroying error. You displayed the unconquerable power of the Saviour’s Cross. Clothed in it you conquered all those who reject Christ’s divine manifestation through flesh. Implore him to grant our souls his great mercy. </span>
 
@@ -118,6 +120,7 @@ The zealous Elias you imitated by your life,<a href="#_ftn7" id="_ftnref7">[7]</
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

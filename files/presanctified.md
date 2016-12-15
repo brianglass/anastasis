@@ -140,7 +140,8 @@ To you, O Lord. ****
 
 The Priest in a low voice says the
 
-**2nd Prayer at the Lighting of the Lamps**
+**
+2nd Prayer at the Lighting of the Lamps**
 
 Lord, do not rebuke us in your anger, nor chastise us in your wrath, but deal with us in accordance with your kindness, physician and healer of our souls. Guide us to the harbour of your will. Enlighten the eyes of our hearts to the knowledge of your truth and grant that the rest of the present day and the whole time of our life may be peaceful and without sin, at the prayers of the holy Mother of God and of all the Saints.
 
@@ -182,7 +183,8 @@ To you, O Lord. ****
 
 The Priest in a low voice says the
 
-**3rd Prayer at the Lighting of the Lamps**
+**
+3rd Prayer at the Lighting of the Lamps**
 
 Lord our God, remember us, sinners and your unprofitable servants, as we call upon your holy Name, and do not put us to shame from the expectation of your mercy, but graciously grant us, Lord, all the requests that are for salvation, and count us worthy to love and to fear you from our whole heart, and in all things to do your will.
 
@@ -224,7 +226,8 @@ To you, O Lord. ****
 
 The Priest in a low voice says the
 
-**4th Prayer at the Lighting of the Lamps**
+**
+4th Prayer at the Lighting of the Lamps**
 
 O Lord, who are praised by the holy Powers with never silent hymns and unceasing songs of glory, fill our mouth with your praise to give majesty to your holy Name, and give us a part and an inheritance with all who fear you in truth and who keep your commandments, at the prayers of the holy Mother of God and of all your Saints.
 
@@ -282,7 +285,9 @@ Wisdom. Stand upright.
 
 Then we sing
 
-**Thanksgiving at the Lighting of the Lamps** **An ancient poem, or, as some say, by the martyr Athenogenes.**
+**
+Thanksgiving at the Lighting of the Lamps
+An ancient poem, or, as some say, by the martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life. Therefore the world glorifies you.
 
@@ -726,7 +731,8 @@ Wisdom. ****
 
 Priest, in a low voice:
 
-**First Prayer of the Faithful, after the unfolding of the Antimension**
+**First Prayer of the Faithful,
+after the unfolding of the Antimension**
 
 O God, who are great and to be praised, who have brought us from corruption to incorruption by the life-giving death of your Christ, free all our senses from the death of the passions, setting over them as a good leader the thought that comes from within. Let the eye abstain from every evil sight, the hearing give no entrance to idle words, the tongue be cleansed of unfitting speech. Purify our lips, Lord, that praise you. Make our hands keep from base actions, to perform only such things as are well-pleasing to you, making all our limbs and our mind secure by your grace.
 
@@ -1270,6 +1276,7 @@ People:
 
 Amen.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

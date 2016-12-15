@@ -98,7 +98,8 @@ The 8th Resurrection Gospel, then Having seen the Resurrection of Christ, Psalm 
 
 The Canons, of Easter with that of the Mother of God to 8, and of the Blind Man to 6.
 
-Easter Canon. Tone 1. Ode 1. Irmos.
+Easter Canon. Tone 1. Ode 1.
+Irmos.
 
 The day of Resurrection, let us be radiant, O peoples: Pascha, the Lord’s Pascha; for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song.
 
@@ -112,7 +113,8 @@ Let the heavens as is fitting rejoice, and let the earth be glad, let the whole 
 
 ****
 
-Canon of the Mother of God. Tone 1. The Acrostic in the first Troparia:
+Canon of the Mother of God. Tone 1.
+The Acrostic in the first Troparia:
 
 THEOPHAN.
 
@@ -126,7 +128,8 @@ Having seen your Son and God risen from the dead, you rejoice with the Apostles,
 
 Canon of the Blind Man. Tone 5. With an Acrostic in the 9th Ode:
 
-JOSEPH **Composition of Joseph of Thessaloniki.** ****
+JOSEPH
+**Composition of Joseph of Thessaloniki.** ****
 
 Ode 1. Tone 5. The Irmos.
 
@@ -430,7 +433,8 @@ The same day, the sixth Sunday from Pascha, we celebrate the wonder done to the 
 
 Verses.
 
-Giver of light, Lyght out of Lyght, one blind From birth, O Word, you furnish now with eyes.
+Giver of light, Lyght out of Lyght, one blind
+From birth, O Word, you furnish now with eyes.
 
 In your boundless mercy, giver of light, Christ our God, have mercy and save us. Amen.
 
@@ -682,7 +686,8 @@ Both now. You are most blessed.
 
 \[
 
-**Easter Verses. Verse:** Let God arise and let his enemies be scattered: and let those that hate him flee before his face.
+**Easter Verses.
+Verse:** Let God arise and let his enemies be scattered: and let those that hate him flee before his face.
 
 A sacred Pascha has been shown forth to us to-day, a new and holy Pascha, a mystic Pascha, an all-venerable Pascha, a Pascha that is Christ the Redeemer, a spotless Pascha, a Pascha of the faithful, a Pascha that has opened to us the gates of Paradise, a Pascha that hallows all the faithful.
 
@@ -728,6 +733,7 @@ Before the 1st Hour, the Eothinon. Tone 8.
 
 Mary’s hot tears did not flow in vain, for she was granted Angels to teach her and the sight of you, O Jesu. But, as a weak woman, she still had earthly thoughts, and therefore she was debarred from touching you, O Christ; but still she was sent as a herald to your Disciples, to whom she spoke the good tidings, announcing your ascent to your Father’s realm. With her make us also worthy of your appearing, O Master and Lord.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

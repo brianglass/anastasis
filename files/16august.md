@@ -222,7 +222,9 @@ On the 16th of the same month, commemoration of the holy Martyr Diomedes.
 
 Verses
 
-He strove in life and death, Diomedes; In life by choice, in death his head cut off. On the sixteenth of the month Diomedes was slain by a sword stroke.
+He strove in life and death, Diomedes;
+In life by choice, in death his head cut off.
+On the sixteenth of the month Diomedes was slain by a sword stroke.
 
 On the same day the venerable Chairemon died in peace.
 
@@ -230,7 +232,8 @@ On the same day the venerable Chairemon died in peace.
 
 Verses
 
-O blest Chairemon, at life’s end rejoice \[chaire\]; For then you saw the start of toils’ reward.
+O blest Chairemon, at life’s end rejoice \[chaire\];
+For then you saw the start of toils’ reward.
 
 On the same day, commemoration of the thirty three holy Martyrs from Palestine, who died by the sword.
 
@@ -238,7 +241,8 @@ On the same day, commemoration of the thirty three holy Martyrs from Palestine, 
 
 Verses
 
-Stalwart the force and great the battle line Which falling by the sword crushed demon ranks.
+Stalwart the force and great the battle line
+Which falling by the sword crushed demon ranks.
 
 On the same day memorial of the entry of the Image Not Made By Hand of our Lord and God and Saviour Jesus Christ, brought from the city of the Edessenes to this god-protected Queen of cities.
 
@@ -246,11 +250,13 @@ On the same day memorial of the entry of the Image Not Made By Hand of our Lord 
 
 Verses
 
-Alive you wiped your face upon a cloth, A final burial cloth you wore when dead. ****
+Alive you wiped your face upon a cloth,
+A final burial cloth you wore when dead. ****
 
 For the Tile
 
-Maker of all, my Christ, a tile once made By hand now bears your form not made by hand.
+Maker of all, my Christ, a tile once made
+By hand now bears your form not made by hand.
 
 When our Lord and great God and Saviour Jesus Christ was, in his goodness, working many wonders, as it is recorded in the sacred Gospels, and when his reputation was spreading everywhere, Agbar the Ruler of Edessa heard of them and wanted to see Jesus Christ with his own eyes, but was unable to do so because he was suffering from incurable diseases. For a black leprosy had burst out over all his body and had consumed him, for this reason he was unapproachable and unseen for all his subjects.
 
@@ -280,7 +286,8 @@ On the same day the drawing of the holy water in the church of Life-receiving Sp
 
 Verses
 
-A Spring of wonder-working waters emptied out, But then, filled up, works wonders yet again.
+A Spring of wonder-working waters emptied out,
+But then, filled up, works wonders yet again.
 
 On the same day the commemoration takes place of the dread threat in those times of the earthquake, from which, beyond hope, our God who loves mankind delivered us.
 
@@ -288,7 +295,8 @@ To him be glory and might to the ages. Amen.
 
 ****
 
-Of the Holy Icon. Ode 7. The Youths in Babylon.
+Of the Holy Icon. Ode 7.
+The Youths in Babylon.
 
 O Word of God, when you dwelt on earth you drove out every disease with a word; but returning to your Father’s throne you heal our diseases through your Imprint.
 
@@ -332,7 +340,8 @@ The Word of God, bearing a body, appeared to those on earth, double by nature fr
 
 ****
 
-Exapostilarion of the Saint. Women hear.
+Exapostilarion of the Saint.
+Women hear.
 
 Glorious great Martyr, divinely you empurpled the Church of Christ with the streams of your blood; while you quenched the soul-destroying deception of idols, all-blessed Diomedes; and now do not cease to intercede for us to the Lord.
 
@@ -372,6 +381,7 @@ It was fitting for the eye-witnesses and ministers of the Word to see the Fallin
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

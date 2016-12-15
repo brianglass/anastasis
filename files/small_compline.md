@@ -48,7 +48,9 @@ Lord, have mercy
 
 **(x12).** Glory to the Father and to the Son and to the Holy Spirit, both now and for ever and to the ages of ages. Amen.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -156,11 +158,13 @@ Then:
 
 Lord, have mercy **(x12)**. And save and help us, All-holy Virgin.
 
-Prayer to The Most Holy Mother of God *by Paul, monk of the Monastery of Evergetis.*
+Prayer to The Most Holy Mother of God
+*by Paul, monk of the Monastery of Evergetis.*
 
 Spotless, undefiled, incorrupt, immaculate, pure Virgin, Bride of God and Lady, who by your marvellous conceiving united God the Word with mankind and joined our rejected human nature to the heavenly realm; the only hope of the hopeless, help of the attacked, ready assistance of those who flee to you, and refuge of all Christians; do not turn in loathing from me, an accursed sinner, who have made myself utterly worthless through shameful thoughts and words and deeds, and through the sloth of the pleasures of life have become a slave to my own will. But as Mother of the God who loves mankind have compassion on me, a sinner and a prodigal, in your love for mankind, and accept the prayer I offer you from polluted lips. And using your Mother’s boldness, implore your Son, our Master and Lord, that He open to me also the compassionate heart of his goodness, and disregarding my countless offences turn me back to repentance, and make me a tried worker of his commandments. And, as you are full of mercy, compassion and loving-kindness, be ever near me: in this present life a fervent helper and protector, shielding me from the enemy’s assaults and guiding me to salvation, and at the moment of my departure watching over my wretched soul and driving far from her the dark forms of evil demons; but on the dread day of judgement, delivering me from eternal punishment and making me heir to the ineffable glory of your Son and our God. All this may I obtain, my Lady, most holy Mother of God, through your mediation and assistance; through the grace and love for mankind of your only-begotten Son, our Lord and God and Saviour, Jesus Christ. To whom are due all glory, honour and worship, with his Father who is without beginning and his all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
 
-Prayer to Our Lord Jesus Christ *by the monk Antiochos.*
+Prayer to Our Lord Jesus Christ
+*by the monk Antiochos.*
 
 And grant us, Master, as we go to our sleep, rest of body and soul; and guard us from the gloomy sleep of sin and from every dark pleasure of the night. Calm the assaults of the passions, quench the fiery arrows of the evil one that are cunningly aimed at us; put down the rebellions of our flesh and still our every earthly and material thought. And grant us, O God, a watchful mind, chaste thought, a wakeful heart, sleep that is light and free from every satanic fantasy. Rouse us at the time for prayer strengthened in your commandments, and holding firmly within us the memory of your judgements. Grant that we may sing your glory all night long, and so hymn, bless and glorify your all honoured and majestic name, of Father, Son and Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -216,7 +220,20 @@ Lord, have mercy. **After each petition.**
 
 For our Archbishop
 
-**N**, and all our brotherhood in Christ. \[For our Sovereign Lady, Queen Elisabeth.\] For our absent fathers and brethren. For those who hate us and for those who love us. For those who are merciful to us and serve us. For those who have asked us, unworthy though we are, to pray for them. For the release of prisoners. For those who sail upon the sea. For those who lie in sickness. Let us pray for an abundance of the fruits of the earth. And for every soul of Orthodox Christians. Let us bless devout Sovereigns. Orthodox High Priests. Our parents and teachers, and all our departed fathers and brethren, Orthodox believers, who here or in all the world lie asleep in the Lord. ****
+**N**, and all our brotherhood in Christ.
+\[For our Sovereign Lady, Queen Elisabeth.\]
+For our absent fathers and brethren.
+For those who hate us and for those who love us.
+For those who are merciful to us and serve us.
+For those who have asked us, unworthy though we are, to pray for them.
+For the release of prisoners.
+For those who sail upon the sea.
+For those who lie in sickness.
+Let us pray for an abundance of the fruits of the earth.
+And for every soul of Orthodox Christians.
+Let us bless devout Sovereigns.
+Orthodox High Priests.
+Our parents and teachers, and all our departed fathers and brethren, Orthodox believers, who here or in all the world lie asleep in the Lord. ****
 
 Reader (during the last petition):
 
@@ -236,6 +253,7 @@ Reader:
 
 Amen.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

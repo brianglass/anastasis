@@ -53,7 +53,9 @@ Lord, have mercy (
 
 **x12**). Glory. Both now.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -162,7 +164,8 @@ Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your ar
 
 And again.
 
-Do not forsake me, Lord; my God do not go far from me. Hasten to help me, Lord of my salvation.
+Do not forsake me, Lord; my God do not go far from me.
+Hasten to help me, Lord of my salvation.
 
 ****
 
@@ -172,7 +175,8 @@ O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh h
 
 And again.
 
-Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me.
+Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice.
+My soul clung to you; and your right hand upheld me.
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
@@ -190,7 +194,8 @@ Lord, God of my salvation, I have cried by day, and by night also before you. Le
 
 And again.
 
-Lord, God of my salvation, I have cried by day; and by night also before you. Let my prayer come into your presence, and turn your ear to my supplication.
+Lord, God of my salvation, I have cried by day; and by night also before you.
+Let my prayer come into your presence, and turn your ear to my supplication.
 
 ****
 
@@ -214,7 +219,8 @@ And again.
 
 In your justice hear me, O Lord, and do not enter into judgement with your servant. (
 
-**x2**) Your good Spirit will guide me in an upright land.
+**x2**)
+Your good Spirit will guide me in an upright land.
 
 Glory to the Father and to the Son and to the holy Spirit.
 
@@ -309,311 +315,537 @@ The Angel standing by the grave cried to the women bearing myrrh: Myrrh is fitti
 FIRST SECTION
 -------------
 
-**Tone 5** Blessed are you, O Lord, teach me your statutes.
+**Tone 5**
+Blessed are you, O Lord, teach me your statutes.
 
 Blessed are the blameless in the way, who walk in the law of the Lord.
 
-In the tomb they laid you, you, O Christ, who are Life; in amazement angel armies lift up their song as they glorify your self-abasement, Lord.
+In the tomb they laid you,
+you, O Christ, who are Life;
+in amazement angel armies lift up their song
+as they glorify your self-abasement, Lord.
 
 Blessed are those who search out his testimonies, they will seek for him with their whole heart.
 
-Life, how can you perish, or how dwell in a tomb? Yet the royal hall of Death you now bring to nought, and from Hades’ realm you raise the dead again.
+Life, how can you perish,
+or how dwell in a tomb?
+Yet the royal hall of Death you now bring to nought,
+and from Hades’ realm you raise the dead again.
 
 For the workers of iniquity have not walked in his ways.
 
-Now we magnify you, O Lord Jesu, our King, we pay honour to your Passion and burial for from foul corruption you saved us through them.
+Now we magnify you,
+O Lord Jesu, our King,
+we pay honour to your Passion and burial
+for from foul corruption you saved us through them.
 
 You have commanded that your commandments be strictly kept.
 
-King of all, O Jesu, who established earth’s bounds, on this day you make your home in a little tomb, raising up the dead of ages from their graves.
+King of all, O Jesu,
+who established earth’s bounds,
+on this day you make your home in a little tomb,
+raising up the dead of ages from their graves.
 
 Would that my ways might be directed to keep your statutes.
 
-O my Christ, my Jesus, king and monarch of all, seeking what have you descended to those in Hell? Was it not to liberate the mortal race?
+O my Christ, my Jesus,
+king and monarch of all,
+seeking what have you descended to those in Hell?
+Was it not to liberate the mortal race?
 
 Then I should not be ashamed when I look on all your commandments.
 
-He who governs all things here is seen as a corpse, new the grave in which his body is laid to rest, he the one who empties graves of all their dead.
+He who governs all things
+here is seen as a corpse,
+new the grave in which his body is laid to rest,
+he the one who empties graves of all their dead.
 
 I shall confess you in uprightness of heart, when I have learned the judgements of your justice.
 
-In the tomb they laid you, you, O Christ, who are Life; death itself you brought to nothing by your own death, and became the fount of life for all the world.
+In the tomb they laid you,
+you, O Christ, who are Life;
+death itself you brought to nothing by your own death,
+and became the fount of life for all the world.
 
 I shall keep your statutes, do not utterly forsake me.
 
-Guilty with the guilty you were judged, O my Christ, at the moment you wrought justice for all of us, from the ancient trickster’s foul and evil deeds.
+Guilty with the guilty
+you were judged, O my Christ,
+at the moment you wrought justice for all of us,
+from the ancient trickster’s foul and evil deeds.
 
 How will a young man correct his way? By keeping your words.
 
-Fairer he in beauty than are all mortal kind, now a corpse we see, unsightly, bereft of form, he who beautified the nature of all things.
+Fairer he in beauty
+than are all mortal kind,
+now a corpse we see, unsightly, bereft of form,
+he who beautified the nature of all things.
 
 I have sought you with my whole heart, do not drive me from your commandments.
 
-How could Hell endure it, When in splendour you came, and how not be swiftly shattered and plunged in dark, blinded by the blazing glory of your light?
+How could Hell endure it,
+When in splendour you came,
+and how not be swiftly shattered and plunged in dark,
+blinded by the blazing glory of your light?
 
 I have hidden your words in my heart, that I may not sin against you.
 
-Light that saves, O Jesu, you are sweetness to me, in the darkness of the grave how can you lie hid, O forbearance that no language can express!
+Light that saves, O Jesu,
+you are sweetness to me,
+in the darkness of the grave how can you lie hid,
+O forbearance that no language can express!
 
 Blessed are you, O Lord, teach me your statutes.
 
-Angels are bewildered, and the bodiless host at a loss, O Christ, before that great mystery your ineffable entombment, beyond speech.
+Angels are bewildered,
+and the bodiless host
+at a loss, O Christ, before that great mystery
+your ineffable entombment, beyond speech.
 
 With my lips I have declared all the judgements of your mouth.
 
-O most strange of wonders, What new deeds we now see! He who gave me my life’s breath, lies unbreathing now born to burial at noble Joseph’s hands.
+O most strange of wonders,
+What new deeds we now see!
+He who gave me my life’s breath, lies unbreathing now
+born to burial at noble Joseph’s hands.
 
 I have been delighted by the way of your testimonies, as by all wealth.
 
-Like the sun when setting, to the tomb you descend, yet, O Christ, your Father’s bosom you do not leave, What strange paradox, what wondrous thing this is.
+Like the sun when setting,
+to the tomb you descend,
+yet, O Christ, your Father’s bosom you do not leave,
+What strange paradox, what wondrous thing this is.
 
 I shall reflect on your commandments and consider your ways.
 
-As the sky’s true monarch, as true king of the earth, Though enclosed within the narrowest sepulchre you were known by all creation, Jesu, Lord.
+As the sky’s true monarch,
+as true king of the earth,
+Though enclosed within the narrowest sepulchre
+you were known by all creation, Jesu, Lord.
 
 I shall meditate on your statutes, I shall not forget your words.
 
-In the tomb they laid you, Christ the maker of all, then were Hell’s foundations shaken, they tremble now, as the graves of mortal kind are opened wide.
+In the tomb they laid you,
+Christ the maker of all,
+then were Hell’s foundations shaken, they tremble now,
+as the graves of mortal kind are opened wide.
 
 A recompense for your servant: make me live and I shall keep your ways.
 
-He who in the hollow of his hand holds the earth, in the flesh is put to death and lies in earth’s grasp, as he now redeems the dead from Hades’ grip.
+He who in the hollow
+of his hand holds the earth,
+in the flesh is put to death and lies in earth’s grasp,
+as he now redeems the dead from Hades’ grip.
 
 Unveil my eyes, and I shall consider the wonders of your law.
 
-You rose from corruption O my saviour, my life, having died and gone to dwell there among the dead, smashed and shattered Hades’ brazen bolts and bars.
+You rose from corruption
+O my saviour, my life,
+having died and gone to dwell there among the dead,
+smashed and shattered Hades’ brazen bolts and bars.
 
 I am a pilgrim on the earth; do not hide your commandments from me.
 
-Like a burning lampstand here the flesh of our God, as beneath a bushel measure, now lies concealed under earth and puts the gloom of Hell to flight.
+Like a burning lampstand
+here the flesh of our God,
+as beneath a bushel measure, now lies concealed
+under earth and puts the gloom of Hell to flight.
 
 My soul has longed to desire your judgements at all times.
 
-Nothing can contain you, yet the Heavenly hosts, with the noble Joseph and with Nicodemus now hasten to enclose you in a little grave.
+Nothing can contain you,
+yet the Heavenly hosts,
+with the noble Joseph and with Nicodemus now
+hasten to enclose you in a little grave.
 
 You have rebuked the proud; those who turn aside from your law are cursed.
 
-Willingly, my Jesus, slain and laid underground, fount of life, you gave me life when I lay in death, when by bitterest transgressions I was slain.
+Willingly, my Jesus,
+slain and laid underground,
+fount of life, you gave me life when I lay in death,
+when by bitterest transgressions I was slain.
 
 Take reproach and contempt from me, for I have sought your testimonies.
 
-By your Passion, Jesu, all creation was changed, all things suffered with you, Word, knowing you to be the Maintainer and Sustainer of the world.
+By your Passion, Jesu,
+all creation was changed,
+all things suffered with you, Word, knowing you to be
+the Maintainer and Sustainer of the world.
 
 For rulers sat and spoke against me, but your servant reflected on your statutes.
 
-Death who eats up all things swallowed you, Rock of Life, when you entered in his belly he vomited spewing forth the dead gulped down from every age.
+Death who eats up all things
+swallowed you, Rock of Life,
+when you entered in his belly he vomited
+spewing forth the dead gulped down from every age.
 
 For your testimonies are my meditation, and your statutes my counsels.
 
-There, O Christ, they laid you, in a newly made grave, and the nature of us mortals you then renewed, when from death you rose in majesty divine.
+There, O Christ, they laid you,
+in a newly made grave,
+and the nature of us mortals you then renewed,
+when from death you rose in majesty divine.
 
 My soul has been stuck to the ground; make me live according to your word.
 
-Down to earth, O Master, to save Adam you came, and not finding him on earth, you descended, Lord, to the depths of Hades, searching for him there.
+Down to earth, O Master,
+to save Adam you came,
+and not finding him on earth, you descended, Lord,
+to the depths of Hades, searching for him there.
 
 I declared my ways, and you heard me: teach me your statutes.
 
-All the earth was shaken and it trembled in fear, and the light-bearer, O Word, hid its rays away to see you, the greatest Light, hid in the earth.
+All the earth was shaken
+and it trembled in fear,
+and the light-bearer, O Word, hid its rays away
+to see you, the greatest Light, hid in the earth.
 
 Make me understand the way of your statutes, and I shall reflect on your wonders.
 
-Willingly as mortal, O my Saviour, you die, but as God you raised the dead back to life again, from their graves and the abysmal depths of sin.
+Willingly as mortal,
+O my Saviour, you die,
+but as God you raised the dead back to life again,
+from their graves and the abysmal depths of sin.
 
 My soul slumbered from listlessness, strengthen me by your words.
 
-Tears of lamentation she pours out over you, as your mother the pure Virgin, O Jesu, cries, How, my son, am I to lay you in the tomb?
+Tears of lamentation
+she pours out over you,
+as your mother the pure Virgin, O Jesu, cries,
+How, my son, am I to lay you in the tomb?
 
 Remove the way of injustice from me and by your law have mercy on me.
 
-Like a wheat grain buried in the bosom of Earth, you have yielded harvest in great abundance, Lord, raising up all Adam’s mortal progeny.
+Like a wheat grain buried
+in the bosom of Earth,
+you have yielded harvest in great abundance, Lord,
+raising up all Adam’s mortal progeny.
 
 I have chosen the way of truth, and have not forgotten your judgements.
 
-Now you have been hidden like the sun ‘neath the earth and been covered over, veiled by the night of death. Dawn again, O, Saviour, dawn more brightly yet.
+Now you have been hidden
+like the sun ‘neath the earth
+and been covered over, veiled by the night of death.
+Dawn again, O, Saviour, dawn more brightly yet.
 
 I have clung to your testimonies, O Lord; do not put me to shame.
 
-As the moon eclipses the sun’s disk, Saviour Lord, now the sepulchre has hidden you from our eyes, in the flesh you undergo eclipse by death.
+As the moon eclipses
+the sun’s disk, Saviour Lord,
+now the sepulchre has hidden you from our eyes,
+in the flesh you undergo eclipse by death.
 
 I ran in the way of your testimonies, when you set my heart at large.
 
-Life itself, Christ Saviour, having tasted of death, freed all mortal kind from death, liberated us, and the gift of life he now bestows on all.
+Life itself, Christ Saviour,
+having tasted of death,
+freed all mortal kind from death, liberated us,
+and the gift of life he now bestows on all.
 
 Lay down for me, O Lord, the way of your statutes, and I shall always seek it.
 
-By your death, O Saviour, you lead back into life Adam, who of old by envy was brought to death, as in flesh as a new Adam you appear.
+By your death, O Saviour,
+you lead back into life
+Adam, who of old by envy was brought to death,
+as in flesh as a new Adam you appear.
 
 Make me understand, and I shall search out your law and keep it with my whole heart.
 
-The angelic orders, were amazed to behold you, our Saviour, for our sake laid out as a corpse with their wings they veil their faces from the sight.
+The angelic orders,
+were amazed to behold
+you, our Saviour, for our sake laid out as a corpse
+with their wings they veil their faces from the sight.
 
 Guide me in the path of your commandments, for that is what I have wanted.
 
-Noble Joseph takes you, as a corpse, from the Tree, new the grave, O Word, in which he now buries you, But as God arise , save all of human kind!
+Noble Joseph takes you,
+as a corpse, from the Tree,
+new the grave, O Word, in which he now buries you,
+But as God arise , save all of human kind!
 
 Incline my heart to your testimonies and not to covetousness.
 
-To the angels, Saviour, you are gladness and joy, but a cause of grief you now have become to them, as they see you in the flesh a lifeless corpse.
+To the angels, Saviour,
+you are gladness and joy,
+but a cause of grief you now have become to them,
+as they see you in the flesh a lifeless corpse.
 
 Turn my eyes from seeing vanities; give me life in your way.
 
-Lord you lift up with you, lifted up on the Tree, every living mortal, but now laid under earth all who lie beneath it you raise up again.
+Lord you lift up with you,
+lifted up on the Tree,
+every living mortal, but now laid under earth
+all who lie beneath it you raise up again.
 
 Establish your word for your servant, for him to fear you.
 
-In the flesh, O Saviour, like a lion you slept, as a lion cub he rises, our Mighty Dead, sloughing off the flesh’s feebleness and age.
+In the flesh, O Saviour,
+like a lion you slept,
+as a lion cub he rises, our Mighty Dead,
+sloughing off the flesh’s feebleness and age.
 
 Take away my reproach, which I dreaded; for your judgements are good.
 
-Mother Eve you fashioned from a rib, which you took from the side of Adam, Lord, now your side is pierced, and from thence there gush forth purifying streams.
+Mother Eve you fashioned
+from a rib, which you took
+from the side of Adam, Lord, now your side is pierced,
+and from thence there gush forth purifying streams.
 
 See, I have longed for your commandments; in your justice make me live.
 
-Sacrificed in secret, was the lamb slain of old, under open skies, O Saviour long-suffering, cleansing all creation, you were sacrificed.
+Sacrificed in secret,
+was the lamb slain of old,
+under open skies, O Saviour long-suffering,
+cleansing all creation, you were sacrificed.
 
 Let your mercy come upon me, O Lord, your salvation according to your word.
 
-Who is there can tell it, this dread thing, truly new: see, the Master of creation today accepts death and suffering, and dies now for our sake.
+Who is there can tell it,
+this dread thing, truly new:
+see, the Master of creation today accepts
+death and suffering, and dies now for our sake.
 
 And I shall answer those who reproach me that I have hoped in your words.
 
-‘How can life’s Dispenser now be seen as a corpse?’ cried the Angels in amazement, ‘How can our God be confined here, be shut up within a grave?’
+‘How can life’s Dispenser
+now be seen as a corpse?’
+cried the Angels in amazement, ‘How can our God
+be confined here, be shut up within a grave?’
 
 Do not take the word of truth utterly from my mouth, because I have hoped in your judgements.
 
-When the lance, O Saviour, pierced your side, you let fall drops of life on Eve, who from life had banished me, giving life to her you gave me life as well.
+When the lance, O Saviour,
+pierced your side, you let fall
+drops of life on Eve, who from life had banished me,
+giving life to her you gave me life as well.
 
 And I shall keep your law always, for ever and for ever.
 
-Mortal kind you gathered into one, Jesus, Lord, when stretched out upon the Tree, and your side was pierced from that life-source you pour pardon forth for all.
+Mortal kind you gathered
+into one, Jesus, Lord,
+when stretched out upon the Tree, and your side was pierced
+from that life-source you pour pardon forth for all.
 
 And I walked in freedom, because I sought your commandments.
 
-Noble Joseph, Saviour, filled with dread lays you out, nobly readies you and buries you as a corpse, trembling awe-struck at the sight of your dread form.
+Noble Joseph, Saviour,
+filled with dread lays you out,
+nobly readies you and buries you as a corpse,
+trembling awe-struck at the sight of your dread form.
 
 And I spoke of your testimonies before kings and was not ashamed.
 
-Willingly as mortal, you went down ‘neath the earth; from the earth’s depths you lead back up to Heaven’s height all of those, O Jesu who lay fallen there.
+Willingly as mortal,
+you went down ‘neath the earth;
+from the earth’s depths you lead back up to Heaven’s height
+all of those, O Jesu who lay fallen there.
 
 And I meditated on your commandments, which I loved greatly.
 
-Though a corpse we see you, yet alive as our God you gave life again to mortals who once were slain, put to death the one who brought me to my death.
+Though a corpse we see you,
+yet alive as our God
+you gave life again to mortals who once were slain,
+put to death the one who brought me to my death.
 
 And I lifted up my hands to your commandments which I loved, and reflected on your statutes.
 
-O the joy, the gladness, O the boundless delight, with which, Jesu, you filled those who lay bound in Hell, when you made light blaze throughout its murky depths.
+O the joy, the gladness,
+O the boundless delight,
+with which, Jesu, you filled those who lay bound in Hell,
+when you made light blaze throughout its murky depths.
 
 Remember your words to your servant, by which you gave me hope.
 
-Lord, your pains I worship, and your burial praise, and I magnify your might, Lover of mankind. By them I am freed from passions which destroy.
+Lord, your pains I worship,
+and your burial praise,
+and I magnify your might, Lover of mankind.
+By them I am freed from passions which destroy.
 
 This comforted me in my humiliation, that your word had given me life.
 
-A great sword was sharpened against you, O my Christ, but the strong one’s mighty sword has been blunted now, and the sword that guarded Eden is turned back.
+A great sword was sharpened
+against you, O my Christ,
+but the strong one’s mighty sword has been blunted now,
+and the sword that guarded Eden is turned back.
 
 The proud have utterly transgressed; but I have not swerved from your law.
 
-When the Ewe that bore him saw the Lamb that was slain, shot with anguish she lamented and cried aloud, rousing all the flock to join its cry to hers.
+When the Ewe that bore him
+saw the Lamb that was slain,
+shot with anguish she lamented and cried aloud,
+rousing all the flock to join its cry to hers.
 
 I remembered your judgements of old, Lord, and I was comforted.
 
-Buried in a tomb, Lord, and descended to Hell, yet, O Saviour, you have emptied the sepulchres, mighty Hades you stripped naked, O my Christ.
+Buried in a tomb, Lord,
+and descended to Hell,
+yet, O Saviour, you have emptied the sepulchres,
+mighty Hades you stripped naked, O my Christ.
 
 Dejection has taken hold of me because of sinners, who abandon your law.
 
-Willingly, O Saviour, you went down ‘neath the earth, granted life again to mortals whom death had slain, in the glory of the Father led them up.
+Willingly, O Saviour,
+you went down ‘neath the earth,
+granted life again to mortals whom death had slain,
+in the glory of the Father led them up.
 
 Your statutes have been my songs in the place of my pilgrimage.
 
-Shameful death he suffered in the flesh for our sake, who is one of the divine holy Trinity. Quails the sun, and all earth shudders at the sight.
+Shameful death he suffered
+in the flesh for our sake,
+who is one of the divine holy Trinity.
+Quails the sun, and all earth shudders at the sight.
 
 I remembered your name in the night, Lord, and I kept your law.
 
-From the tribe of Judah from that bitterest source, came the offspring who cast Jesus into the pit, him who furnished them with manna for their food.
+From the tribe of Judah
+from that bitterest source,
+came the offspring who cast Jesus into the pit,
+him who furnished them with manna for their food.
 
 This happened to me, because I sought your statutes.
 
-Judge he stands for judgement before Pilate as judge, and the unjust judge condemns him to unjust death, to be put to death upon that Tree, the Cross.
+Judge he stands for judgement
+before Pilate as judge,
+and the unjust judge condemns him to unjust death,
+to be put to death upon that Tree, the Cross.
 
 You, Lord, are my portion; I have said that I would keep your law.
 
-Why so boastful Israel, people tainted with blood? why did you deliver Barabbas from his pains, yet hand over Christ the Saviour to a Cross?
+Why so boastful Israel,
+people tainted with blood?
+why did you deliver Barabbas from his pains,
+yet hand over Christ the Saviour to a Cross?
 
 I have begged for your presence with my whole heart; have mercy on me according to your word.
 
-With your hand you fashioned Adam out of the earth; for him you became by nature a man, O Lord, and were crucified for him by your own will.
+With your hand you fashioned
+Adam out of the earth;
+for him you became by nature a man, O Lord,
+and were crucified for him by your own will.
 
 I have thought over your ways and turned back my feet to your testimonies.
 
-You obeyed your Father, and descended, O Word, to the depth of dreadful Hell, to the realm of Death, and raised up again the race of mortal kind.
+You obeyed your Father,
+and descended, O Word,
+to the depth of dreadful Hell, to the realm of Death,
+and raised up again the race of mortal kind.
 
 I was prepared, and not troubled, to keep your commandments.
 
-Bitterly lamenting, ‘Woe is me, O my light! my heart’s longing and the Light of the World, alas! Woe is me, my heart’s desire’, the Virgin cried.
+Bitterly lamenting,
+‘Woe is me, O my light!
+my heart’s longing and the Light of the World, alas!
+Woe is me, my heart’s desire’, the Virgin cried.
 
 The cords of sinners entangled me, and I did not forget your law.
 
-Murderous, malicious, men whose deeds for vengeance cry! See the graveclothes and the napkin left lying here, as Christ rises from the dead: are you not shamed?
+Murderous, malicious,
+men whose deeds for vengeance cry!
+See the graveclothes and the napkin left lying here,
+as Christ rises from the dead: are you not shamed?
 
 At midnight I rose to confess you, for the judgements of your justice.
 
-Murdering disciple, blood-stained man, show me now all the manner, all the ways of your wickedness, through which you became betrayer of our Christ.
+Murdering disciple,
+blood-stained man, show me now
+all the manner, all the ways of your wickedness,
+through which you became betrayer of our Christ.
 
 I am a companion of all who fear you and keep your commandments.
 
-Monster of destruction, blind, implacable fool! How can you pretend to act from philanthropy, when you sold the Myrrh for thirty silver pence?
+Monster of destruction,
+blind, implacable fool!
+How can you pretend to act from philanthropy,
+when you sold the Myrrh for thirty silver pence?
 
 The earth is full of your mercy, O Lord; teach me your statutes.
 
-How much did they pay you for the heavenly Myrrh? What did you receive as price of the precious One? You found raving madness, Satan, most accursed.
+How much did they pay you
+for the heavenly Myrrh?
+What did you receive as price of the precious One?
+You found raving madness, Satan, most accursed.
 
 You have shown goodness to your servant, O Lord, according to your word.
 
-If you suffered anguish as a friend of the poor, when for mercy on a soul precious myrrh was poured, how, then, can you sell the fount of light for gold?
+If you suffered anguish
+as a friend of the poor,
+when for mercy on a soul precious myrrh was poured,
+how, then, can you sell the fount of light for gold?
 
 Teach me goodness, discipline and knowledge, because I have believed your commandments.
 
-‘O God’s Word, my gladness, my Lord and my God, how can I endure your burial for three days? As a mother now my heart is torn with grief.’
+‘O God’s Word, my gladness,
+my Lord and my God,
+how can I endure your burial for three days?
+As a mother now my heart is torn with grief.’
 
 Before I was disciplined I offended; for this reason I have kept your word.
 
-‘Who will give me water, give me fountains of tears,’ cried the Virgin bride of God, ‘that I may lament and may weep for my sweet Jesus, who lies slain?’
+‘Who will give me water,
+give me fountains of tears,’
+cried the Virgin bride of God, ‘that I may lament
+and may weep for my sweet Jesus, who lies slain?’
 
 You are good, O Lord, and in your goodness teach me your statutes.
 
-‘Mountain heights and valleys, all the whole human race, come, all creatures, come lament and shed tears with me, weep with me, who am the Mother of your God.’
+‘Mountain heights and valleys,
+all the whole human race,
+come, all creatures, come lament and shed tears with me,
+weep with me, who am the Mother of your God.’
 
 The injustice of the proud has been heaped upon me, but with my whole heart I shall search out your commandments.
 
-‘Saviour, light eternal, the delight of my heart, when shall I see you, my gladness, my only joy?’ cried the Virgin most afflicted in her grief.
+‘Saviour, light eternal,
+the delight of my heart,
+when shall I see you, my gladness, my only joy?’
+cried the Virgin most afflicted in her grief.
 
 Their heart has curdled like milk; but I have meditated on your law.
 
-Like a rock, O Saviour, sharp and flinty and hard, you received the blow, but poured forth, as source of life, streams of living water, bringing life to all.
+Like a rock, O Saviour,
+sharp and flinty and hard,
+you received the blow, but poured forth, as source of life,
+streams of living water, bringing life to all.
 
 It is good that you disciplined me, that I might learn your statutes.
 
-As if from one fountain as from only one spring, from the double stream that flows from your side we drink, and we pluck the fruit that grants immortal life.
+As if from one fountain
+as from only one spring,
+from the double stream that flows from your side we drink,
+and we pluck the fruit that grants immortal life.
 
 The law of your mouth is good to me, beyond thousands of gold and silver.
 
-By your will we see you, as a corpse in the tomb, but you live, O Word, and Saviour as you foretold, by your Resurrection you raise mortal kind.
+By your will we see you,
+as a corpse in the tomb,
+but you live, O Word, and Saviour as you foretold,
+by your Resurrection you raise mortal kind.
 
 Glory.
 
-Word, we sing your praises, as the Lord God of all, with the Father and your most Holy Spirit, Lord, and we glorify your burial divine.
+Word, we sing your praises,
+as the Lord God of all,
+with the Father and your most Holy Spirit, Lord,
+and we glorify your burial divine.
 
 Both now.
 
 **Theotokion.**
 
-Now we call you blessed, All-Pure Mother of God, and in faith we hold in honour and venerate the three day entombment of your Son our God.
+Now we call you blessed,
+All-Pure Mother of God,
+and in faith we hold in honour and venerate
+the three day entombment of your Son our God.
 
 ****
 
 And the first Troparion again.
 
-In the tomb they laid you, you, O Christ, who are Life, in amazement angel armies lift up their song as they glorify your self-abasement, Lord.
+In the tomb they laid you,
+you, O Christ, who are Life,
+in amazement angel armies lift up their song
+as they glorify your self-abasement, Lord.
 
 ****
 
@@ -658,253 +890,444 @@ SECOND SECTION
 
 Tone 5.
 
-It is right indeed we should magnify the one who grants life, you, that stretched your hands wide upon the Cross, broke and smashed the might and power of the foe.
+It is right indeed
+we should magnify the one who grants life,
+you, that stretched your hands wide upon the Cross,
+broke and smashed the might and power of the foe.
 
 Your hands made me and fashioned me; make me understand and I shall learn your commandments.
 
-It is right indeed you to magnify, who fashion all things, your pains from corruption deliver us, and your Passion grants dispassion to our souls.
+It is right indeed
+you to magnify, who fashion all things,
+your pains from corruption deliver us,
+and your Passion grants dispassion to our souls.
 
 Those who fear you will see me and be glad, because I have hoped in your words.
 
-All Earth quaked in fear and the sun concealed itself, O Saviour, when, O Christ, our light, you set bodily, as the light that knows no evening was entombed.
+All Earth quaked in fear
+and the sun concealed itself, O Saviour,
+when, O Christ, our light, you set bodily,
+as the light that knows no evening was entombed.
 
 I know, Lord, that your judgements are justice, and that in truth you disciplined me.
 
-Sleeping in the tomb with the sleep that breathes forth life, Anointed, from sin’s heavy sleep you, as God, aroused all the human race that sin had held enthralled.
+Sleeping in the tomb
+with the sleep that breathes forth life, Anointed,
+from sin’s heavy sleep you, as God, aroused
+all the human race that sin had held enthralled.
 
 Oh let your mercy be for my comfort, according to your word to your servant.
 
-‘Of all woman-kind I alone bore you, my child, without pain; cruel pangs now wrack me as I behold your great suffering’, the Holy Virgin cries.
+‘Of all woman-kind
+I alone bore you, my child, without pain;
+cruel pangs now wrack me as I behold
+your great suffering’, the Holy Virgin cries.
 
 Let your mercies come to me, and I shall live, because your law is my meditation.
 
-Seeing you on high, never separated from the Father, yet below on Earth, laid out as a corpse, the dread Seraphim, my Saviour, shake with fear.
+Seeing you on high,
+never separated from the Father,
+yet below on Earth, laid out as a corpse,
+the dread Seraphim, my Saviour, shake with fear.
 
 Let the proud be shamed, for they have wronged me unjustly; but I shall meditate on your commandments.
 
-See, the Temple Veil, rent asunder at your crucifixion, Heaven’s beacons hide, O my Christ, their light, to see you, the Sun, now hid beneath the earth.
+See, the Temple Veil,
+rent asunder at your crucifixion,
+Heaven’s beacons hide, O my Christ, their light,
+to see you, the Sun, now hid beneath the earth.
 
 Let those who fear you and know your testimonies turn back to me.
 
-He who at the start by His will alone set Earth revolving, lifeless as a mortal sets under earth; let the sky now shake and tremble at the sight.
+He who at the start
+by His will alone set Earth revolving,
+lifeless as a mortal sets under earth;
+let the sky now shake and tremble at the sight.
 
 Let my heart become blameless in your statutes, that I may not be ashamed.
 
-Human-kind you formed, with your own hand fashioned us, O Saviour, now, O Sun, you set underneath the earth, raising companies of mortals from the fall.
+Human-kind you formed,
+with your own hand fashioned us, O Saviour,
+now, O Sun, you set underneath the earth,
+raising companies of mortals from the fall.
 
 My soul faints for your salvation, I have hoped in your words.
 
-Come, now, let us sing, let our sacred hymn lament the dead Christ, singing as the Myrrh-bearing women did, that with them we too may hear the word ‘rejoice!’
+Come, now, let us sing,
+let our sacred hymn lament the dead Christ,
+singing as the Myrrh-bearing women did,
+that with them we too may hear the word ‘rejoice!’
 
 My eyes have fainted for your word, saying: When will you comfort me?
 
-Truly you are Myrrh, truly, Word of God, the Myrrh Unfailing, so it was myrrh-bearers brought myrrh to you, to the Living God brought myrrh as to the dead.
+Truly you are Myrrh,
+truly, Word of God, the Myrrh Unfailing,
+so it was myrrh-bearers brought myrrh to you,
+to the Living God brought myrrh as to the dead.
 
 Because I have become like a wineskin in the frost, I have not forgotten your statutes.
 
-Buried, O my Christ, the great palaces of Hell you shattered, Death you put to death by your death, O Lord, from corruption you set free those born of earth.
+Buried, O my Christ,
+the great palaces of Hell you shattered,
+Death you put to death by your death, O Lord,
+from corruption you set free those born of earth.
 
 How many are your servant’s days? When will you execute judgement on my persecutors?
 
-To the grave descends he, the Wisdom of our God, that pours out streams of life; descending into a tomb, giving life to those in Hades deepest depths.
+To the grave descends
+he, the Wisdom of our God, that pours out
+streams of life; descending into a tomb,
+giving life to those in Hades deepest depths.
 
-The lawless have told me fables, but nothing like your law, O Lord. ‘Willingly by death I was wounded in the flesh, dear Mother,, thus the broken nature of mortal kind to renew, so do not beat your breast in grief.’
+The lawless have told me fables, but nothing like your law, O Lord.
+‘Willingly by death
+I was wounded in the flesh, dear Mother,,
+thus the broken nature of mortal kind
+to renew, so do not beat your breast in grief.’
 
 All your commandments are truth; they have persecuted me unjustly, help me.
 
-When beneath the Earth you had set, the Morning Star of justice, you aroused the dead as if they but slept, as you put to flight the murk and gloom of Hell.
+When beneath the Earth
+you had set, the Morning Star of justice,
+you aroused the dead as if they but slept,
+as you put to flight the murk and gloom of Hell.
 
 They almost made an end of me on earth, but I did not abandon your commandments.
 
-Sown with tears today, the life-breathing grain of two-fold nature, here within earth’s furrows the grain is sown, but tomorrow it will burst once more to life.
+Sown with tears today,
+the life-breathing grain of two-fold nature,
+here within earth’s furrows the grain is sown,
+but tomorrow it will burst once more to life.
 
 Give me life according to your mercy, and I shall keep the testimonies of your mouth.
 
-Trembling, Adam quailed, when God walked in Paradise, he feared him, but rejoices now as God enters Hell. As of old he fell, so now he rises up.
+Trembling, Adam quailed,
+when God walked in Paradise, he feared him,
+but rejoices now as God enters Hell.
+As of old he fell, so now he rises up.
 
 O Lord, your word endures for ever in heaven.
 
-Offerings of tears, O my Christ, your Mother poured out, weeping, as in flesh you lay buried in the grave, ‘But arise, my Son, as you foretold’, she cried.
+Offerings of tears,
+O my Christ, your Mother poured out, weeping,
+as in flesh you lay buried in the grave,
+‘But arise, my Son, as you foretold’, she cried.
 
 Your truth from generation to generation; you founded the earth and it endures.
 
-Filled with godly fear, in a new tomb noble Joseph hides you, singing, Saviour, hymns for your burial, hymns befitting God and mingled with laments.
+Filled with godly fear,
+in a new tomb noble Joseph hides you,
+singing, Saviour, hymns for your burial,
+hymns befitting God and mingled with laments.
 
 By your decree day endures; because all things are your servants.
 
-Bolts of bitter grief pierced you Mother’s soul, and nails of anguish, when she saw you nailed to a Tree, O Word, saw you fastened to the Cross with cruel nails.
+Bolts of bitter grief
+pierced you Mother’s soul, and nails of anguish,
+when she saw you nailed to a Tree, O Word,
+saw you fastened to the Cross with cruel nails.
 
 If your law had not been my meditation, I would have perished in my humiliation.
 
-When her eyes beheld you who are the whole world’s sweetness, drinking, O my Saviour, the bitter drink, your sweet Mother drenched her eyes with bitter tears.
+When her eyes beheld
+you who are the whole world’s sweetness,
+drinking, O my Saviour, the bitter drink,
+your sweet Mother drenched her eyes with bitter tears.
 
 I will never forget your statutes, because through them you have given me life.
 
-‘Dreadful is the wound, all my inward parts are rent asunder, as your unjust slaughter I see, O Word’, cried the Virgin most afflicted as she wept.
+‘Dreadful is the wound,
+all my inward parts are rent asunder,
+as your unjust slaughter I see, O Word’,
+cried the Virgin most afflicted as she wept.
 
 I am yours, save me, for I have sought your statutes.
 
-‘Tell me, Word of God, how am I to close you lips and sweet eyes, how to bury you as befits the dead?’ cried the noble Joseph, shivering with fear.
+‘Tell me, Word of God,
+how am I to close you lips and sweet eyes,
+how to bury you as befits the dead?’
+cried the noble Joseph, shivering with fear.
 
 Sinners waited for me to destroy me; I understood your testimonies.
 
-Sacred hymns they sing, Nicodemus and the noble Joseph, while the Seraphim join them in their hymn for the burial of Christ, who now lies dead.
+Sacred hymns they sing,
+Nicodemus and the noble Joseph,
+while the Seraphim join them in their hymn
+for the burial of Christ, who now lies dead.
 
 I have seen an end of every perfection, your commandment is exceedingly broad.
 
-Sun of justice, now you have set beneath the earth, my Saviour, Therefore she, the Moon that gave birth to you, is eclipsed with grief, at seeing you no more.
+Sun of justice, now
+you have set beneath the earth, my Saviour,
+Therefore she, the Moon that gave birth to you,
+is eclipsed with grief, at seeing you no more.
 
 How I have loved your law, O Lord; all day it is my meditation.
 
-Hades trembled then, when he saw you, the Life-giving Saviour, in your might despoiling him of his wealth, raising up the dead he held from every age.
+Hades trembled then,
+when he saw you, the Life-giving Saviour,
+in your might despoiling him of his wealth,
+raising up the dead he held from every age.
 
 By your commandment you have made me wiser than my foes, for it is mine for ever.
 
-Once the night has passed then again, O Word, the bright Sun blazes; radiant you blaze forth, when after death, as though from a bridal chamber, you arise.
+Once the night has passed
+then again, O Word, the bright Sun blazes;
+radiant you blaze forth, when after death,
+as though from a bridal chamber, you arise.
 
 I have understood more than all those who teach me, for your testimonies are my meditation.
 
-How Earth quaked with fear, O Creator, as into her bosom, shaking, she received you, my Saving Lord, by her fearful shaking she awoke the dead.
+How Earth quaked with fear,
+O Creator, as into her bosom,
+shaking, she received you, my Saving Lord,
+by her fearful shaking she awoke the dead.
 
 I have understood more than my elders, for I have sought your commandments.
 
-With sweet myrrh, O Christ, Nicodemus and the noble Joseph laid you out for burial strange and new, as they cried aloud, ‘Now tremble, all the earth!’
+With sweet myrrh, O Christ,
+Nicodemus and the noble Joseph
+laid you out for burial strange and new,
+as they cried aloud, ‘Now tremble, all the earth!’
 
 I restrained my feet from every evil way, that I might keep your words.
 
-Maker of the light, you have set, and with you sets the sunlight; all creation, trembling and shuddering, now proclaims you as the Maker all things.
+Maker of the light,
+you have set, and with you sets the sunlight;
+all creation, trembling and shuddering,
+now proclaims you as the Maker all things.
 
 I did not turn from your judgements, for you gave me your law.
 
-Christ, our Cornerstone, Him a stone hewn from the rock now covers; Tremble Earth to see how a mortal man hides away our God as mortal in a tomb!
+Christ, our Cornerstone,
+Him a stone hewn from the rock now covers;
+Tremble Earth to see how a mortal man
+hides away our God as mortal in a tomb!
 
 How sweet are your words to my throat, sweeter than honey to my mouth.
 
-‘O my Child, behold the disciple whom you loved; my sweet one, see your Mother too, and grant us a word’, cried the Virgin as she raised her sad lament.
+‘O my Child, behold
+the disciple whom you loved; my sweet one,
+see your Mother too, and grant us a word’,
+cried the Virgin as she raised her sad lament.
 
 From your commandments I gained understanding; therefore I hated every way of injustice.
 
-O, Life-giving Word, even stretched out on the Cross and nailed there, you, as Lord of Life, did not kill the Jews, granting resurrection even to their dead.
+O, Life-giving Word,
+even stretched out on the Cross and nailed there,
+you, as Lord of Life, did not kill the Jews,
+granting resurrection even to their dead.
 
-Your law is a lamp for my feet and a light for my paths. Suffering, O Word, you were quite bereft of form and beauty; Rising, Lord, you shone forth resplendently, and with your Godhead’s rays made mortals fair.
+Your law is a lamp for my feet and a light for my paths.
+Suffering, O Word,
+you were quite bereft of form and beauty;
+Rising, Lord, you shone forth resplendently,
+and with your Godhead’s rays made mortals fair.
 
 I have sworn and am determined to keep the judgements of your justice.
 
-In the flesh you set, ‘neath the earth, Dawn Star that knows no evening, at height of noon-day the sun grew dark, as unable to endure the fearful sight.
+In the flesh you set,
+‘neath the earth, Dawn Star that knows no evening,
+at height of noon-day the sun grew dark,
+as unable to endure the fearful sight.
 
 I have been exceedingly humbled; O Lord, give me life according to your word.
 
-Sun and moon grew dark, they are images of faithful servants, who, as mourners, Saviour, attire themselves in the sombre mourners’ robes of deepest black.
+Sun and moon grew dark,
+they are images of faithful servants,
+who, as mourners, Saviour, attire themselves
+in the sombre mourners’ robes of deepest black.
 
 Be well pleased, Lord, with the freewill offerings of my mouth, and teach me your judgements.
 
-‘Though you hung there dead, the centurion knew you as true God. ‘See, with fear I shake’, noble Joseph cried, Tell me, how am I to touch you with my hands?’
+‘Though you hung there dead,
+the centurion knew you as true God.
+‘See, with fear I shake’, noble Joseph cried,
+Tell me, how am I to touch you with my hands?’
 
 My soul is ever in your hands, and I have not forgotten your law.
 
-Adam lay asleep, and, while sleeping, from his side brought forth death. You, O Word of God, who are sleeping here, now are pouring from your side life for the world.
+Adam lay asleep,
+and, while sleeping, from his side brought forth death.
+You, O Word of God, who are sleeping here,
+now are pouring from your side life for the world.
 
 Sinners laid a snare for me, and I have not strayed from your commandments.
 
-For a while you slept, to the dead who lay in Hell you brought life. Rising up, O Good One, you then raised up all the multitudes of dead from every age.
+For a while you slept,
+to the dead who lay in Hell you brought life.
+Rising up, O Good One, you then raised up
+all the multitudes of dead from every age.
 
 I have inherited your testimonies for ever, for they are the joy of my heart.
 
-Vine from which life flows! As above the earth, Lord, you were lifted, you poured forth the wine of salvation then, now I glorify your Passion and your Cross.
+Vine from which life flows!
+As above the earth, Lord, you were lifted,
+you poured forth the wine of salvation then,
+now I glorify your Passion and your Cross.
 
 I have inclined my heart to do your statutes for ever for the sake of the recompense.
 
-Lords of Angel Hosts, when they saw you, O my Saviour, naked, blood-stained, and condemned, how did they endure to perceive your crucifiers’ insolence?
+Lords of Angel Hosts,
+when they saw you, O my Saviour, naked,
+blood-stained, and condemned, how did they endure
+to perceive your crucifiers’ insolence?
 
 I have hated transgressors, but I have loved your law.
 
-What perversity! Come, most crooked race of Hebrews, tell us, how could you condemn the Anointed One, when you knew the temple would be raised again.
+What perversity!
+Come, most crooked race of Hebrews, tell us,
+how could you condemn the Anointed One,
+when you knew the temple would be raised again.
 
 You are my helper and protector; I have hoped in your words.
 
-In a mocking cloak you have clothed the one who orders all things. He arrayed the Earth, and most wondrously, he it was who strewed the stars across the skies.
+In a mocking cloak
+you have clothed the one who orders all things.
+He arrayed the Earth, and most wondrously,
+he it was who strewed the stars across the skies.
 
 Depart from me all evil-doers, and I shall search out the commandments of my God.
 
-Like the pelican, you gave life, O Word, to your dead children, wounded in your side, you let life-blood flow, letting fall life-giving drops of blood on all.
+Like the pelican,
+you gave life, O Word, to your dead children,
+wounded in your side, you let life-blood flow,
+letting fall life-giving drops of blood on all.
 
 Help me according to your word, and give me life, and may I not be disappointed in my expectation.
 
-Jesus stayed the sun, as of old he smote the foreign foe, Lord; you, Christ, hid its light as you overthrew that great prince, the Lord of darkness and of death.
+Jesus stayed the sun,
+as of old he smote the foreign foe, Lord;
+you, Christ, hid its light as you overthrew
+that great prince, the Lord of darkness and of death.
 
 Help me and I shall be saved and I shall ever meditate on your statutes.
 
-O Compassionate, while remaining in your Father’s bosom, mortal nature willingly you assumed, and as mortal man, O Christ, went down to Hell.
+O Compassionate,
+while remaining in your Father’s bosom,
+mortal nature willingly you assumed,
+and as mortal man, O Christ, went down to Hell.
 
 You have despised all those who abandon your statutes, because their desire is unjust.
 
-He who hung the earth on the waters, on a Cross is lifted, as a lifeless corpse he is laid in earth, which, unable to endure it, dreads and quakes.
+He who hung the earth
+on the waters, on a Cross is lifted,
+as a lifeless corpse he is laid in earth,
+which, unable to endure it, dreads and quakes.
 
 I reckoned all the sinners on earth as transgressors; that is why I have loved your testimonies.
 
-‘Woe is me, my Son! For I hoped as king to see you reigning, whom I see condemned, hanging on the Cross’, the pure Virgin Mother voices her lament .’
+‘Woe is me, my Son!
+For I hoped as king to see you reigning,
+whom I see condemned, hanging on the Cross’,
+the pure Virgin Mother voices her lament .’
 
 Nail my flesh with fear of you; for I was afraid of your judgements.
 
-‘Gabriel announced, in the wondrous message that he brought me, the eternal kingdom he said would be the possession of my Jesus, my dear Son’.
+‘Gabriel announced,
+in the wondrous message that he brought me,
+the eternal kingdom he said would be
+the possession of my Jesus, my dear Son’.
 
 I have done judgement and justice; do not hand me over to those who injure me.
 
-‘Woe, alas for me! Now a prophecy has found fulfilment, As the just man Symeon had foretold, now, Emmanuel, your sword has pierced my heart.’
+‘Woe, alas for me!
+Now a prophecy has found fulfilment,
+As the just man Symeon had foretold,
+now, Emmanuel, your sword has pierced my heart.’
 
 Be responsible for your servant’s good; do not let the proud slander me.
 
-Are you not ashamed? Tell me, do not all those dead he raised up shame you, for the Giver of life is he, whom from spiteful envy, Jews, you did to death .
+Are you not ashamed?
+Tell me, do not all those dead he raised up
+shame you, for the Giver of life is he,
+whom from spiteful envy, Jews, you did to death .
 
 My eyes have grown weak looking for your salvation and the word of your justice.
 
-Bitterly she wept, your all-blameless Mother, when she saw you lying dead, O Word, lying in the tomb, the eternal God no language can express.
+Bitterly she wept,
+your all-blameless Mother, when she saw you
+lying dead, O Word, lying in the tomb,
+the eternal God no language can express.
 
 Deal with your servant according to your mercy and teach me your statutes.
 
-Seeing you, my Christ, you, the Light invisible, now hidden, lifeless in the grave, then the sun on high shook and trembled as its light grew dark in fear.
+Seeing you, my Christ,
+you, the Light invisible, now hidden,
+lifeless in the grave, then the sun on high
+shook and trembled as its light grew dark in fear.
 
 I am your servant; make me understand, and I shall know your testimonies.
 
-When she saw your death then your Mother free from all defilement cried out, O my Christ, bitterly to you, ‘Life, I beg, do not delay among the dead!’
+When she saw your death
+then your Mother free from all defilement
+cried out, O my Christ, bitterly to you,
+‘Life, I beg, do not delay among the dead!’
 
 It is time for the Lord to act; they have thrown your law to the winds.
 
-Hades, death’s dread lord, shook in fear, he shuddered when he saw you, Sun of glory, deathless and radiant, and he gave up all his prisoners in haste.
+Hades, death’s dread lord,
+shook in fear, he shuddered when he saw you,
+Sun of glory, deathless and radiant,
+and he gave up all his prisoners in haste.
 
 That is why I have loved your commandments above gold and topaz.
 
-Terrible indeed, great the sight that now is seen, O Saviour, He, the cause of life, willing went to death, wishing life to bring as gift to all mankind.
+Terrible indeed,
+great the sight that now is seen, O Saviour,
+He, the cause of life, willing went to death,
+wishing life to bring as gift to all mankind.
 
 That is why I have been directed to all your commandments, hated every unjust way.
 
-Lord, your side was pierced, nails were hammered through your hands, O Saviour, from your side came healing to heal the wound, and to cure the greed of our first parents’ hands.
+Lord, your side was pierced,
+nails were hammered through your hands, O Saviour,
+from your side came healing to heal the wound,
+and to cure the greed of our first parents’ hands.
 
 Your testimonies are wonderful; that is why my soul has searched them out.
 
-Once for Rachel’s son house by house were all set sadly weeping. With his Mother now, the Disciples’ choir in its grief mourns and laments the Virgin’s Son.
+Once for Rachel’s son
+house by house were all set sadly weeping.
+With his Mother now, the Disciples’ choir
+in its grief mourns and laments the Virgin’s Son.
 
 The expounding of your law enlightens and makes little children understand.
 
-With their hands they gave a great blow upon the cheek of Jesus, Christ, who with his hand fashioned all mankind Christ, who with his hand has crushed the Beast’s foul fangs.
+With their hands they gave
+a great blow upon the cheek of Jesus,
+Christ, who with his hand fashioned all mankind
+Christ, who with his hand has crushed the Beast’s foul fangs.
 
 I opened my mouth and drew breath, because I longed for your commandments.
 
-With our hymns, O Christ, all the faithful bring their adoration, to your crucifixion and burial; by your burial we have been freed from death.
+With our hymns, O Christ,
+all the faithful bring their adoration,
+to your crucifixion and burial;
+by your burial we have been freed from death.
 
 Glory.
 
-Great eternal God, co-eternal Word and Holy Spirit, look down in your goodness on those who rule, grant their sceptres strength against the warlike foe.
+Great eternal God,
+co-eternal Word and Holy Spirit,
+look down in your goodness on those who rule,
+grant their sceptres strength against the warlike foe.
 
 Both now.
 
-Wholly undefiled, Mother, who gave birth to life, pure Virgin, ends all scandals which still beset Church, and as you are loving, Mother, grant her peace.
+Wholly undefiled,
+Mother, who gave birth to life, pure Virgin,
+ends all scandals which still beset Church,
+and as you are loving, Mother, grant her peace.
 
 ****
 
 And again the first Troparion.
 
-It is right indeed we should magnify the one who grants life, you, that stretched your hands wide upon the Cross, broke and smashed the might and power of the foe.
+It is right indeed
+we should magnify the one who grants life,
+you, that stretched your hands wide upon the Cross,
+broke and smashed the might and power of the foe.
 
 ****
 
@@ -947,201 +1370,300 @@ THIRD SECTION
 
 **Tone 3**
 
-Each generation offers, my Christ, for your entombment in hymns and songs its praises.
+Each generation offers,
+my Christ, for your entombment
+in hymns and songs its praises.
 
 Look upon me and have mercy upon me according to the judgement of those who love your name.
 
-The Noble Joseph takes you down from the Tree, my Saviour, and in the tomb he lays you.
+The Noble Joseph takes you
+down from the Tree, my Saviour,
+and in the tomb he lays you.
 
 Direct my steps according to your word, and do not let iniquity lord it over me.
 
-Myrrh-bearing Woman came then, providently bringing to you, O Christ, the sweet myrrh.
+Myrrh-bearing Woman came then,
+providently bringing
+to you, O Christ, the sweet myrrh.
 
 Deliver me from the slander of men, and I shall keep your commandments.
 
-Let all Creation join us, as to the Creator our farewell hymns we now sing.
+Let all Creation join us,
+as to the Creator
+our farewell hymns we now sing.
 
 Make your face shine on your servant and teach me your statutes.
 
-With myrrh-bearing women let us, with understanding, anoint as dead the Living.
+With myrrh-bearing women
+let us, with understanding,
+anoint as dead the Living.
 
 My eyes shed streams of water, when I did not keep your law.
 
-O thrice-blessed Joseph, entomb Messiah’s body, the corpse of Him who grants life.
+O thrice-blessed Joseph,
+entomb Messiah’s body,
+the corpse of Him who grants life.
 
 You are just, O Lord, and your judgements are upright.
 
-Those he fed with manna raised their heels against him, against the Benefactor.
+Those he fed with manna
+raised their heels against him,
+against the Benefactor.
 
 You have commanded justice, your testimonies and absolute truth.
 
-Those he fed with manna bring vinegar and gall now to offer to the Saviour..
+Those he fed with manna
+bring vinegar and gall now
+to offer to the Saviour..
 
 Your zeal has burned me up, because my enemies have forgotten your words.
 
-O the boundless folly of those who slew the prophets and now slay God’s Anointed.
+O the boundless folly
+of those who slew the prophets
+and now slay God’s Anointed.
 
 Your word has been thoroughly tried by fire, and your servant has loved it.
 
-Initiate yet traitor, he, the senseless servant, sold the Abyss of Wisdom.
+Initiate yet traitor,
+he, the senseless servant,
+sold the Abyss of Wisdom.
 
 I am young and despised; I have not forgotten your statutes.
 
-Judas the deceiver for silver sold the Saviour, and thus became a captive.
+Judas the deceiver
+for silver sold the Saviour,
+and thus became a captive.
 
 Your justice is justice forever, and your law is truth.
 
-Solomon declared it: like a deep-dug pit the mouth of Law-transgressing Hebrews.
+Solomon declared it:
+like a deep-dug pit the mouth
+of Law-transgressing Hebrews.
 
 Troubles and constraints have found me, your commandments are my meditation.
 
-Law-transgressing Hebrews on the crooked paths they tread face pits and traps and sharp snares.
+Law-transgressing Hebrews
+on the crooked paths they tread
+face pits and traps and sharp snares.
 
 Your testimonies are justice forever; make me understand, and I shall live.
 
-With Nicodemus, Joseph buries the Creator as for the dead is fitting.
+With Nicodemus, Joseph
+buries the Creator
+as for the dead is fitting.
 
 I have cried to you with my whole heart; hear me, O Lord, I shall seek out your statutes.
 
-O Life-giving Saviour, the conqueror of Hades, to your great might be glory.
+O Life-giving Saviour,
+the conqueror of Hades,
+to your great might be glory.
 
 I have cried to you; save me, and I shall keep your testimonies.
 
-When the All-Pure saw you lying limp and dead, Lord, as mother, Word, she mourned you.
+When the All-Pure saw you
+lying limp and dead, Lord,
+as mother, Word, she mourned you.
 
 I have risen at dead of night and cried out, I have hoped in your words.
 
-‘O my sweetest springtime, O my sweetest Offspring, where has your beauty vanished?’
+‘O my sweetest springtime,
+O my sweetest Offspring,
+where has your beauty vanished?’
 
 My eyes have forestalled the dawn, to meditate on your words.
 
-What sad lament she raises, O Word, your all-pure Mother, as you lie dead before her.
+What sad lament she raises,
+O Word, your all-pure Mother,
+as you lie dead before her.
 
 Hear my voice, O Lord, according to your mercy, according to your judgement give me life.
 
-Women with sweet myrrh came to anoint with myrrh Christ, who is himself Divine Myrrh.
+Women with sweet myrrh came
+to anoint with myrrh Christ,
+who is himself Divine Myrrh.
 
 Those who persecute me have drawn near iniquity, they have gone far from your law.
 
-Death itself, O Saviour, by death you put to death, Lord my God, by your divine might.
+Death itself, O Saviour,
+by death you put to death, Lord
+my God, by your divine might.
 
 You are near, Lord, and all your ways are truth.
 
-Deceived is the deceiver, the once deceived redeemed now my God and by your Wisdom.
+Deceived is the deceiver,
+the once deceived redeemed now
+my God and by your Wisdom.
 
 I have known your testimonies from of old, because you have founded them for ever.
 
-Behold the traitor cast down, to Hades’ depths abysmal, the deep pit of destruction.
+Behold the traitor cast down,
+to Hades’ depths abysmal,
+the deep pit of destruction.
 
 See my humiliation and rescue me, because I have not forgotten your law.
 
-Traps and pits and sharp snares- these are the ways of Judas, the madman and thrice-wretched.
+Traps and pits and sharp snares-
+these are the ways of Judas,
+the madman and thrice-wretched.
 
 Judge my cause and deliver me; for the sake of your law give me life.
 
-All those who crucified you will be destroyed together, God’s Word and Son, the Great King.
+All those who crucified you
+will be destroyed together,
+God’s Word and Son, the Great King.
 
 Salvation is far from sinners, because they have not sought out your statutes.
 
-All the men of blood now will be destroyed together within destruction’s deep pit.
+All the men of blood now
+will be destroyed together
+within destruction’s deep pit.
 
 Your mercies, Lord, are many; according to judgement give me life.
 
-Son of God, All-Sovereign, my God and my Creator, why did you will to suffer?
+Son of God, All-Sovereign,
+my God and my Creator,
+why did you will to suffer?
 
 Those who pursue me and trouble me are many; I have not swerved from your testimonies.
 
-The heifer, when she saw him, her calf, hanged on the dread Tree, raised up a cry of great grief.
+The heifer, when she saw him,
+her calf, hanged on the dread Tree,
+raised up a cry of great grief.
 
 I have seen the senseless, and I burned, for they have not kept your law.
 
-See, noble Joseph buries the one life-bearing Body, and Nicodemus helps him.
+See, noble Joseph buries
+the one life-bearing Body,
+and Nicodemus helps him.
 
 See I have loved your commandments; O Lord, in your mercy give me life.
 
-The weeping Maiden cried out, and from her eyes hot tears pour, as to the heart she is pierced.
+The weeping Maiden cried out,
+and from her eyes hot tears pour,
+as to the heart she is pierced.
 
 The beginning of your words is truth; and all the judgements of your justice are for ever.
 
-‘O Light that gives my eyes light, my gentle Son, my sweet Child, why does the tomb now hide you?’
+‘O Light that gives my eyes light,
+my gentle Son, my sweet Child,
+why does the tomb now hide you?’
 
 Rulers have persecuted me for no reason, and my heart has been in awe of your words.
 
-‘To free both Eve and Adam, Mother, this I suffer. Come, do not grieve and sorrow.’
+‘To free both Eve and Adam,
+Mother, this I suffer.
+Come, do not grieve and sorrow.’
 
 I shall rejoice over your words, like one who has found much spoil.
 
-‘The depth of your compassion, I glorify my dear Son, which makes you suffer these things.’
+‘The depth of your compassion,
+I glorify my dear Son,
+which makes you suffer these things.’
 
 Injustice I hated and abhorred, but I loved your law.
 
-They gave you gall to drink, Lord, and vinegar, Most Loving: the apple’s taste now passes.
+They gave you gall to drink, Lord,
+and vinegar, Most Loving:
+the apple’s taste now passes.
 
 Seven times a day I praised you for the judgements of your justice.
 
-To a post they nailed you, who once your people sheltered below a cloudy pillar.
+To a post they nailed you,
+who once your people sheltered
+below a cloudy pillar.
 
 There is much peace for those who love your law, and there is no stumbling for them.
 
-Myrrh-bearing women, Saviour, approach your tomb to bring you the sweet myrrh to anoint you.
+Myrrh-bearing women, Saviour,
+approach your tomb to bring you
+the sweet myrrh to anoint you.
 
 I looked for your salvation, O Lord, and I loved your commandments.
 
-Arise, O Lord of mercy, and from the depths of Hades now raise us all up with you.
+Arise, O Lord of mercy,
+and from the depths of Hades
+now raise us all up with you.
 
 My soul has kept your testimonies, because all your ways are before me, O Lord.
 
-Through her tears, your Mother, who gave you birth now cries out ‘Arise, O Giver of life.’
+Through her tears, your Mother,
+who gave you birth now cries out
+‘Arise, O Giver of life.’
 
 I have kept your commandments and your testimonies; for all my ways are before you, O Lord.
 
-Make haste to rise again, Word, abolish now her grieving, the all pure Maid, who bore you.
+Make haste to rise again, Word,
+abolish now her grieving,
+the all pure Maid, who bore you.
 
 Let my prayer enter your presence, O Lord; make me understand in accordance with your word.
 
-Heavens awesome powers stood amazed in terror, to see you lying lifeless.
+Heavens awesome powers
+stood amazed in terror,
+to see you lying lifeless.
 
 Let my request come into your presence, O Lord; deliver me in accordance with your word.
 
-To those who love and fear you, and honour your dread Passion, now give release from all faults.
+To those who love and fear you,
+and honour your dread Passion,
+now give release from all faults.
 
 Let my lips burst into song, whenever you teach me your statutes.
 
-A dread and most strange sight, this, O Word of God now tell us, how can earth cover you, Lord?
+A dread and most strange sight, this,
+O Word of God now tell us,
+how can earth cover you, Lord?
 
 Let my tongue utter your words, because your commandments are justice.
 
-One Joseph bore you, Saviour with him in flight, a second, to burial now bears you.
+One Joseph bore you, Saviour
+with him in flight, a second,
+to burial now bears you.
 
 May your hand be there to save me, because I have chosen your commandments.
 
-Your all-pure Mother, Saviour, with tears and lamentation now mourns for you, who lie slain.
+Your all-pure Mother, Saviour,
+with tears and lamentation
+now mourns for you, who lie slain.
 
 I have longed for your salvation, O Lord, and your law is my meditation.
 
-All Heaven’s angels tremble Creator of the Cosmos, at your strange, dread entombment.
+All Heaven’s angels tremble
+Creator of the Cosmos,
+at your strange, dread entombment.
 
 My soul will live and praise you, and your judgements will help me.
 
-Myrrh-bearers came and sprinkled sweet myrrh upon your tomb, Lord, at early dawn they come now. \[**In Greek use sung three times, while the Priest sprinkles the Shroud with sweet fragrances and flowers\]**
+Myrrh-bearers came and sprinkled
+sweet myrrh upon your tomb, Lord,
+at early dawn they come now.
+\[**In Greek use sung three times, while the Priest sprinkles the Shroud with sweet fragrances and flowers\]**
 
 I have gone astray like a lost sheep; seek your servant, because I have not forgotten your commandments.
 
-Peace unto your Church, Lord, salvation to your people, grant by your Resurrection.
+Peace unto your Church, Lord,
+salvation to your people,
+grant by your Resurrection.
 
 Glory.
 
-Father, Son and Spirit, O Trinity, my One God, have mercy on the whole world.
+Father, Son and Spirit,
+O Trinity, my One God,
+have mercy on the whole world.
 
 Both now.
 
-Count all your servants worthy, to see, Most Holy Virgin, you Son’s bright Resurrection.
+Count all your servants worthy,
+to see, Most Holy Virgin,
+you Son’s bright Resurrection.
 
 ****
 
 And again the first Troparion.
 
-Each generation offers, my Christ, for your entombment in hymns and songs its praises.
+Each generation offers,
+my Christ, for your entombment
+in hymns and songs its praises.
 
 ****
 
@@ -1209,7 +1731,8 @@ Reader:
 
 Amen. ****
 
-Then we sing the following Kathismata. Tone 1.
+Then we sing the following Kathismata.
+Tone 1.
 
 Joseph begged your revered Body of Pilate and anointing it with sweet-smelling spices placed it in pure linen in a new grave. Wherefore at dawn the myrrh-bearing women cried out, ‘Show us, O Christ, as you foretold, your Resurrection’.
 
@@ -1317,7 +1840,8 @@ Reader:
 
 Amen. ****
 
-Then we sing the following Kathismata. Tone 1. Model Melody.
+Then we sing the following Kathismata.
+Tone 1. Model Melody.
 
 The soldiers watching your tomb became as dead men at the lightning flash of the Angel who appeared and proclaimed the Resurrection to the women. We glorify you, who destroy corruption; we fall down before you, who rose from the tomb and alone are our God.
 
@@ -1445,7 +1969,8 @@ On the holy and great Sabbath we celebrate the burial of our Lord and God and Sa
 
 Verses
 
-In vain, O guard, you keep watch on the tomb, No sepulchre can hold in life itself.
+In vain, O guard, you keep watch on the tomb,
+No sepulchre can hold in life itself.
 
 By your ineffable condescension, Christ, our God, have mercy on us. Amen.
 
@@ -1569,7 +2094,8 @@ Exapostilarion. Tone 2.
 
 **B**\] For he is holy. ****
 
-At Lauds we insert 4 idiomel Stichera. Tone 6
+At Lauds we insert 4 idiomel Stichera.
+Tone 6
 
 Psalm 148
 
@@ -1897,7 +2423,8 @@ Verse:
 
 So shall sinners perish before the face of God.
 
-The Reading is from the Holy Gospel according to Matthew. \[**27:62-66\]**
+The Reading is from the Holy Gospel according to Matthew.
+\[**27:62-66\]**
 
 On the next day, which is after the Preparation, the chief priests and Pharisees came together to Pilate and said, ‘Sir, we remember that that deceiver said while he was still alive, ‘After three days I will arise.’ Give orders then for the tomb to be made secure until the third day, otherwise his disciples may come at night and steal him and tell the people that he has been raised from the dead. And the last deception will be worse than the first.’ Pilate said, ‘You have a watch. God, make it as secure as you can.’ So they went with the watch and made the tomb secure by sealing the stone.
 
@@ -2033,6 +2560,7 @@ Greater in honour than the Cherubim, and beyond compare more glorious than the S
 
 And at once he begins the First Hour.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

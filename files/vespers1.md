@@ -89,6 +89,7 @@ We worship your most pure icon, loving Lord, as we ask pardon of our offences, C
 
 **And the rest of the Service of the Vigil.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

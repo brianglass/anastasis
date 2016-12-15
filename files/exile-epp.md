@@ -7,8 +7,9 @@ These two texts by St Theodore remind us both of what we believe and what it cos
 
 The first of these letters of St Theodore to his exiled monks is a vivid reminder of the second of point. The year is 819. St Theodore, aged sixty, is imprisoned with one of his monks, Nicolas, in exile in Boneta in Anatolia. His community is also in exile and the monks are scattered. Nevertheless he still manages to communicate with them by letter, still manages in this way to give them his ‘catecheses’, or ‘instructions’. One of these, no doubt a vigorous defence of the veneration of icons, has reached the Emperor, the iconoclast Leo the Armenian, who has decided that St Theodore needs dealing with. This letter describes the result. There is also a vivid account of the incident in the two lives of St Theodore. Life B tells us that the beatings, one hundred lashes with rawhide whips, took place on 23 February. St Theodore spent many weeks between life and death. Nicolas ‘his outstanding servant, fellow athlete and companion’, says the Life, ‘could make him take hardly one small cup of water a day. But, as they were quite without medical care, he was allowed by his spiritual Father, like another Silas or Timothy, to cut away with a knife as was necessary the gangrenous bits of skin where it was hanging loose, so that in time the rest of his body might return little by little to stable health. In such constraint of bodily agonies then, Theodore, that pillar of fire of orthodoxy, passed through the whole stadium of the sacred Forty Days \[Lent\] and beyond, and his body had hardly been restored to a condition of wholeness until around the final days of the holy Fifty Days \[Pentecost\]’. In 819, 28 February would have been the first day of Lent, Clean Monday. Pascha was on 17 April and Pentecost 5 June.
 
-LETTERS BOOK II 38
-------------------
+LETTERS BOOK II
+38
+---------------
 
 **Theodore to his brotherhoods scattered everywhere**
 
@@ -25,8 +26,9 @@ The last part of the letter contains a number of allusions to the promises made 
 
 I translate the Greek verb *proskynein* by ‘worship’. To translate it ‘worship’ when it refers to God and ‘venerate’ it when it refers to icons is unwarranted, and reflects the damaging influence of the Protestant reformation on theological English. There is an interesting discussion of this question on David Melling’s page [Arimathea](http://www.orthodox.co.uk).
 
-LETTERS BOOK II 156
--------------------
+LETTERS BOOK II
+156
+---------------
 
 **To the brethren with his son Patrikios.**
 
@@ -34,6 +36,7 @@ Brothers and Fathers, I have been requested by your father, as I am both his fat
 
 Such is the right doctrine of the truth; this is the apostolic faith: to confess that Christ is circumscribed in the flesh. So wrote Basil the Great, “Let there be inscribed on a tablet Christ, the umpire of the contests.” And to honour the image inscribed, as Christ is worshipped in it. For Chrysostom the golden declares that he has seen an angel in an image \[For these two passages see St Theodore’s *Refutation of the Poems of the Iconoclasts* \[PG 99:468-469\], where they are quoted in full. St John uses the word “picture”, *graphê*\]. And if \[he saw\] one who is without a body in an image, how much more the Word who was embodied? And if he sees, it is clear that he also worships the angel in an image; just so Christ. For to be granted to see in a depiction is equivalent to worshipping, “since the honour of the image ascends to its prototype”, as Basil the Great also says. Those who insult Christ’s image, deny him, for through their rejection of the image they apply their rejection to him, even though they claim to confess Christ; in as much as the demons confess God \[*Cf. James 2:19*\], Scripture says, while they deny him by their works \[*Titus 1:16*\]. Great therefore, brothers, is their impiety, and great our confession, and in no way falls short of that of the martyrs of old. Therefore stand firm without wavering at all over those things whose truth has already been demonstrated; but submit yourselves to the struggles for this faith to shedding of blood, should occasion demand. From here there also dawns the radiant life, a sun from a sun; since the one is indeed proof of the other, as the Brother of God has declared \[*Cf. James 2:18*\]. Love God with the totality of your three powers\[*Cf. Matt. 22:37*\], as the commandment orders. Love yourselves also, as limbs of Christ. For by this, as Scripture says, all will know that you are my disciples, if you have love among each other \[*John 13:35*\]. Treat your superior with faith; let there be no one who has not confessed to him: such a person nourishes serpents. Let no one be tepid in his faith: such a person has no share in the fervour of the Holy Spirit. Let no one have secret possessions: such a person is no monk. Let no one be over confident in speech: such a person is a worker of destruction. Let no one be a secret eater: such a person is like a slave. Let no one give offence in anything, lest his service be brought into discredit, as the Apostle declares, but in everything let him conduct himself as God’s servant, with great endurance, in tribulations, in difficulties \[*2 Cor. 6:3-4*\], and in all the other circumstances, which he enumerates, so perfecting himself as a true Christian. Now if this is how the subject should be, what and how much should be required of the abbot, who should be held up as good exemplar for those he teaches? The struggle is great; but the reward is infinite, the kingdom of heaven, of which may we, both rulers and ruled, be found worthy by living godly lives in Christ Jesus our Lord. To whom be glory and might with the Father and the Holy Spirit, now and for ever and to the ages of ages. Amen.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

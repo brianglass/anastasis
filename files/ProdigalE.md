@@ -104,7 +104,8 @@ As I ponder the multitudes of dreadful things that I have done, wretch that I am
 
 The Canons. The Canon of the Resurrection, the Canon of the Cross and Resurrection, the Canon of the Mother of God, and of the Triodion. We sing the Office from the Menaion on the preceding Friday at Compline.
 
-Canon of the Triodion to 6. Composition of Kyr Joseph. Acrostic in Ode 9:
+Canon of the Triodion to 6.
+Composition of Kyr Joseph. Acrostic in Ode 9:
 
 <span style="text-transform: uppercase">Joseph</span>**.**
 
@@ -252,7 +253,8 @@ On this day we commemorate the parable of the Profligate Son from the holy Gospe
 
 Verses.
 
-If you’re a Profligate, like me, take heart! All doors to God’s compassion open lie.
+If you’re a Profligate, like me, take heart!
+All doors to God’s compassion open lie.
 
 By your ineffable love for humankind, Christ our God, have mercy on me.
 
@@ -326,7 +328,9 @@ Who of those born of earth has heard the like? Or who has ever seen that a Virgi
 
 ****
 
-The appointed Exapostilarion of the Resurrection and the following of the Triodion. Women hear.
+The appointed Exapostilarion of the Resurrection
+and the following of the Triodion.
+Women hear.
 
 By uselessly leaving home, wretch that I am, I wickedly wasted the wealth of grace that you gave me. And living like the Profligate I squandered my wealth deceitfully to demons. But now, as I return, accept me like the Profligate, merciful Father, and save me.
 
@@ -402,6 +406,7 @@ Great Doxology. the two Litanies, and the Dismissal. The usual Liti, at which we
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

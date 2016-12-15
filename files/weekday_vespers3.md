@@ -339,6 +339,7 @@ Glory. Both now.
 
 As we have you as hope and protection, O Mother of God, we are not afraid of the assaults of enemies, for you save our souls.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

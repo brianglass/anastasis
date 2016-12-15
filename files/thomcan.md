@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](john-dam.md) \] \[ Antipascha \] \[ [First Canon for the Assumption](asccan01.md) \] \[ [Second Canon for Pentecost](pentcan2.md) \] \[ [Prophet Elias](20julcan.md) \] \[ [Symeon Stylites](symeon.md) \] \[ [Protomartyr Thekla](TheklaCan.md) \] \[ [Pascha](PaschaCan.md) \] \[ [Paschal Canon with Notes](paschal_canon_with_notes.md) \]
 
-**CANON FOR THE SUNDAY OF ANTIPASCHA**
+**CANON FOR THE SUNDAY OF ANTIPASCHA
+**
 
 THE HANDLING BY THE APOSTLE THOMAS
 ----------------------------------
@@ -107,6 +108,7 @@ You whose side was handled by a hand of dust and did not burn it with the fire o
 
 You, O Christ, who arose from the tomb as God, we who see not with our eyes, but who have believed with the longing of the heart, in hymns we magnify.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -53,7 +53,9 @@ Lord, have mercy (
 
 **x12**). Glory. Both now.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -305,7 +307,8 @@ Verse 4.
 
 Bring evils upon them, O Lord, bring evils upon them, the glorious ones of the earth. ****
 
-Then the following Troparion is sung solemnly 3 times. Tone 8
+Then the following Troparion is sung solemnly 3 times.
+Tone 8
 
 When the glorious disciples were enlightened at the washing of the feet, then Judas the ungodly was stricken and darkened with the love of money; and to lawless judges he delivered you, the just judge. O lover of money, look upon him who for its sake hanged himself; flee from the insatiable soul, which dared such things against the Teacher. O you who are good to all, Lord, glory to you.
 
@@ -593,19 +596,24 @@ On holy and great Thursday the godlike Fathers have arranged all things well and
 
 Verses for the sacred Washing
 
-At evening God washed the Disciples’ feet, Whose foot once walked in Eden before dusk. ****
+At evening God washed the Disciples’ feet,
+Whose foot once walked in Eden before dusk. ****
 
 For the Mystical Supper
 
-Double the Supper that Law’s Pascha brings And Pascha new: the Master’s Body, Blood. ****
+Double the Supper that Law’s Pascha brings
+And Pascha new: the Master’s Body, Blood. ****
 
 For the transcendent Prayer
 
-Prayer; and great terror, drops of blood, O Christ, drop from your face, as pleading to Escape from death, by this you cheat the foe. ****
+Prayer; and great terror, drops of blood,
+O Christ, drop from your face, as pleading to
+Escape from death, by this you cheat the foe. ****
 
 For the Betrayal
 
-What need of swords, of staves, O erring folk, ‘Gainst one who longs to die for world’s release?
+What need of swords, of staves, O erring folk,
+‘Gainst one who longs to die for world’s release?
 
 In your ineffable compassion, Christ our God, have mercy on us. Amen.
 
@@ -711,13 +719,15 @@ Reader:
 
 Amen. ****
 
-After the small litany, the Exapostilarion sung slowly and solemnly: Tone 3. Model Melody.
+After the small litany, the Exapostilarion sung slowly and solemnly:
+Tone 3. Model Melody.
 
 Your bridal chamber, O my Saviour, I see all adorned, but I have no garment so that I may enter it. Make bright the mantle of my soul, O Giver of light, and save me! (
 
 **x3**) ****
 
-At Lauds we insert 4 Idiomel Stichera. Tone 2
+At Lauds we insert 4 Idiomel Stichera.
+Tone 2
 
 Psalm 148
 
@@ -937,7 +947,8 @@ Reader:
 
 Amen. ****
 
-After the Litany and the Prayer at the Bowing down of heads, the Aposticha: Tone 8
+After the Litany and the Prayer at the Bowing down of heads, the Aposticha:
+Tone 8
 
 Today the wicked Sanhedrin against Christ has assembled, and devised vain things against him, to hand the innocent over to Pilate for death. Today Judas places round his neck the noose of money, and is deprived of both this transient life and of life divine. To-day Caiaphas involuntarily prophesies, saying, ‘It is expedient that one man perish for the people’; for he has come to suffer for our sins, that he may free us from the slavery of the enemy, as he is good and loves humankind.
 
@@ -1081,6 +1092,7 @@ Greater in honour than the Cherubim, and beyond compare more glorious than the S
 
 And at once he begins the First Hour.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -6,7 +6,8 @@ ON WEDNESDAY MORNING
 AT MATINS
 ---------
 
-<span style="color:red;letter-spacing:-.1pt;mso-bidi-font-style:italic">After the 1st Reading from the Psalter, Kathismata of the Cross.</span><span style="color:red"> Tone 1. </span>
+<span style="color:red;letter-spacing:-.1pt;mso-bidi-font-style:italic">After the 1st Reading from the Psalter, Kathismata of the Cross.</span><span style="color:red">
+Tone 1. </span>
 
 Lord, save your people and bless your inheritance, granting to faithful Christians victory over their enemies, and protecting your commonwealth by your Cross.<a href="#_ftn1" id="_ftnref1">[1]</a>
 
@@ -51,13 +52,16 @@ mso-bidi-font-style:italic">Verse:</span> God is wonderful in his Saints, the Go
 
 Be entreated by the sufferings, which the Saints endured for you, O Lord; and heal all our pains, we beg, O Lover of mankind.<a href="#_ftn7" id="_ftnref7">[7]</a>
 
-<span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Cross-Theotokion. The soldiers watching.</span>
+<span style="mso-bidi-font-style:italic">Glory. Both now.</span> <span style="color:red">Cross-Theotokion.
+The soldiers watching.</span>
 
 The spotless Ewe-lamb, seeing the Lamb and Shepherd hanging dead upon the tree, cried out with tears, and lamenting as a mother aid, ‘How shall I hymn your condescension, my Son,  which is beyond understanding, and your voluntary sufferings, my God supremely good?’
 
-<span style="color:red">Canon of the Cross, whose acrostic is:</span> I shall be saved by the Cross of the Master who suffered. Joseph.
+<span style="color:red">Canon of the Cross, whose acrostic is:</span>
+I shall be saved by the Cross of the Master who suffered. Joseph.
 
-<span style="color:red">Ode 1. Tone 1. Irmos. To the tune of</span> ‘Christ is born’.<a href="#_ftn8" id="_ftnref8">[8]</a>
+<span style="color:red">Ode 1. Tone 1. Irmos.
+To the tune of</span> ‘Christ is born’.<a href="#_ftn8" id="_ftnref8">[8]</a>
 
 Delivered from bitter slavery, Israel crossed the impassable as on dry land. Seeing the enemy drowning, as to a benefactor he sang a hymn to God who works wonders with uplifted arm, for he has been glorified.<a href="#_ftn9" id="_ftnref9">[9]</a>
 
@@ -91,7 +95,8 @@ Delivered from bitter slavery, Israel crossed the impassable as on dry land. See
 
 <span style="color: red">G</span> Do not despise me, Sovereign Lady, who ever stumble by my own will, am dragged down by evil thoughts, madly ensnared and easily quite overmastered by my foes.
 
-<span style="color:red">Ode 3. Irmos. To the tune: </span>To the Son begotten of the Father.
+<span style="color:red">Ode 3. Irmos.
+To the tune: </span>To the Son begotten of the Father.
 
 Let no mortal boast in their wisdom or their wealth<a href="#_ftn17" id="_ftnref17">[17]</a>, but in faith of the Lord, crying out with right belief to Christ our God and ever singing, ‘Establish me, Master, on the rock of your com­mand­ments.’
 
@@ -123,7 +128,8 @@ Let no mortal boast in their wisdom or their wealth<a href="#_ftn17" id="_ftnref
 
 <span style="color:red">Z</span> Snatch me, O Virgin, from a tempest of disgraceful thoughts, dangers, afflictions, and temptations; guide me straight to divine havens and fill my mind with calm, O only All-praised.
 
-<span style="color:red">Ode 4. Irmos. To the tune: </span>Rod out of Jesse’s root.
+<span style="color:red">Ode 4. Irmos.
+To the tune: </span>Rod out of Jesse’s root.
 
 Wondrous Avvakoum of old heard your report, O Christ, and cried out in fear, ‘O God, you will come from Theman, and O Holy One from a shaded, wooded mountain to save your anointed ones. Glory to your power, O Lord!’<a href="#_ftn30" id="_ftnref30">[30]</a>
 
@@ -155,7 +161,8 @@ Wondrous Avvakoum of old heard your report, O Christ, and cried out in fear, ‘
 
 <span style="color:red">I </span>The Lord, to whom you gave birth from your pure blood, pure Virgin, is my strength and my song<a href="#_ftn44" id="_ftnref44">[44]</a>. Therefore implore him continually that your servant may be kept pure in soul and body.
 
-<span style="color:red">Ode 5. Irmos. To the tune: </span>As you are God of peace.
+<span style="color:red">Ode 5. Irmos.
+To the tune: </span>As you are God of peace.
 
 Light in the hearts of those who sing your praise with faith, O Christ, your light that never sets, granting us peace that is beyond understanding, so that as we run from the night of ignorance to the day of your commandments, we may glorify you, Lover of humankind.
 
@@ -187,7 +194,8 @@ Light in the hearts of those who sing your praise with faith, O Christ, your lig
 
 <span style="color:red">M</span> Having withered up through your offspring the sin which sprang from a tree, wither up my fleshly thoughts and the stirrings and hostile waves of passions, that I may sing your praise, O All-praised.<a href="#_ftn56" id="_ftnref56">[56]</a>
 
-<span style="color:red">Ode 6. Irmos. To the tune:</span> The monster from the deep.
+<span style="color:red">Ode 6. Irmos.
+To the tune:</span> The monster from the deep.
 
 I am wholly in the grip of numberless passions, I have fallen together with a sea monster of evils; but bring me up from corruption, O God, as you one brought Jonas, and with faith grant me dispassion, that I may sacrifice to you with a voice of saving praise.<a href="#_ftn57" id="_ftnref57">[57]</a>
 
@@ -219,7 +227,8 @@ I am wholly in the grip of numberless passions, I have fallen together with a se
 
 <span style="color:red">O</span> The timeless Son was born in time, being brought to birth from you. Implore him, pure Virgin, to heal the chronic passions of my heart guide me to everlasting life.<a href="#_ftn62" id="_ftnref62">[62]</a>
 
-<span style="color:red">Ode 7. Irmos</span> <span style="color:red">To the tune,</span> The Youths brought up together
+<span style="color:red">Ode 7. Irmos</span>
+<span style="color:red">To the tune,</span> The Youths brought up together
 
 The Youths, who of old were clearly revealed as holy, entered the unbearable flame of the furnace as if it were a bridal chamber, and singing with one accord they raised the hymn, ‘God of our Fathers, blessed are you’.<a href="#_ftn63" id="_ftnref63">[63]</a>
 
@@ -251,7 +260,8 @@ The Youths, who of old were clearly revealed as holy, entered the unbearable fla
 
 <span style="color: red">S</span> Immaculate, All-blameless, who bore the Source of life, by your prayers give life to me who have been grievously put to death by the attacks of the demons, as I sing to your Son, ‘God of the Fathers, praised and highly glorified!’
 
-<span style="color:red">Ode 8. Irmos To the tune, </span>The furnace moist with dew.
+<span style="color:red">Ode 8. Irmos
+To the tune, </span>The furnace moist with dew.
 
 The furnace bedewed<a href="#_ftn70" id="_ftnref70">[70]</a> with fire revealed of old an image of a wonder beyond nature, for the fire did not consume the young Men, depicting the Christ’s divine Nativity without seed from a Virgin. Therefore let us raise the hymn and sing, ‘Let all creation bless the Lord and highly exalt him to all the ages’.
 
@@ -283,7 +293,8 @@ The furnace bedewed<a href="#_ftn70" id="_ftnref70">[70]</a> with fire revealed 
 
 <span style="color: red">F</span> Virgin wholly light, who gave birth to God, the Giver of light, illuminate the eyes of my heart with the light of the knowledge of God, that I may chant, ‘All you his works bless the Lord, praise and highly exalt him to all the ages’.<a href="#_ftn72" id="_ftnref72">[72]</a>
 
-<span style="color:red">Ode 9. Irmos To the tune,</span> A strange and wonderful mystery.
+<span style="color:red">Ode 9. Irmos
+To the tune,</span> A strange and wonderful mystery.
 
 Ineffable is the mystery of the Virgin. For she has been revealed as heaven, the cherubim throne<a href="#_ftn73" id="_ftnref73">[73]</a> and the light-bearing bridal chamber<a href="#_ftn74" id="_ftnref74">[74]</a> of Christ, God the Almighty. As Mother of God her we devoutly magnify.
 
@@ -337,7 +348,8 @@ Through your Cross, O Christ, there has come into being one flock of Angels and 
 
 All-praised Martyrs, nor tribulation, nor suffering, nor starvation, nor persecution, nor scourgings, nor the rage of wild beasts, nor sword nor threatening fire could separate you from God; rather through love for him as though in bodies not your own you struggled and surpassed nature, despising death; and so you have fittingly received the reward of your toils and have become heirs of the Kingdom of heaven. Intercede unceasingly for our souls.
 
-<span style="mso-bidi-font-style:italic">Glory. Both now<span style="color:red">.</span></span> <span style="color:red">Cross-Theotokion. Joy of the heavenly ranks.</span>
+<span style="mso-bidi-font-style:italic">Glory. Both now<span style="color:red">.</span></span> <span style="color:red">Cross-Theotokion.
+Joy of the heavenly ranks.</span>
 
 As she stood by your Cross, O Word of God, the Ewe-lamb, your blameless Mother, cried in lamentation, ‘How can you be dying on a Cross, my Son? Alas my sweetest light, where has the beauty of your form now set, that was lovelier than all mortals?’
 
@@ -521,6 +533,7 @@ EL">Παρθένος</span><span style="font-size:12.0pt;font-family:&quot;GR T
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

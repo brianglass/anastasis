@@ -2,8 +2,10 @@
 
  
 
-REGULATION FOR THE SERVICE OF THE DEDICATION OF A CHURCH
-========================================================
+REGULATION
+FOR THE SERVICE OF THE
+DEDICATION OF A CHURCH
+======================
 
 ****
 
@@ -151,6 +153,7 @@ The Deacon says the Small Litany and the Bishop the Ekphonesis, ‘For to you be
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

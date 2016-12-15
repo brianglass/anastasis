@@ -44,7 +44,8 @@ You were crucified with Christ, O Revealer of mysteries, when you cried aloud th
 
 Glory.
 
-**Tone 8 By Anatolios**
+**Tone 8
+By Anatolios**
 
 Godbearer Ignatios, you enfolded Christ your love in your embrace, and you received the reward of your priestly service of the Gospel: to be perfected through blood; and so, becoming wheat of the immortal husbandman, you were ground by the teeth of wild beasts and were revealed as sweet bread for him. Blessed Athlete, intercede on our behalf.
 
@@ -56,7 +57,8 @@ Bethlehem, receive the Mother City of God; for the Light that does not set has c
 
 ****
 
-At the Aposticha, Idiomel Stichera of the Forefeast. Tone 2. By Kyprianos.
+At the Aposticha, Idiomel Stichera of the Forefeast.
+Tone 2. By Kyprianos.
 
 Bethlehem, land ofJuda, city according to the flesh, radiantly make ready the divine Cave, in which God comes to birth in flesh from a Holy Virgin who knows not man, to save our race.
 
@@ -82,7 +84,8 @@ O house of Ephratha, the holy City, the glory of the Prophets, make ready the ho
 
 Glory.
 
-**Of the Saint. Tone 1. By Theodore the Studite**
+**Of the Saint. Tone 1.
+By Theodore the Studite**
 
 How firm and adamantine was your soul, most blessed Ignatios! For as you had an unyielding desire for your true lover, you said, ‘There is in me no matter-loving fire, but rather living water, which speaks in me, and from within says to me: Come to the Father’; therefore, fired by the divine Spirit, you roused wild beasts to part you quickly from the world and send you to Christ the beloved; implore him that our souls may be saved.
 
@@ -150,7 +153,8 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter, Kathisma. Tone 1. The soldiers watching.
+After the 1st Reading from the Psalter, Kathisma.
+Tone 1. The soldiers watching.
 
 He who bowed the heavens and dwelt in the Virgin comes forth in flesh to be born in the Cave of Bethlehem, as it is written, and to be seen as a babe, he who gives life to babes in the womb; rejoicing in him, let us all now go to meet him in uprightness of heart.
 
@@ -396,7 +400,10 @@ On the 20th of the same month, Commemoration of holy Bishop and Martyr Ignatios 
 
 Verses
 
-A feast for lions, Ignatios, you were made, Brave lion, sharer in the mystic feast. For on the twentieth day by the jaws of the lions he perished.
+*
+*A feast for lions, Ignatios, you were made,
+Brave lion, sharer in the mystic feast.
+For on the twentieth day by the jaws of the lions he perished.
 
 On the same day, Commemoration of our venerable Father Philogonios; an advocate who became bishop of Antioch.
 
@@ -404,7 +411,8 @@ On the same day, Commemoration of our venerable Father Philogonios; an advocate 
 
 Verses
 
-A lawyer, Philogonios leaves life, Running the good path of the laws of God.
+A lawyer, Philogonios leaves life,
+Running the good path of the laws of God.
 
 The holy new martyr John, from the island of Thasos was martyred in Constantinople in 1652,dying by the sword.
 
@@ -544,7 +552,9 @@ Believers, let us now with faith make songs resound for the Forefeast of the Nat
 
 At Lauds we insert 6 Stichera, and we sing the following Prosomia, in alphabetical order.
 
-A composition by Romanos the Melodist \[?\] The acrostic is the Alphabet. Tone 6. Model Melody.
+A composition by Romanos the Melodist \[?\]
+The acrostic is the Alphabet.
+Tone 6. Model Melody.
 
 Angelic Powers, advance; people of Bethlehem, prepare the Manger; for the Word is born; Wisdom goes forth; Church, receive greeting; peoples let us say for the joy of the Mother of God: Blessed is he who has come; our God, glory to you. (
 
@@ -608,6 +618,7 @@ Cave, make ready; for the Ewe-lamb has come, bearing Christ in her womb. Manger,
 
 The rest of the Office of Matins as usual, and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -37,6 +37,7 @@ I magnify you greatly, O Lord, because you have looked upon my lowliness, and ha
 
 Then the rest of the Office as on ordinary weekdays.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

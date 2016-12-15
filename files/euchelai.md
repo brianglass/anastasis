@@ -4,14 +4,17 @@
 
 **OFFICE OF THE HOLY OIL**
 
-Sung by Seven Priests assembled in Church or in a house
--------------------------------------------------------
+Sung by Seven Priests
+assembled in Church or in a house
+---------------------------------
 
 ****
 
 The senior Priest having given the blessing:
 
-Blessed is our God, always now and for ever, and to the ages of ages. **we begin:** Amen. Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**).
+Blessed is our God, always now and for ever, and to the ages of ages.
+**we begin:**
+Amen. Holy God, Holy Strong, Holy Immortal, have mercy on us (**three times**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -35,7 +38,9 @@ Lord, have mercy (
 
 **x12**). Glory to the Father and to the Son and to the Holy Spirit, both now and for ever and to the ages of ages. Amen.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -445,7 +450,8 @@ Verse:
 
 Rejoice in the Lord, you righteous; praise becomes the upright.
 
-The Reading is from the General Epistle of James. \[
+The Reading is from the General Epistle of James.
+\[
 
 **5:10-16**\] ****
 
@@ -459,7 +465,8 @@ Verse:
 
 I will sing to you of mercy and judgement, O Lord.
 
-The Reading is from the holy Gospel according to Luke. \[
+The Reading is from the holy Gospel according to Luke.
+\[
 
 **10:25-37**\]
 
@@ -541,7 +548,8 @@ Verse:
 
 You have chastened me hard, Lord, but have not handed me over to death.
 
-The Reading is from the Epistle of Paul to the Romans. \[
+The Reading is from the Epistle of Paul to the Romans.
+\[
 
 **15:1-7**\] ****
 
@@ -555,7 +563,8 @@ Verse:
 
 I will sing of your acts of mercy, Lord, for ever.
 
-The Reading is from the holy Gospel according to Luke. \[
+The Reading is from the holy Gospel according to Luke.
+\[
 
 **19:1-11**\] ****
 
@@ -613,7 +622,8 @@ Verse:
 
 The Lord is the protector of my life, of whom shall I be afraid?
 
-The Reading is from the First Epistle of Paul to the Corinthians. \[
+The Reading is from the First Epistle of Paul to the Corinthians.
+\[
 
 **12:27-13:7**\] ****
 
@@ -687,7 +697,8 @@ Verse:
 
 Lord, hear my prayer and let my cry come to you.
 
-The Reading is from the Second Epistle of Paul to the Corinthians. \[
+The Reading is from the Second Epistle of Paul to the Corinthians.
+\[
 
 **6:16-7:1**\] ****
 
@@ -701,7 +712,8 @@ Verse:
 
 Patiently I waited for the Lord, and he heard me.
 
-The Reading is from the holy Gospel according to Matthew. \[
+The Reading is from the holy Gospel according to Matthew.
+\[
 
 **8:14-23**\]
 
@@ -759,7 +771,8 @@ Verse:
 
 Save me, O Lord, for there is no godly one left.
 
-The Reading is from the Second Epistle of Paul to the Corinthians. \[
+The Reading is from the Second Epistle of Paul to the Corinthians.
+\[
 
 **1:8-11**\]
 
@@ -773,7 +786,8 @@ Verse:
 
 I will sing of your mercies, O Lord, for ever.
 
-The Reading is from the holy Gospel according to Matthew. \[
+The Reading is from the holy Gospel according to Matthew.
+\[
 
 **25:1-14**\]
 
@@ -827,7 +841,8 @@ Verse:
 
 Create a clean heart within me, O God, and renew an upright spirit within me.
 
-The Reading is from the Epistle of Paul to the Galatians. \[
+The Reading is from the Epistle of Paul to the Galatians.
+\[
 
 **5-22-6:2**\] ****
 
@@ -841,7 +856,8 @@ Verse:
 
 Blessed is the man who fears the Lord; he delights greatly in his commandments.
 
-The Reading is from the holy Gospel according to Matthew. \[
+The Reading is from the holy Gospel according to Matthew.
+\[
 
 **15:14-29**\] ****
 
@@ -899,7 +915,8 @@ Verse:
 
 Have mercy on me, O Lord, for I am weak.
 
-The Reading is from the first Epistle of Paul to the Thessalonians. \[
+The Reading is from the first Epistle of Paul to the Thessalonians.
+\[
 
 **5:14-24**\] ****
 
@@ -913,7 +930,8 @@ Verse:
 
 May the Lord hear you in the day of trouble; may the God of Jacob shield you.
 
-The Reading is from the holy Gospel according to Matthew. \[
+The Reading is from the holy Gospel according to Matthew.
+\[
 
 **9:9-13**\] ****
 
@@ -1017,6 +1035,7 @@ Bless, holy Fathers, and pardon me, a sinner (
 
 When they have received their blessing and pardon they depart giving thanks to God.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

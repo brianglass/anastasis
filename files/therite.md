@@ -687,8 +687,9 @@ Amen.
 4
 -
 
-THE ANOINTING OF THE HOLY TABLE AND CONSECRATION OF ANTIMENSIA
---------------------------------------------------------------
+THE ANOINTING OF THE HOLY TABLE
+AND CONSECRATION OF ANTIMENSIA
+-------------------------------
 
 **With the priests standing near the Bishop and when the antimensia have been placed on the four corners of the Table, the Bishop takes a jar full of vine-water or rose-water or white wine and pouring from it three times, he washes the holy Table and wipes it with the antimensia, as he chants the following:**
 
@@ -753,7 +754,8 @@ When the Table has been wiped with the Antimensia, these are laid aside again by
 5
 -
 
-THE VESTING OF THE HOLY TABLE AND CONSECRATION OF THE CHURCH
+THE VESTING OF THE HOLY TABLE
+AND CONSECRATION OF THE CHURCH
 
 ****
 
@@ -814,7 +816,8 @@ Amen.
 6
 -
 
-CONCLUDING PRAYERS AND LIGHTING OF THE LAMPS
+CONCLUDING PRAYERS
+AND LIGHTING OF THE LAMPS
 
 ****
 
@@ -1034,6 +1037,7 @@ Blessed is the Kingdom**…, should be chanted by the Bishop.**
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

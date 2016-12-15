@@ -38,19 +38,23 @@ Who will not call you blessed, All-holy Virgin? Who will not hymn your child-bir
 
 <span style="color:red">Entrance, </span>O Joyful Light,<span style="color:red"> the prokeimenon of the day and the Readings.</span>
 
-The Reading is from the Prophecy of Isaias. \[<span style="color:red">40:1 and selection</span>\]
+The Reading is from the Prophecy of Isaias.
+\[<span style="color:red">40:1 and selection</span>\]
 
 Thus says the Lord: Comfort, comfort my people, says God. Priests, speak to the heart of Jerusalem. Comfort her, because her humiliation has been completed; for her has sin has been abolished, because she has received from the Lord’s hand double for her sins. A voice of one crying in the wilderness: Prepare the way of the Lord, make straight the paths of our God. Every valley will be filled and every mountain and hill made low; what is crooked will become straight, and the rough ways will be made smooth; and all flesh shall see the salvation of God. Go up onto a high mountain, you who bring good tidings to Sion; lift up your voice with strength, you who bring good tidings to Jerusalem. Lift it up, do not be afraid. I the Lord God, I, the God of Israel, will hearken and will not forsake them; but I will open rivers from the mountains and springs in the middle of plains. I will turn the wilderness into water meadows and the thirsty earth with water courses. Let the heavens rejoice from on high and let the clouds rain justice. Let the earth sprout and blossom with mercy and justice. Announce a voice of gladness to the end of the earth and let this be heard: Say that the Lord has delivered his servant Jacob. And if they thirst through deserts, he will bring water for them from a rock. Rejoice you barren who have never given birth, break out and shout, you who have never known birth pangs, for the children of the deserted are more than those of her who has a husband.
 
-The Reading is from the Prophecy of Malachy. \[<span style="color:red">3 & 4 and selection</span>\]
+The Reading is from the Prophecy of Malachy.
+\[<span style="color:red">3 & 4 and selection</span>\]
 
 Thus says the Lord Almighty: See, I am sending my Angel, my messenger, before your face, who will prepare your way before you. And the Lord whom you seek will come to his temple. And who will endure the day of his entrance? And who will withstand at his appearing? Because he will enter like fire in a smelting furnace and like the lye of launderers. And he will come to you in judgement; and he will be a swift witness against the wicked and against adulteresses and against those swear falsely in his name and those who do not fear him, says the Lord Almighty. Because I am the Lord your God, and I have not changed and you, children of Jacob, have perverted the laws and not kept them. Therefore turn back to me and I will turn back to you, says the Lord Almighty. And all the nations will call you blessed and you will know that I am the Lord who discern between just and lawless on the day on which I make a peculiar possession of those who love me. Know then and remember the law of Moses my servant, as I gave him commandment on Horeb, to all Israel ordinances and judgements. And see, I will send you Elias the Thesbite, before the great and manifest day of the Lord comes; he will turn again the heart of father to son and of a man to his neighbour, lest when I come I smite the earth grievously, says the Lord Almighty, God the Holy One of Israel.
 
-The Reading is from the Wisdom of Solomon. \[<span style="color:red">4:7, selection, & 5:1-7</span>\]
+The Reading is from the Wisdom of Solomon.
+\[<span style="color:red">4:7, selection, & 5:1-7</span>\]
 
 A just man if he comes to his end will be at rest. A just man who dies will condemn the ungodly who are alive; for they will see the end of a just man and will not understand what they counselled concerning him. For the Lord will break the ungodly, render them voiceless and cast them headlong, and he will shake them from the foundations and they will be utterly worsted in sorrow, and their memory shall perish. They shall come with fear at the accounting of their sins, and their iniquities will convict them to their face. Then the just will stand with much boldness in the face of those who afflicted him and made his toils of no account. When they see this they will be troubled with great fear and will be amazed at the wonder of his salvation. For they will say as they repent and with anguish they will groan and say: Is this he whom we fools once made a laughing stock and a byword of reproach? We reckoned his life folly and his end dishonour. How has he been numbered among the children of God and his lot with the Saints? Therefore we have erred from the way of truth and the light of righteousness has not shone on us and the sun has not dawned on us. We have been filled with paths of lawlessness and destruction and journeyed through trackless paths, but have not known the way of the Lord.
 
-**At the Aposticha, Idiomel Stichera. Tone 2.**
+**At the Aposticha, Idiomel Stichera.
+Tone 2.**
 
 Herald of repentance, John Baptist, when your head was struck off you sanctified the earth; because you made clear God’s law to the faithful and utterly destroyed lawlessness. As you stand before the throne of Christ the King of heaven, implore him to have mercy on our souls.
 
@@ -85,7 +89,8 @@ All your mysteries are beyond understanding, all beyond glory, Mother of God; se
 AT MATINS
 ---------
 
-**After the 1st reading from the Psalter, Kathisma. Tone 5. The Word without beginning.**
+**After the 1st reading from the Psalter, Kathisma.
+Tone 5. The Word without beginning.**
 
 The intermediary of law and grace let us the faithful, gathered together, praise with one accord, because he preached repentance to us and, when he openly and bravely denounced Herod, had his head struck off. And now he lives with the Angels and im­plores Christ that we may be saved.
 
@@ -93,11 +98,13 @@ The intermediary of law and grace let us the faithful, gathered together, praise
 
 The astounding wonder of your con­ceiving and the ineffable birth-giving of your womb have been made known in you, pure Ever-Virgin. Your glory, Mother of God, which is unfurled over all for our salvation, amazes my mind and astounds my thought.
 
-**After the 2nd Reading from the Psalter, Kathisma. Tone 5. The Word without beginning.**
+**After the 2nd Reading from the Psalter, Kathisma.
+Tone 5. The Word without beginning.**
 
 The one who was revealed to us as a Prophet from the womb and who came forth radiantly from a barren woman as a beacon for the inhabited world, the Baptist of Christ, the vic­torious athlete, the Forerunner John, let us praise in songs, for he inter­cedes with the Lord to have mercy on our souls.
 
-**After the Polyeleos, Kathisma. Tone 8. The Wisdom and Word.**
+**After the Polyeleos, Kathisma.
+Tone 8. The Wisdom and Word.**
 
 By God’s decree you shone out from the barren woman, broke open the bonds on your father’s tongue and revealed the Sun that shines with the light of dawn. And in the wilderness you preached the Creator to the peoples, the Lamb that takes away the faults of the world. There­fore too with fervour you rebuked the king and your head was struck off, famous and all-praised John. Intercede with Christ God to grant forgiveness of faults to those who celebrate with love your holy memory.
 
@@ -113,7 +120,8 @@ Precious in the sight of the Lord is the death of his Holy One.
 
 <span style="color:red">Verse</span>*:*  What return may we make to the Lord for that he has given us?
 
-**Gospel according to Matthew. (See Tuesday of the 7th week of Matthew)**
+**Gospel according to Matthew.
+(See Tuesday of the 7th week of Matthew)**
 
 **Psalm 50, read.**
 
@@ -133,7 +141,9 @@ Herald of repentance, John Baptist, when you head was struck off you hallowed th
 
 <span style="color:red;font-style:normal">After this are sung the Canons; that of the [Mother of God](lparacan.md) \[from the Little Paraklesis\] to 6 and the following 2 of the Saint to 8. </span>
 
-**First Canon of the Saint. A composition of Monk John. Ode 1. Tone 8. Crossing the sea.**
+**First Canon of the Saint.
+A composition of Monk John.
+Ode 1. Tone 8. Crossing the sea.**
 
 Let us sing praise of the Prophet who appeared from a barren womb, the sacred Forerunner of the One who was born ineffably from a virgin womb.
 
@@ -145,7 +155,8 @@ Nourished on the milk of the law, sealing, like a seal of the law, the legislati
 
 Ranks of Angels and of mortals praise you without ceasing, Mother without bridegroom, for you carried in your arms as a babe their Creator.
 
-**Second Canon. Tone 8. With your mighty right hand.**
+**Second Canon.
+Tone 8. With your mighty right hand.**
 
 Let us all praise godlike John, to whom above all mortals Christ bore witness as his Forerunner and friend.
 
@@ -297,7 +308,10 @@ The birthday feast of Herod appeared to all as unholy, for among the revellers t
 
 On the 29th of the month, com­memoration of the beheading of the honoured head of the holy, glorious Prophet, Forerunner and Baptist John.
 
-**Verses A murderous hand with sword cuts off the head** Of him who on the Lord’s head placed his hand. Bronze on the twenty ninth day with a blow smote the neck of the Baptist.
+**Verses
+A murderous hand with sword cuts off the head**
+Of him who on the Lord’s head placed his hand.
+Bronze on the twenty ninth day with a blow smote the neck of the Baptist.
 
 On the same day, commemoration of the venerable Theodora of Thessaloniki, who came from Aegina.
 
@@ -401,7 +415,9 @@ Dissolute Herod treacherously cut off your head, planter of purity, Baptist of t
 
 Holy Maiden, who abolished by your divine childbearing the curse of the world, deliver by your prayers from dangers of every kind the flock that faithfully entreats you.
 
-**At Lauds we insert 4 Stichera and we sing three Prosomia, doubling the first. Tone 8. O marvellous wonder!**
+**At Lauds we insert 4 Stichera and we sing three Prosomia,
+doubling the first.
+Tone 8. O marvellous wonder!**
 
 O marvellous wonder! A dissolute, licentious girl carries round the sacred head revered by Angels. She offers to her adulterous mother the tongue that rebuked the lawless. O your ineffable forbearance, lover of mankind! Through it, O Christ, save our souls, for you alone are compas­sionate.
 
@@ -423,6 +439,7 @@ Mother of God, you are the true vine, who gave bud to the fruit of life; we impl
 
    
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

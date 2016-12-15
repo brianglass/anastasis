@@ -92,7 +92,8 @@ color:red">Theotokion. </span>
 font-family:&quot;Book Antiqua&quot;">All-pure, All-blameless, who bore the God of blessings who makes all those held fast by corruption good, implore him with the Prophets, Martyrs and Apostles that all may be rescued from transgression. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red">Another Canon, to St Nicolas, of which the Acrostic is: </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+color:red">Another Canon, to St Nicolas, of which the Acrostic is:
+</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;">I sing you, Nicolas, a godly song. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -212,7 +213,8 @@ color:red">Theotokion. </span>
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Dwelling place of Light, shine on me who lie in darkness with your light, and with the Apostles intercede that by your prayers I may be saved from every constraint. </span>
 
-**Of the Saint. Another Irmos. The enlightment.**
+**Of the Saint. Another Irmos.
+The enlightment.**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Resplendent by a way of life befitting God, Thrice-blessed, you defended and rescued those condemned to die by an unjust sentence as they cried to the Master Christ: We know no other God but you. </span>
@@ -280,7 +282,8 @@ font-family:&quot;Book Antiqua&quot;">Judge most just who know the heart, who al
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Virgin who knew not wedlock, you bore ineffably the fire of the Godhead and were not consumed, and so , Pure lady, with the Apostles intercede to free me, who glorify you, from the everlasting flame. </span>
 
-**Of the Saint. Another Irmos. The three Youths.**
+**Of the Saint. Another Irmos.
+The three Youths.**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Pierced through by harsh temptation I have fallen grievously, and cast down by despondency I have drawn near to the gates of Hell. Save me by your intercessions, Blessed Father, and raise me up to sing to you: I ever call you blessed, sacred Servant of Christ. </span>
@@ -314,7 +317,8 @@ font-family:&quot;Book Antiqua&quot;">Groan, my soul, and weep intensely, and gr
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The furnace that once did not consume the Youths prefigured your child-bearing, all-immaculate Virgin; therefore I implore you, with all the Apostles and prophets entreat that I may be delivered from the fire of hell. </span>
 
-**Of the Saint. Another Irmos. God who came down.**
+**Of the Saint. Another Irmos.
+God who came down.**
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">As you are kindly and compassionate, blessed Initiator into sacred mysteries, free those encompassed by the deep of temptations, granting them release from the troubles that hold them fast by your entreaties to the Saviour. </span>
@@ -412,6 +416,7 @@ font-family:&quot;Book Antiqua&quot;">Pure Virgin, you are the boast of Apostles
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -128,6 +128,7 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">The Holy Things 
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">\[<span style="color:red;
 mso-bidi-font-style:italic">It is customary for the newly ordained to be asked by the Bishop to distribute the Antidoron</span>\] </span>
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

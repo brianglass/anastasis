@@ -7,14 +7,16 @@ HAVING THIRTY ONE DAYS
 
 ****
 
-On the 1st of the Month —The Circumcision of Our Lord Jesus Christ and commemoration of our Father among the Saints Basil the Great.
+On the 1st of the Month —The Circumcision of Our Lord Jesus Christ
+and commemoration of our Father among the Saints Basil the Great.
 
 AT VESPERS
 ----------
 
 **After the Opening Psalm we recite the 1st section of Blessed is the man. At** Lord, I have cried **we insert 6 Stichera and sing 3 of the Feast and 3 of the Saint.**
 
-Idiomel Stichera of the Feast. Tone 4.
+Idiomel Stichera of the Feast.*
+*Tone 4.
 
 The Saviour in coming down to aid the human race accepted circumvolution in swaddling clothes; he did not abhor circumcision of the flesh, when eight days old in respect of his Mother, without beginning in respect of his Father. To him let us believers cry aloud: You are our God; have mercy on us. (
 
@@ -26,7 +28,8 @@ God, the supremely good, was not ashamed to be severed by circumcision of the fl
 
 ****
 
-Prosomia of the Saint. Tone 4. Called from the highest.
+Prosomia of the Saint.
+Tone 4. Called from the highest.
 
 Called by a name which means royal, when you had shepherded the royal priesthood, the holy nation of Christ with true wisdom and knowledge, Father, then the king of kings and Lord of all, the Son eternally of one mind and without beginning with his Begetter, adorned you, Basil, with a diadem of the kingdom; implore him to save and enlighten our souls.
 
@@ -50,13 +53,15 @@ The Saviour in coming down to aid the human race accepted circumvolution in swad
 
 Entrance, the prokeimenon of the day and the Readings.
 
-The Reading is from Genesis. \[
+The Reading is from Genesis.
+\[
 
 **17:1-14**\]
 
 The Lord appeared to Abram and said to him: I am your God. Be well pleasing before me and be blameless. I will establish my covenant between me and you, and I will multiply you exceedingly; and you will be the father of a multitude of nations. And your name will not be called Abram, but you will be Abraham, because I have established you as father of many nations. And I will increase you greatly, and I will establish you for nations, and kings will come forth from you. And I will set my covenant between me and you, and between your seed after you for their generations for an eternal covenant, and I will be their God. And Abraham fell upon his face and worshipped the Lord. And God said to Abraham: You are to keep my covenant and your seed after you to their generations. And this is the covenant which you are to keep between me and between your seed after you to their generations. Every male among you shall be circumcised; and you shall circumcise the foreskin of your flesh, and it shall be a sign of a covenant between me and you all. And every male child among you shall be circumcised at eight days for your generations. And an uncircumcised male, that is not circumcised in the flesh of his foreskin on the eighth day, that soul shall be destroyed from its race; because it has rejected my covenant.
 
-The Reading is from Proverbs. \[
+The Reading is from Proverbs.
+\[
 
 **8:22-30**\]
 
@@ -102,7 +107,8 @@ The Saviour in coming down to aid the human race accepted circumvolution in swad
 
 ****
 
-Aposticha. Idiomel Stichera. Tone 1. By Vyzas.
+Aposticha. Idiomel Stichera.
+Tone 1. By Vyzas.
 
 O godly and sacred bee of Christ’s Church, all-blessed Basil; for you armed yourself with the sting of divine longing and wounded the blasphemies of heresies hated by God; and you treasured up for the souls of the faithful the sweetness of true religion; and now, as you pass through the divine meadows of inviolate pasture, remember us also as you stand before the consubstantial Trinity.
 
@@ -150,7 +156,8 @@ Your sound has gone out into all the earth, for it has received your word, throu
 
 ****
 
-Another, of the Feast. Tone 1. Citizen of the desert.
+Another, of the Feast.
+Tone 1. Citizen of the desert.
 
 Without change you took a human form, by nature being God, O most compassionate Lord; and fulfilling the Law, you willingly accepted circumcision in the flesh, that you might banish shadows, and strip away the covering of our passions. Glory to your goodness; glory to your compassion; glory to your ineffable condescension, O Word!
 
@@ -158,6 +165,7 @@ Without change you took a human form, by nature being God, O most compassionate 
 
 And Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

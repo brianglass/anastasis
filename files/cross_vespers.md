@@ -4,7 +4,8 @@ THE THIRD SUNDAY IN LENT
 
 ****
 
-THE ADORATION OF THE PRECIOUS AND LIFE-GIVING CROSS
+THE ADORATION OF THE PRECIOUS
+AND LIFE-GIVING CROSS
 
 ON SATURDAY EVENING at GREAT VESPERS
 
@@ -56,7 +57,8 @@ Lord, who helped gentle David in the combat and enabled him to overcome the fore
 
 If there is a Vigil, Apolytikion
 
-Virgin Mother of God **twice, and that of the Cross once.**
+Virgin Mother of God **twice,
+and that of the Cross once.**
 
 Of the Cross. Tone 1.
 
@@ -64,12 +66,14 @@ Lord, save your people**,** and bless your inheritance, granting to faithful Chr
 
 ****
 
-If there is no Vigil, those of the Resurrection, the Cross and the Theotokion.
+If there is no Vigil, those of the Resurrection, the Cross
+and the Theotokion.
 
 When Gabriel addressed you, O Virgin, with his ‘Hail’, as he spoke the Master of all things became incarnate in you the holy Ark, as righteous David sang. You were proclaimed wider than the heavens, for you carried your Creator. Glory to him who dwelt in you, glory to him who came forth from you, glory to him who has set us free through your bearing child.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

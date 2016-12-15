@@ -272,6 +272,7 @@ Then the Antidoron is given out and the Dismissal follows. As we enter the Refec
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

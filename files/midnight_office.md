@@ -7,7 +7,8 @@ The following is the text of the Midnight Office for weekdays as it is found in 
 THE LARGE BOOK OF HOURS
 -----------------------
 
-OPENING PRAYER OF THE WHOLE DAY AND NIGHT OFFICE
+OPENING PRAYER
+OF THE WHOLE DAY AND NIGHT OFFICE
 
 ****
 
@@ -89,7 +90,9 @@ Trisagion. Three Metanias.
 
 Glory. Both now. All-holy Trinity. Our Father. For yours is the kingdom. Lord, have mercy **(x12). Glory. Both now.**
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -149,7 +152,10 @@ May God take pity on us and bless us and shed us the light of his countenance up
 
 If it is
 
-Alleluia*,* **that is, in the holy and great Lent we make the three great metanias, saying to ourselves at each a line of the Prayer of St Ephrem:** Lord and Master of my life, do not give me a spirit of sloth, idle curiosity, love of power and useless chatter. **(Prostration)** Rather accord to me, your servant, a spirit of sobriety, humility, patience and love. **(Prostration)** Yes, Lord and King, grant me to see my own faults and not to condemn my brother; for you are blessed to the ages of ages. Amen. **(Prostration)**
+Alleluia*,* **that is, in the holy and great Lent we make the three great metanias, saying to ourselves at each a line of the Prayer of St Ephrem:**
+Lord and Master of my life, do not give me a spirit of sloth, idle curiosity, love of power and useless chatter. **(Prostration)**
+Rather accord to me, your servant, a spirit of sobriety, humility, patience and love. **(Prostration)**
+Yes, Lord and King, grant me to see my own faults and not to condemn my brother; for you are blessed to the ages of ages. Amen. **(Prostration)**
 
 Then the 12 small metanias and again a great metania and the last line of the Prayer. Then the Trisagion etc. and after it L
 
@@ -179,7 +185,8 @@ Lord almighty, God of Powers and of all flesh, who dwell on high and look on low
 
 Then the priest raises his hands, saying the following
 
-**Prayer of Saint Basil**
+**
+Prayer of Saint Basil**
 
 We bless you, God most high and Lord of mercy, who ever do with us great and unfathomable things, things glorious and extraordinary without number, who grant us sleep for the refreshment of our weakness and the relaxation of the toils of our much wearied flesh. We thank you because you have not destroyed us in our lawlessness, but have shown us your customary love for mankind and roused us as we lay in despair, to glorify your might. And so we implore your incomparable loving-kindness, enlighten the eyes of our understanding and raise our minds from the heavy sleep of idleness. Open our mouths and fill them with your praise, that we may be able to sing and chant give thanks to you continually, God glorified in all and by all, the Father without beginning, with your only begotten Son and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -187,7 +194,9 @@ We bless you, God most high and Lord of mercy, who ever do with us great and unf
 
 Then:
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -379,6 +388,7 @@ Note that the Latin Church has the opposite custom to us and expressly forbids t
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

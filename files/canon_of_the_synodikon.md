@@ -313,6 +313,7 @@ mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">The God of just 
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -44,7 +44,8 @@ AT MATINS
 
 **The usual Reading of the Psalter and the Canons from the Oktoichos with the following one of the Saints, whose Acrostic is as follows:** <sup>**1**</sup>
 
-To \[sev\]en Youths rightly I sing praise. **In the Theotokia:** By C\[l\]ement.
+To \[sev\]en Youths rightly I sing praise.
+**In the Theotokia:** By C\[l\]ement.
 
 ****
 
@@ -190,7 +191,9 @@ On the 4th of the same month, commemoration of the seven holy Youths of Ephesus,
 
 Verses.
 
-Septet the choir of Martyrs that I praise, Who showed the world the Rising of the dead. Seven the dead who arose, and together they died on the fourth day.
+Septet the choir of Martyrs that I praise,
+Who showed the world the Rising of the dead.
+Seven the dead who arose, and together they died on the fourth day.
 
 On the same day, commemoration of the translation of the relics of our Venerable Mother, the Martyr Evdokia.
 
@@ -198,7 +201,9 @@ On the same day, commemoration of the translation of the relics of our Venerable
 
 Verses.
 
-Whence this sweet fragrance? Evdokia’s corse Comes with the sweet scent of her struggles’ grace. And as a corpse she was brought on the fourth Evdokia, the noble.<sup>2</sup>
+Whence this sweet fragrance? Evdokia’s corse
+Comes with the sweet scent of her struggles’ grace.
+And as a corpse she was brought on the fourth Evdokia, the noble.<sup>2</sup>
 
 On the same day the Holy Martyr Thathouel died, hanged from a apple-tree.
 
@@ -206,7 +211,8 @@ On the same day the Holy Martyr Thathouel died, hanged from a apple-tree.
 
 Verses.
 
-Die, Thathouel, hanged from an apple- tree, That Eden’s wondrous apples you may pluck.
+Die, Thathouel, hanged from an apple- tree,
+That Eden’s wondrous apples you may pluck.
 
 On the same day, commemoration of the Holy Martyr Ia and her companions.<sup>3</sup>
 
@@ -216,7 +222,8 @@ Verses.
 
 Fragrance of violets \[
 
-**ia**\] Martyr Ia breathes, Of blood deep-dyed in scarlet from her wounds.
+**ia**\] Martyr Ia breathes,
+Of blood deep-dyed in scarlet from her wounds.
 
 At their holy intercessions, O God, have mercy and save us. Amen.
 
@@ -314,6 +321,7 @@ The rest of the Office as usual and the Dismissal.
 
 4. The Menaion has the following note: The sacred Hymnographer refers to the saying of God’s Angel to the prophet Zachary concerning Zorobabel, ‘Why was someone scornful over small days? They will rejoice and see the stone made of tin in the hands of Zorobabel. These are the seven eyes of the Lord that look upon the earth’ \[Zach. 4,10\]. Anybody who wants to know more precisely the meaning of this prophetic passage should read the commentaries of the Fathers on it.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

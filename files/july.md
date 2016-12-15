@@ -235,7 +235,7 @@ Glorious Elias, foreteller and foreseer of God’**s** mighty works , who in you
 
 **Of Saints Alexis Medvedkov, Dimitri Klepinine, Maria Skobtsova, Yuri Skobtsov,  Elie Fondaminskii **
 
-For an account of their canonisation by the Patriarchate of Constantinople go to the following link:<http://www.incommunion.org/canonization.htm>. This contains a number of links to pages containing a great deal of interesting material about Saint Maria and her Companions. The Patriarchate has not yet, so far as I am aware, issued official liturgical texts for these Saints and so the General Menaion should be used.
+For an account of their canonisation by the Patriarchate of Constantinople go to the following link:[http://www.incommunion.org/canonization.htm](/canonization.md). This contains a number of links to pages containing a great deal of interesting material about Saint Maria and her Companions. The Patriarchate has not yet, so far as I am aware, issued official liturgical texts for these Saints and so the General Menaion should be used.
 
 **21. Of our venerable fathers Symeon the fool in Christ and John his fellow ascetic.**
 
@@ -379,6 +379,7 @@ O Lord, save your people, and bless your inheritance; granting your faithful peo
 
 Your honoured memory has assembled us to-day at the godly casket of your sacred relics; all then who approach and venerate keep far from them evil harm of demons and are swiftly delivered from divers diseases, blessed Evdokimos.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

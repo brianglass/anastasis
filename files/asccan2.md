@@ -10,7 +10,9 @@ I have not attempted to reproduce either of the acrostics.
 
 ****CANON FOR THE FEAST OF THE ASSUMPTION****
 
-**The Acrostic is the alphabet, but in the 8th and 9th Odes:** JOSEPH’S ODE.
+**The Acrostic is the alphabet,
+but in the 8th and 9th Odes:**
+JOSEPH’S ODE.
 
 **Ode 1. Tone 4. I will open my mouth.**
 
@@ -114,6 +116,7 @@ The majesty of him who became poor in the flesh has been raised above the heaven
 
 The Light which shone from Light dawned from you, dispelled all the blackness of atheism and led to the light those who slept in night; and so, as is fitting, to the ages we ever call you blessed.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -62,7 +62,10 @@ mso-bidi-font-size:12.0pt">Cave, make ready… </span>
 <span style="font-size:14.0pt;
 mso-bidi-font-size:12.0pt">Bethlehem welcome… </span>
 
-<span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;color:red">Sunday before Christmas</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red">Vespers. Prosomia of the Forefeast. Tone 1. All-praised Martyrs</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">. </span>*
+<span style="font-size:18.0pt;mso-bidi-font-size:10.0pt;color:red">Sunday before Christmas</span>**<span style="font-size:14.0pt;mso-bidi-font-size:
+10.0pt">
+</span>**<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red">Vespers.
+Prosomia of the Forefeast. Tone 1. All-praised Martyrs</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">. </span>*
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:12.0pt">All-blameless Virgin, living Palace of God, you contained within yourself the One whom the heavens cannot contain;<a href="#_ftn21" id="_ftnref21">[21]</a> beyond understanding you gave birth to him in the Cave, a beggar and incarnate, that he might make me divine<a href="#_ftn22" id="_ftnref22">[22]</a> and enrich me, made a beggar by the incontinence of bitter eating.<a href="#_ftn23" id="_ftnref23">[23]</a> </span>
@@ -182,7 +185,9 @@ mso-bidi-font-size:12.0pt">Bethlehem, rejoice; and you, Ephrata, prepare, for th
 
 <span style="font-size: 18.0pt; mso-bidi-font-size: 10.0pt; color: red">20 December </span>
 
-<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red">At Vespers</span> <span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red">Tone 1. By Anatolios</span>*<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">. </span>*
+<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red">At Vespers</span><span style="font-size:
+14.0pt;mso-bidi-font-size:10.0pt;color:red">
+</span><span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red">Tone 1. By Anatolios</span>*<span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt">. </span>*
 
 <span style="font-size:14.0pt;mso-bidi-font-size:11.5pt">Peoples, let us celebrate the forefeast of the Nativity of Christ; and raising our minds, let us be taken up in spirit to Bethlehem, and let us contemplate with spiritual thoughts the Virgin, who hastens to give birth in a Cave to the Lord of all things and our God. Joseph, as he contemplated the greatness of the wonders, seemed to see a human, wrapped in swaddling clothes like an infant; while he understood from the things that came to pass that he was the true God, who grants our souls his great mercy. </span>
 
@@ -436,6 +441,7 @@ EN-US">τέλειος ὢν ἐν θεότητι καὶ τέλειος ὁ �
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

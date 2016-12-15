@@ -106,7 +106,8 @@ The Reading is from the Prophecy of Isaias.
 
 \[
 
-**25,1-9**\] \[The Greek of this chapter is more than usually paraphrastic. It is in effect a Targum on the Hebrew\]
+**25,1-9**\]
+\[The Greek of this chapter is more than usually paraphrastic. It is in effect a Targum on the Hebrew\]
 
 Lord my God, I will glorify you, I will praise your name, for you have done wondrous deeds, an ancient and true counsel. So be it. Because you have made cities a heap, cities strong so that foundations should not fall. Let the city of the ungodly not be built for ever. Therefore the poor people will bless you, and cities of those who have been wronged will bless you; for you have become a helper to every humble city and a protection to those downhearted through want, you will deliver them from evil people, be a protection to the thirsty and a breath for people who have been wronged; as down-hearted people, thirsting in Sion, because of ungodly people, to whom you handed us over. And the Lord Sabaoth will make &lt;a banquet&gt; for all the nations on this Mountain. They will drink joy, they will drink wine, they will anoint themselves with myrrh. On this mountain hand on all these things to the nations, for this Counsel is upon all the nations. Death has been strong and swallowed down, and again the Lord has taken away every tear from every face. The shame of the people he has taken away from all the earth; for the mouth of the Lord has spoken this. And they will say in that day: See, the Lord our God, in whom we hoped and rejoiced, and he will save us. This is the Lord, we waited from him and we shall be glad, and we shall rejoice in his salvation.
 
@@ -418,6 +419,7 @@ The simple believes every word, but the prudent goes to repentance. The wise fea
 
 And the rest of the Liturgy of the Presanctified.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

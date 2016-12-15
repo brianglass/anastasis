@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](tone1.md) \] \[ [Saturday Evening](sat1ec.md) \] \[ [Sunday Midnight](sun1nc.md) \] \[ [Sunday Matins](sun1mc.md) \] \[ [Monday Matins](monday_matins.md) \] \[ [Tuesday Matins](tuesday_matins1.md) \] \[ [Wednesday Matins](wednesday_matins.md) \] \[ [Thursday Matins](thursday_matins2.md) \] \[ [Friday Matins](friday_matins.md) \] \[ [Saturday Matins](saturday_matins1.md) \] \[ Weekday Vespers \]
 
-**<span style="mso-bidi-font-size: 10.0pt; font-weight: normal; mso-bidi-font-weight: bold">WEEKDAY VESPERS FROM THE  OCTOICHOS </span>**
+**<span style="mso-bidi-font-size: 10.0pt; font-weight: normal; mso-bidi-font-weight: bold">WEEKDAY VESPERS
+FROM THE  OCTOICHOS </span>**
 
 INTRODUCTION
 ------------
@@ -379,6 +380,7 @@ mso-bidi-language:HE">Blessed be the glory of the Lord, from his place’ occur,
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

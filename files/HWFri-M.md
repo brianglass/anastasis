@@ -29,7 +29,10 @@ The Priest blesses the incense and begins to cense the sanctuary and the whole c
 
 Reader:
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God. With three metanias; then the following two psalms. ****
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
+With three metanias; then the following two psalms. ****
 
 Psalm 19
 
@@ -277,7 +280,8 @@ Verse 4.
 
 Bring evils upon them, O Lord, bring evils upon them, the glorious ones of the earth. ****
 
-Then the following Troparion is sung solemnly 3 times. Tone 8
+Then the following Troparion is sung solemnly 3 times.
+Tone 8
 
 When the glorious disciples were enlightened at the washing of the feet, then Judas the ungodly was stricken and darkened with the love of money; and to lawless judges he delivered you, the just judge. O lover of money, look upon him who for its sake hanged himself; flee from the insatiable soul, which dared such things against the Teacher. O you who are good to all, Lord, glory to you.
 
@@ -1139,7 +1143,8 @@ Reader:
 
 Amen. ****
 
-After the small litany the Kontakion Kontakion. Tone 8. \[By St Romanos\]
+After the small litany the Kontakion
+Kontakion. Tone 8. \[By St Romanos\]
 
 Come, let us all praise him who was crucified for us; for Mary looked upon him on the Tree and said: ‘Though you endure the Cross, yet you are My Son and my God.’
 
@@ -1159,11 +1164,13 @@ On holy and great Friday we remember the holy, saving and dread Sufferings of ou
 
 Verses on the Crucifixion
 
-You are the living God, slain on a Tree, O naked corpse, and Word of living God. ****
+You are the living God, slain on a Tree,
+O naked corpse, and Word of living God. ****
 
 Verses on the Good Thief
 
-Eden’s locked gates the Thief has opened wide, By putting in the key, ‘Remember me’.
+Eden’s locked gates the Thief has opened wide,
+By putting in the key, ‘Remember me’.
 
 In your ineffable and all unbounded compassion, Christ our God, have mercy on us. Amen.
 
@@ -1255,7 +1262,8 @@ Reader:
 
 Amen. ****
 
-Then the Exapostilarion sung slowly and solemnly: Tone 3. Model Melody.
+Then the Exapostilarion sung slowly and solemnly:
+Tone 3. Model Melody.
 
 O Lord, who on that very day made the Thief worthy of Paradise, so by the tree of the Cross enlighten and save me (
 
@@ -1304,7 +1312,8 @@ Reader:
 
 Glory to your long-suffering, Lord, glory to you! ****
 
-At Lauds we insert 4 Idiomel Stichera, doubling them. Tone 3
+At Lauds we insert 4 Idiomel Stichera, doubling them.
+Tone 3
 
 Psalm 148
 
@@ -1616,7 +1625,8 @@ Reader:
 
 Glory to your long-suffering, Lord, glory to you! ****
 
-Then the 2nd Choir begins the Aposticha: Tone 1
+Then the 2nd Choir begins the Aposticha:
+Tone 1
 
 All creation was changed by fear when it saw you hanging on the Cross, O Christ; the sun was darkened and the foundations of the earth were shaken; all things were suffering with you, the Creator of them all. You endured willingly for us. Lord, glory to you!
 
@@ -1731,7 +1741,8 @@ Amen. ****
 
 After the
 
-Our Father**, we say the following Apolytikion: Apolytikion. Tone 4**
+Our Father**, we say the following Apolytikion:
+Apolytikion. Tone 4**
 
 By your precious blood you have redeemed us from the curse of the law; nailed to the Cross and pierced by the lance, you have become a source of immortality for all. Our Saviour, glory to you.
 
@@ -1827,6 +1838,7 @@ Amen. ****
 
 We do not add the 1st Hour now, but say it at about the 2nd hour of the day.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

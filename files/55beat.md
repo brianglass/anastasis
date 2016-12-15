@@ -69,6 +69,7 @@ Like the similar set of twenty beatitudes, which I hope to translate shortly, th
 
   
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

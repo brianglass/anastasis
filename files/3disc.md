@@ -74,6 +74,7 @@ See God’s unfathomable love for humankind. See God’s unbounded goodness. Hea
 
 <sup>2</sup> Literally *xerophagia*, or ‘dry eating’, that is uncooked food, as prescribed on many fast days and a feature of the more rigorous ascetic life.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

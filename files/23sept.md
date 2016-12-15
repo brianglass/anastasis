@@ -78,9 +78,11 @@ Both now. **Theotokion. The same.**
 
 You alone bore the Maker of the universe, you alone adorned humanity by your child-bearing, O Immaculate. Deliver me from the snares of crafty Beliar, stand me on the rock of Christ’s wishes, as you insistently entreat him to whom you gave a body.
 
-**The Canons, one from the Oktoichos and one of the Saint. A composition of John of Damascus.**
+**The Canons, one from the Oktoichos and one of the Saint.
+A composition of John of Damascus.**
 
-**If you wish say also the Katavasias:** I will open my mouth.
+**If you wish say also the Katavasias:
+**I will open my mouth.
 
 **Ode 1. Tone 6. As on dry land.**
 
@@ -170,25 +172,35 @@ Let us open the sacred Gospel, which holy and wondrous Luke wrote for us, and le
 
 On the 23rd of the same month, the Conception of the holy and glorious Prophet, Forerunner and Baptist John.
 
-**Verses** Archangel’s message to a Prophet was: Prophet you will beget and more than that.
+**Verses***
+*Archangel’s message to a Prophet was:
+Prophet you will beget and more than that.
 
 The godlike Chief Captain Gabriel brought the good tidings of this divine conception to the prophet and priest Zachary. ’Your supplication has been heard’ he said; so from this he foretold, by reason of the marvel of the old age and barrenness of Elizabeth, the divine and virginal child-bearing of the immaculate Mother of God.
 
 On the same day, Commemoration of the holy Martyrs Andrew, John, Peter and Antony, who attained perfection in Africa.
 
-**Verses** For the Word’s sake, of old pierced with one lance, Andrew endured being pierced by lances twain.
+**Verses***
+*For the Word’s sake, of old pierced with one lance,
+Andrew endured being pierced by lances twain.
 
-Error John made his foe and being slain Slaughtered the foe and with him error too.
+Error John made his foe and being slain
+Slaughtered the foe and with him error too.
 
-Peter and Antony like solid rocks \[petrai\] Stoutly endured their rending limb from limb.
+Peter and Antony like solid rocks \[petrai\]
+Stoutly endured their rending limb from limb.
 
 On the same day, Commemoration of the holy Virgin Martyr Raïs.
 
-**Verses** Longing to see God’s beauty Raïs gave The beauty of her flesh up to the sword.
+**Verses***
+*Longing to see God’s beauty Raïs gave
+The beauty of her flesh up to the sword.
 
 On the same day, Commemoration of the Venerable women Xanthippe and Polyxena, sisters by blood.
 
-**Verses** To be their fellows Angel choirs now take Xanthippe and Polyxena her kin.
+**Verses***
+*To be their fellows Angel choirs now take
+Xanthippe and Polyxena her kin.
 
 On the same day the holy new martyr Nicolas the grocer, who was martyred in Constantinople in 1672 and died by the sword.
 
@@ -244,7 +256,8 @@ The glorious conception of the Forerunner foretells the King who is to be born o
 
 With one accord, O all-pure, we who have been redeemed from the ancient curse through your divine child-bearing, cry out to you the ’Hail’ of the august Archangel: Hail, redemption of Adam, Virgin Mother of God. Hail, honoured one, through whom we have been delivered from death. Hail, through whom we have found the kingdom of heaven.
 
-**At Lauds, Prosomia. Tone 1. Joy of the heavenly hosts.**
+**At Lauds, Prosomia.
+Tone 1. Joy of the heavenly hosts.**
 
 Creation rejoices at your conception, Forerunner and Prophet, Baptist John; for your divine birth is a sign for us of the Master’s nativity; and therefore we who are upon earth with one accord as is fitting sing your praise. (**Twice)**
 
@@ -260,8 +273,10 @@ Elizabeth conceived the Forerunner of grace, the Virgin the Lord of glory. The m
 
 **At the Liturgy, Typika and from the 3rd and 6th Odes of the Canon etc.**
 
-**Communion.** The just will be held in eternal memory.
+**Communion.**
+The just will be held in eternal memory.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

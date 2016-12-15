@@ -8,6 +8,7 @@ Brethren and Fathers, already the Manifestation of God is near and the day of jo
 
  **Read at the end of the** [First Hour](24decRH.md) **at the Royal Hoursof Christmas**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -2,7 +2,8 @@
 
  
 
-**Commemoration of the Holy, Glorious Prophet, Elias the Thesbite**
+**Commemoration of the Holy, Glorious Prophet,
+Elias the Thesbite**
 
 AT VESPERS
 ----------
@@ -27,19 +28,23 @@ Who will not call you blessed, All-holy Virgin? Who will not hymn your child-bir
 
 **Entrance. The Prokeimenon of the day and the readings.**
 
-The Reading is from the 3rd Book of Reigns. \[**17,1-24**\]
+The Reading is from the 3rd Book of Reigns.
+\[**17,1-24**\]
 
 The word of the Lord came to the Prophet Elias and he said to Achab, ‘As the Lord the God of powers lives, the God of Israel, before whom I stand today, there shall be neither dew nor rain during these years, except by my mouth.’ The word of the Lord came to Elias, saying, ‘Go from here and towards the east, and hide yourself in the brook Chorrath, which is opposite the Jordan. You shall drink from the brook, and I am commanding the ravens to feed you there.’ So he went and settled by the brook Chorrath, which is opposite the Jordan. The ravens brought him bread in the morning, and meat in the evening; and he drank water from the brook. And it cane to pass after some days that the brook dried up, because there was no rain on the land. Then the word of the Lord came to Elias, saying, ‘Arise and go to Sarepta, which belongs to Sidon, and settle there; for see, I am commanding a widow there to feed you.’ And he arose and went to Sarepta, to the gate of the city. And a widow was there gathering sticks. And Elias called after her and said, ‘Bring me a little water in a vessel, so that I may drink.’ As she was going to bring it, he called after her and said, ‘Bring me a morsel of bread in your hand.’ But the woman said, ‘As the Lord your God lives, I have nothing baked, only a handful of flour in the jar, and a little oil in the jug; I am now gathering a couple of sticks, so that I may go home and prepare it for myself and my children, that we may eat it, and die.’ Elias said to her, ‘Take courage. Go and do as you have said; but first make me a little cake of it and bring it to me, and afterwards make something for yourself and your children. For thus says the Lord the God of Israel: The jar of flour will not fail and the jug of oil will not grow less until the day that the Lord sends rain on the whole land.’ The woman went and did as Elias said, and he and she and her children ate. And from that day the jar of flour did not fail, neither did the jug of oil grow less, according to the word of the Lord that he spoke by Elias. After this the son of the woman, the mistress of the house, became ill; his illness was so severe that there was no breath left in him. She then said to Elias, ‘Why do you trouble me, man of God? Have you come to me to bring my sins to remembrance, and to cause the death of my son?’ But he said to her, ‘Give me your son.’ He took him from her bosom, carried him up into the upper chamber where he was lodging, and laid him on his own bed. He cried out to the Lord, ‘Alas, Lord my God, you have brought calamity upon the widow with whom I am staying, whose witness you are, by killing her son.’ Then he breathed upon the child three times, and called on the Lord and said, ‘Lord my God, let this child’s life come into him again.’ And so it happened and he cried out. And the Lord listened to the voice of Elias; the child’s soul came into him again, and he lived. Elias took the child, brought him down from the upper chamber into the house, and gave him to his mother. Then Elias said, ‘See, your son is alive.’ So the woman said to Elias, ‘Now I know that you are a man of God, and that the word of the Lord in your mouth is true.’
 
-The Reading is from the 3rd Book of Reigns. \[**18,1.17-46 & 19,1-6**\]
+The Reading is from the 3rd Book of Reigns.
+\[**18,1.17-46 & 19,1-6**\]
 
 The word of the Lord came to Elias the Thesbite in the third year, saying, ‘Go, and appear before Achab, and I will give rain on the face of the land. And it came to pass that when Achab saw Elias, he said to him, ‘Is it you, the one who is troubling Israel?’ He answered, ‘I am not troubling Israel; but you are, and your father’s house, by forsaking the Lord our God and following Baal. Now therefore have all Israel assemble to me at Mount Carmel, with the four hundred fifty prophets of Baal and the four hundred prophets of the scared groves, who eat at Jezebel’s table.’ So Achab sent to all Israel, and assembled the prophets at Mount Carmel. Elias said to them, ‘How long will you go limping with two different opinions? If the Lord is God, follow him; but if Baal, then follow him.’ Then Elias said to the people, ‘I, even I only, am left a prophet of the Lord; but the prophets of the sacred grove are very many. Let two bulls be given to us; let them choose one bull for themselves, cut it in pieces, and lay it on the wood, but put no fire to it; I will prepare the other bull, but put no fire to it. Then you call on the name of your god and I will call on the name of the Lord my God. And the god who answers by fire shall be God.’ All the people answered, ‘The word you have spoken today is good.’ Then Elias said to the prophets of shame, ‘Choose for yourselves one calf and prepare it first; then call on the name of your god, but put no fire to it.’ So they took the calf, prepared it, and called on the name of Baal from morning until noon, crying, ‘O Baal, hear us!’ But there was no voice, and no answer. They ran upon the altar that they had made. At noon Elias the Thesbite mocked them, saying, ‘Cry aloud! For your god likes garrulousness.’ And when the time of the offering of the oblation came, there was nothing. Then Elias the Thesbite said to the prophets of abominations, ‘Stand aside now, and I will offer my holocaust’. And Elias said to the people, ‘Come close’. And all the people came closer to him. Elias took twelve stones, according to the number of the tribes of Israel, to whom the word of the Lord had come, saying, ‘Israel shall be your name’. With the stones he built and repaired the altar of the Lord that had been cast down. Then he made a trench around the altar, large enough to contain two measures of seed. Next he put the pieces of wood on the altar he had made, cut the holocaust in pieces, and laid them on the pieces of wood and piled them on the altar. He said, ‘Bring me two jars of water and pour it on the holocaust and on the pieces of wood.’ Then he said, ‘Do it a second time’; and they did it a second time. Again he said, ‘Do it a third time’; and they did it a third time, so that the water ran all around the altar, and filled the trench also with water. And the prophet Elias cried aloud to heaven and said, ‘Lord, God of Abraham, Isaac, and Israel, hear me today by fire. And let this people known that you alone the Lord. the God of Israel, that I am your servant, and that through you I have done all these things, and that you have turned back the heart of this people to you.’ Then fire from the Lord fell from heaven and consumed the holocaust and the pieces of wood; and the fire licked up the water that was in the trench, the stones, and the dust. And the people fell on their faces and said, ‘The Lord indeed is God; he is God.’ Elias said to them, ‘Seize the prophets of Baal; do not let one of them escape.’ Then they seized them; and Elias brought them down to the brook Kishon, and killed them there. And after this Elias said to Achab, ‘There is a sound of rushing rain. Harness your chariot and go down, lest the rain catch you.’ Then Elias went up to the top of Carmel; there he bowed himself down upon the earth and put his face between his knees and prayed to the Lord. And the heavens grew black with clouds and wind; there was a heavy rain. Achab went to Jezreel. Achab told Jezebel his wife all that Elias had done. Then Jezebel sent to Elias, saying, ‘Tomorrow I will sacrifice your life like one of them.’ And Elias heard and was afraid; he arose and fled for his life, and came to Beersheba, in the land of Juda; he left his servant there. But he himself went a day’s journey into the wilderness, and came and sat down under a solitary broom tree. Then he lay down under the broom tree and fell asleep. Suddenly someone touched him and said to him, ‘Arise and eat and drink, for you have a long journey.’ Elias looked, and there at his head was a cake of flour and a jar of water. He arose, ate and drank, and slept again. The angel of the Lord came a second time, touched him, and said, ‘Arise and eat and drink, for you have a long journey.’ He arose, and ate and drank; then he went in the strength of that food forty days and forty nights to mount Horeb. There he entered a cave, and spent the night there. Then the word of the Lord came to him, saying, ‘What are you doing here, Elias?’ Elias answered, ‘I have been very zealous for the Lord, the Almighty; for the children of Israel have forsaken your covenant, thrown down your altars, and killed your prophets with the sword. I alone am left, and they are seeking my life, to take it away.’ Then the Lord said to him, ‘Go, return to your way and you will come to the desert way of Damascus; and you shall anoint Elissaios son of Shaphat as prophet in your place.
 
-The Reading is from the 3rd Book of Reigns. \[**19,19-21 & 4 Reigns 2,1.6-14**\]
+The Reading is from the 3rd Book of Reigns.
+\[**19,19-21 & 4 Reigns 2,1.6-14**\]
 
 A day came and Elias found Elissaios son of Saphat, who was ploughing. Elias passed by him and threw his mantle over him. Elissaios left the oxen, ran after Elias, and ministered to him. And it came to pass, when the Lord took Elias in a whirlwind as though up to heaven, that Elias went with Elissaios to Galgala. Then Elias said to Elissaios, ‘Stay here; for the Lord has sent me as far as the Jordan.’ But he said, ‘As the Lord lives, and as you yourself live, I will not leave you.’ So the two of them went on. Fifty men of the sons of the prophets came, and stood at some distance from them, as they both were standing by the Jordan. Then Elias took his mantle and rolled it up, and struck the water with it; the water was parted to the one side and to the other, and the two of them crossed on dry ground. When they had crossed, Elias said to Elissaios, ‘Ask me what I may do for you, before I am taken up from you.’ Elissaios said, ‘Please let me inherit a double share of your spirit.’ He responded, ‘You have asked a hard thing; yet, if you see me as I am being taken up from you, it will be granted you; if not, it will not.’ It came to pass that as they continued walking and talking, a chariot of fire and horses of fire separated the two of them, and Elias was taken up in a whirlwind as if into heaven. Elissaios kept watching and crying out, ‘Father, father! The chariots of Israel and its horsemen!’ But when he could no longer see him, Elissaios grasped his own clothes and tore them in two pieces. He picked up the mantle of Elias that had fallen from him, and went back and stood on the bank of the Jordan. Elissaios took the mantle of Elias that had fallen from him, and struck the water, saying, ‘Where then is the God of Elias, Appho?’ And so he struck the water, and the water was parted to the one side and to the other, and Elissaios went over on dry ground.
 
-**At the Aposticha, prosomia. Tone 4. Called from on high.**
+**At the Aposticha, prosomia.
+Tone 4. Called from on high.**
 
 The one hallowed before his conception, the Angel embodied, the mind of fire, the man of heaven, the godlike forerunner of the second coming of Christ. the glorious Elias, the foundation of the Prophets has spiritually invited all lovers of festivals to celebrate his godly memory. At his intercessions guard your people, O Christ God, untroubled from every kind of harm of the trickster.
 
@@ -82,7 +87,8 @@ Glory. Both now. **Theotokion.**
 
 Mary, the holy vessel of the Master, raise us up, who have fallen into the chaos of dread despair, of faults and tribulations; for you are the salvation, help and mighty protection of sinners, and you save your servants.
 
-**After the 2nd reading, Kathisma. Same Tone and melody.**
+**After the 2nd reading, Kathisma.
+Same Tone and melody.**
 
 Through unsullied virtue you were endeared to God, for you lived the life of heaven upon earth; having gained the life of grace, blessed Prophet, by your breath you raised a dead child; and you remain incorrupt, still surpassing death, inspired Elias.
 
@@ -92,7 +98,8 @@ All of us who with love have recourse to your goodness know you to be Mother of 
 
 **The Canons of the Mother of God and the following two of the Saint.**
 
-**The first Canon, by Monk John, with the following acrostic, not including the Theotokia:** Dancing I praise the wonders of Elias.
+**The first Canon, by Monk John, with the following acrostic, not including the Theotokia:
+**Dancing I praise the wonders of Elias.
 
 **Ode 1. Tone 2. Let us sing to the Lord.**
 
@@ -106,9 +113,11 @@ You distribute gifts above nature to those who obey your holy commandments, O Wo
 
 O only blessed one, pure and godlike treasure of purity, purify me of the impure slime of the passions, asking pardon of my faults.
 
-**Second Canon, whose acrostic is:** Give to me God’s grace, blessed Elias. Joseph.
+**Second Canon, whose acrostic is:**
+Give to me God’s grace, blessed Elias. Joseph.
 
-**Ode 1. Tone 8. The wonder-working staff.**
+**Ode 1. Tone 8.
+The wonder-working staff.**
 
 As to the widow’s son, give life to my soul, which has become a corpse, and make it bright with godly virtues, blessed Saint, guide it towards life and make it a partaker of everlasting delight, longing to take delight in you.
 
@@ -144,7 +153,8 @@ God, who brings all to pass, magnifies you, glorious Prophet Elias, nourishing y
 
 Gate through which none may pass that leads to God, open to me I beg, O Maiden, gates of repentance, cleansing me from the stain of sins with showers of your mercy, O full of God’s grace.
 
-**Kathisma. Tone 8. The Wisdom and Word.**
+**Kathisma. Tone 8.
+The Wisdom and Word.**
 
 As Prophet of the true divine light you cast down the prophets of falsehood, by this rebuking Achab who transgressed the law and teaching him not to worship Baal, and by your prayer asking for streams from on high, glorious Elias; therefore you were taken up, a charioteer of the air, in a fiery chariot to the Lord; and so we cry to you: Intercede with Christ God to grant forgiveness of offences to those who feast with love your holy memory.
 
@@ -236,7 +246,10 @@ When he contemplated the great lawlessness of mankind and the measureless love f
 
 On the 20th of the same month, commemoration of the fire-bearing ascent of the holy, glorious Prophet Elias the Thesbite.
 
-**Verses** He checked the rain, thrice bringing fire below. Parting a stream, Elias sped above. The twentieth by chariot you were taken up.
+**Verses**
+He checked the rain, thrice bringing fire below.
+Parting a stream, Elias sped above.
+The twentieth by chariot you were taken up.
 
 He was the son of Sobak from Thesbi, from the land of the Arabs, of the tribe of Aaron, and dwelt in Galaad, because Thesbi was dedicated as a dwelling for the Priests. And when his mother bore him, Sobak his father saw that men clothed in white addressed him, that they swaddled him in fire and gave him a flame of fire to eat. Coming to Jerusalem, he told this to the priests, and the oracle said to him: Do not be afraid, man; for the child’s dwelling will be light, his word decision, his life according to the Lord and his zeal well-pleasing to the Lord; and he will judge Israel with sword and fire.
 
@@ -355,6 +368,7 @@ The references given for the third reading at Vespers are only approximate, sinc
 
 Unless otherwise indicated, the Canon to the Mother of God prescribed as the first canon on some major feasts is that used in the service of the Small Paraklesis. A translation of this canon, translated to be sung to the traditional Byzantine melodies, may be found on another of our pages [Canon to the Mother of God.](lparacan.md)
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

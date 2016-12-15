@@ -42,7 +42,8 @@ Glory. Both now. <span style="color:red">Theotokion.</span>
 
 Wonder of wonders, O Full of grace, in you Creation when it sees you rejoices, for you conceived without seed and gave birth ineffably to the One upon whom the commanders of the Angels cannot look. Implore him, O Mother of God, on behalf of our souls.
 
-<span style="color:red">Aposticha of Lauds, of the Martyrs. Tone 1. </span>
+<span style="color:red">Aposticha of Lauds, of the Martyrs.
+Tone 1. </span>
 
 Come, all you peoples, and let us honour with hymns and spirituals songs Christ’s Champions, the beacons of the world and heralds of the Faith, the everflowing source from which healings spring up for the faithful. At their intercessions, Christ our God, grant peace to your world and to our souls your great mercy.
 
@@ -90,6 +91,7 @@ Implore Christ, your child, O Virgin Mother, to grant pardon of offences to your
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

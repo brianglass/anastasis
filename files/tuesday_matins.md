@@ -31,7 +31,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Mother of God, do not despise as I entreat help from you; for on you has my soul hoped, have mercy on me. </span>
 
-**After the 3rd reading, Kathismata. As you are source of compassion.**
+**After the 3rd reading, Kathismata.
+As you are source of compassion.**
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">You plunged in Jordan’s streams, John, the ungrudging Source of compassion; therefore I implore you insistently, by your acceptable prayers lead me, who with many passions am being fearfully drowned each day by the ocean of life, to the harbour of life. </span>
 
@@ -46,7 +47,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 <span style="letter-spacing:
 0pt">Who has known, who has heard of Mother giving birth to her own Creator? Without knowing man giving suck to the one who gives food to all flesh? O the wonder! Your womb, Mother of God full of grace, was revealed as the Cherubim throne. Intercede on behalf of our souls. </span>
 
-**Canon of compunction, whose acrostic is:**<span style="color:windowtext"> Grant space to my lamentations, O Saviour. Joseph.<a href="#_ftn1" id="_ftnref1">[1]</a></span>
+**Canon of compunction, whose acrostic is:**<span style="color:windowtext">
+Grant space to my lamentations, O Saviour. Joseph.<a href="#_ftn1" id="_ftnref1">[1]</a></span>
 
 **Ode 1. Tone 2. Irmos.**
 
@@ -68,7 +70,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Flame-bearing tongs, that once Isaias saw, burn up wood the turbid passions of my heart, and make them vanish for ever. </span>
 
-**Another Canon, of the Forerunner, of which the acrostic is:**<span style="color:windowtext"> Baptist, accept this supplication. Joseph.</span>
+**Another Canon, of the Forerunner, of which the acrostic is:**<span style="color:windowtext">
+Baptist, accept this supplication. Joseph.</span>
 
 **Irmos. His overwhelming might.**
 
@@ -166,7 +169,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Daniel saw you in spirit as a great mountain, Mother of God, from which a stone was cut which reduces the idols of the demons to dust. </span>
 
-**Of the Forerunner. Another Irmos. The enlightenment of those in darkness.**
+**Of the Forerunner. Another Irmos.
+The enlightenment of those in darkness.**
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Forerunner, who in the torrents of Jordan baptized with the streams of incorruption, implore Christ to dry up the surgings of my passions and to make me inherit the flood of delight and the pleasant joy of the Just. </span>
 
@@ -200,7 +204,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Like a table you carry the mystic Bread, O All-praised, eating of which we, who know you to be the Mother of Christ, the God of all, and truly the one who feeds him, are no longer hungry. </span>
 
-**Of the Forerunner. Another Irmos. Surrounded by an abyss of faults.**
+**Of the Forerunner. Another Irmos.
+Surrounded by an abyss of faults.**
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">Voice that proclaimed the Word, accept the voices of us all and ask that those who sing your praise with faith may be granted pardon of their sins. </span>
 
@@ -232,7 +237,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">The Cherubim glorify, the Seraphim, Thrones, Powers and Dominions praise your giving birth beyond understanding, Mary all-praised, for you alone bore God in the flesh. Implore him, O Pure one, that all of us who honour you with love may be saved. </span>
 
-**Of the Forerunner. Another Irmos.**<span style="mso-font-kerning:10.0pt"> **A godless order.** </span>
+**Of the Forerunner. Another Irmos.**<span style="mso-font-kerning:10.0pt">**
+A godless order.** </span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">With your axe of repentance, O Forerunner, pluck out the bruises of my passionate heart and plant in it divine dispassion and a most pure fear of God, making me a stranger to every wickedness. </span>
 
@@ -264,7 +270,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua">That he might make us divine God became flesh from your pure blood, Virgin Mother of God, and he became a mortal. Ever implore on behalf of those who honour you. </span>
 
-**Of the Forerunner. Another Irmos.<span style="mso-font-kerning:10.0pt"> A furnace once in Babylon. </span>**
+**Of the Forerunner. Another Irmos.<span style="mso-font-kerning:10.0pt">
+A furnace once in Babylon. </span>**
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Give me your right hand as I lie on the ground, O Forerunner, who stretched out your right hand and washed the Undefiled in the waters, and deliver me from defilement of body, cleansing me wholly by repentance and save me. </span>
 
@@ -296,7 +303,8 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">With the rays of light of him who dawned for us from your womb and dispelled the night of godlessness, Virgin Mother Mary, enlighten all those who honour you in faith, and rescue them utter darkness at the hour of judgement. </span>
 
-<span style="mso-font-kerning:10.0pt">**Of the Forerunner. Another Irmos. The Son of the Father without beginning.** </span>
+<span style="mso-font-kerning:10.0pt">**Of the Forerunner. Another Irmos.
+The Son of the Father without beginning.** </span>
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-font-kerning: 10.0pt">Rescue me from the slime of sin, only sinless and most merciful Lord, at the entreaties of the Baptist, who proclaimed you to all the world as Lamb of God who takes away the sins of mortals. </span>
 
@@ -335,6 +343,7 @@ Have mercy on me, have mercy on me, lamented David for two sins; for ten thousan
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

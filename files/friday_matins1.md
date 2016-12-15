@@ -26,7 +26,8 @@ color:red;mso-bidi-font-style:italic">Verse: </span><span style="font-size:
 When the pure Virgin perceived the voluntary slaughter of the Master, grieving she said with tears: ‘My Child so deeply loved, why have you chosen to die? Why are you con­demned to death among evil-doers, you by nature the just God? O my Son, I glorify your long-suffering’.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-style:italic">After the 2nd Psalter reading other Kathismata. Model Melody.</span>
+color:red;mso-bidi-font-style:italic">After the 2nd Psalter reading other Kathismata.
+Model Melody.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Come quickly to help us, Christ our God, before we are enslaved by foes who blaspheme you and who threaten us; by your Cross destroy those who make war on us; let them know how strong is the faith of the Orthodox, at the prayers of the Mother of God, O only lover of mankind. </span>
 
@@ -44,7 +45,8 @@ color:red;mso-bidi-font-style:italic">Verse</span>*<span style="font-size:14.0pt
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Virgin most pure, Mother of Christ God, a sword passed through your all-holy soul when you saw your Son and God willingly crucified. Do not cease, O blessed one, to implore him to grant us pardon of of­fences. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-style:italic">After the 3rd reading from the Psal­ter, other Kathismata. Come swiftly to help us </span>
+color:red;mso-bidi-font-style:italic">After the 3rd reading from the Psal­ter, other Kathismata.
+Come swiftly to help us </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">In your limitless mercy, you willingly endured Cross and death for us, O Good One, and the unjust judgement, that You might free from condemna­tion and the ancient curse all who had perished through deception; there­fore, O Word, we too worship your Crucifixion. </span>
 
@@ -58,12 +60,14 @@ color:red">Of the Martyrs. </span>
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Today the armies of the Angels are at hand at the memorial of the Champi­ons to enlighten the minds of the faithful, and to make the whole world bright with grace; besought by them, O God, grant us your great mercy. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Glory. Both now. <span style="color:red;mso-bidi-font-style:italic">Cross-Theotokion.</span></span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-style:italic"> Come swiftly to help us</span>
+color:red;mso-bidi-font-style:italic">
+Come swiftly to help us</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">O Word of God, when your immacu­late Mother saw you raised upon the Cross, lamenting as a mother, she cried out: ‘What is this strange new wonder, my Son? How can you, the life of all, be acquainted with death, who wish to give life to the dead as you are compassionate?’ </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-style:italic">Canon of the Cross, whose acrostic is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Nailed to the Cross Christ destroys error. Joseph. </span>
+color:red;mso-bidi-font-style:italic">Canon of the Cross, whose acrostic is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">
+Nailed to the Cross Christ destroys error. Joseph. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">Ode 1. Irmos. </span>
@@ -90,7 +94,8 @@ color:red">Cross-Theotokion. </span>
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">A sword went through your heart, as Symeon said, when you saw Christ crucified and pierced by a lance, therefore with cries of grief you en­dured sufferings. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-style:italic">Another Canon, of the all-holy Mother of God. A composition of Theophanes. Same Irmos. </span>
+color:red;mso-bidi-font-style:italic">Another Canon, of the all-holy Mother of God.
+A composition of Theophanes. Same Irmos. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">He who is by nature uncreated and co-eternal with the Father, and above time and before the ages, became created from you, Sovereign Lady, and subject to time as man to save mankind. </span>
 
@@ -383,6 +388,7 @@ color:red">As noblest of Martyrs. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">The wholly uncontainable dwelt without constraint in your holy womb, O Mother of God, immaculate Lady, and by dying on a Tree became a source of life for the world. Implore him to slay our carnal thoughts and save us all as he loves mankind. </span>
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -25,39 +25,77 @@ Why, Mary, do you wonder? Why marvel at what is done in you? Because I have born
 
 All the earth. Alleluia.
 
-**Sing to the Lord all the earth.** Sing to his name. Give glory in his praise. Recount all his wonders. Say to God: How awesome your works. Let the heavens rejoice and let the earth be glad. Sing to God, sing to his name.
+**Sing to the Lord all the earth.**
+Sing to his name.
+Give glory in his praise.
+Recount all his wonders.
+Say to God: How awesome your works.
+Let the heavens rejoice and let the earth be glad.
+Sing to God, sing to his name.
 
-\[Make a way for him who rides upon the sunset.\] \[The Lord is his name, and be glad before him.\]
+\[Make a way for him who rides upon the sunset.\]
+\[The Lord is his name, and be glad before him.\]
 
 Splendour and majesty his work.
 
 \[And his justice abides from age to age.\]
 
-The Lord has sent redemption to his people. Holy and fearful his name.
+The Lord has sent redemption to his people.
+Holy and fearful his name.
 
 The Lord’s right hand has wrought power.
 
-\[The Lord’s right hand has exalted me.\] \[A man will say: Mother Sion, and: A man has been born in her.\] \[Fair in beauty beyond the sons of men.\] \[The Most High has founded her.\]
+\[The Lord’s right hand has exalted me.\]
+\[A man will say: Mother Sion, and: A man has been born in her.\]
+\[Fair in beauty beyond the sons of men.\]
+\[The Most High has founded her.\]
 
-From Sion the loveliness of his beauty. **Our God is in heaven and on earth, has done whatever he willed.** Your mercies, O Lord, I will sing forever.
+From Sion the loveliness of his beauty.
+**Our God is in heaven and on earth, has done whatever he willed.**
+Your mercies, O Lord, I will sing forever.
 
-\[To generation and generation I will announce your truth with my mouth.\] \[That you may say for ever mercy will be established.\] \[Your truth will be prepared in the heavens.\] \[His seed abides for ever.\] \[And his throne is as the sun before me.\] \[And like the moon fixed for ever.\] \[And I will establish his seed for ever,\] \[And his throne as the days of heaven.\] \[And he will rule from sea to sea,\] \[And from the ends of the world to its ends.\]
+\[To generation and generation I will announce your truth with my mouth.\]
+\[That you may say for ever mercy will be established.\]
+\[Your truth will be prepared in the heavens.\]
+\[His seed abides for ever.\]
+\[And his throne is as the sun before me.\]
+\[And like the moon fixed for ever.\]
+\[And I will establish his seed for ever,\]
+\[And his throne as the days of heaven.\]
+\[And he will rule from sea to sea,\]
+\[And from the ends of the world to its ends.\]
 
-\[He will call to me: You are my Father,\] \[My God and helper of my salvation.\]
+\[He will call to me: You are my Father,\]
+\[My God and helper of my salvation.\]
 
-And I will establish him as first born, high beyond all the kings of the earth, And all the kings of the earth will worship him. What god is great as our God? You are the God who alone works wonders. By the arm of your power you have scattered your foes.
+And I will establish him as first born, high beyond all the kings of the earth,
+And all the kings of the earth will worship him.
+What god is great as our God? You are the God who alone works wonders.
+By the arm of your power you have scattered your foes.
 
-\[You will shepherd them with an iron staff.\] \[As a potter’s vessels you will smash them.\]
+\[You will shepherd them with an iron staff.\]
+\[As a potter’s vessels you will smash them.\]
 
-Gird your sword upon your thigh, O powerful one, in your beauty and loveliness. Your arrows are sharpened, O powerful one.
+Gird your sword upon your thigh, O powerful one, in your beauty and loveliness.
+Your arrows are sharpened, O powerful one.
 
 \[Peoples will fall beneath you, in the heart of the king’s enemies.\]
 
-From the womb before the morning star I have begotten birth. The Lord has sworn and he will not repent. You are a priest for ever, according to the order of Melchisedek. The Lord said to me: You are my son, today I have begotten you. Ask of me, and I will give you nations as your inheritance. And the ends of the earth as your possession. At the head of the book it is written of me. Your throne, O God, is from age to age. A staff of right is the staff of your kingdom.
+From the womb before the morning star I have begotten birth.
+The Lord has sworn and he will not repent.
+You are a priest for ever, according to the order of Melchisedek.
+The Lord said to me: You are my son, today I have begotten you.
+Ask of me, and I will give you nations as your inheritance.
+And the ends of the earth as your possession.
+At the head of the book it is written of me.
+Your throne, O God, is from age to age.
+A staff of right is the staff of your kingdom.
 
 \[You have loved justice, and hated iniquity.\]
 
-Therefore God, your God, has anointed you with the oil of gladness beyond your fellows. For you will inherit among all the nations. Blessed is God for ever. So be it. So be it.
+Therefore God, your God, has anointed you with the oil of gladness beyond your fellows.
+For you will inherit among all the nations.
+Blessed is God for ever. So be it. So be it.
 
 Glory.
 
@@ -151,17 +189,32 @@ Wisdom, Word and Power, Son of the Father and his Radiance, Christ God, unknown 
 
 Another Canon, in Iambics, by Monk John, having an Acrostic in elegaic couplets:
 
-With songs of eloquence these hymns proclaim God’s Son for mortals’ sake on earth now born, Abolishing the world’s grim miseries. But, King, deliver preachers from these pains.
+With songs of eloquence these hymns proclaim
+God’s Son for mortals’ sake on earth now born,
+Abolishing the world’s grim miseries.
+But, King, deliver preachers from these pains.
 
 ****
 
 Ode 1. The same Tone. The Irmos.
 
-‘Of old the Master who works wonders saved a people, ‘Turning the wat’ry waves of the sea into dry land; ‘And now he has been born of his own will from a Maiden, ‘Establishes a path for us to mount to heaven. ‘We glorify him, equal by essence to Father and to mortals’.
+‘Of old the Master who works wonders saved a people,
+‘Turning the wat’ry waves of the sea into dry land;
+‘And now he has been born of his own will from a Maiden,
+‘Establishes a path for us to mount to heaven.
+‘We glorify him, equal by essence to Father and to mortals’.
 
-Clearly prefigured by the bush unburned A hallowed womb has borne in it the Word, God mingled with a mortal form, who now Frees Eve’s unhappy womb from bitter curse Of old. Him now we mortals glorify.
+Clearly prefigured by the bush unburned
+A hallowed womb has borne in it the Word,
+God mingled with a mortal form, who now
+Frees Eve’s unhappy womb from bitter curse
+Of old. Him now we mortals glorify.
 
-A star to Magi clearly showed the Word Who was before the sun and yet he came To make an end of sin, in a poor cave: You, the compassionate, in swaddling clothes. With joy they saw you, mortal man and Lord.
+A star to Magi clearly showed the Word
+Who was before the sun and yet he came
+To make an end of sin, in a poor cave:
+You, the compassionate, in swaddling clothes.
+With joy they saw you, mortal man and Lord.
 
 ****
 
@@ -179,11 +232,23 @@ Bethlehem be glad, palace of Juda’s Princes; for from you Christ, who shepherd
 
 Iambic. The Irmos.
 
-‘Accept, O Benefactor, the praises of your servants, ‘Humbling the haughty, despiteful look of the foe, ‘O blessed Lord, who see all, raise us all above sin, ‘And establish your singers, firm and unshaken, ‘Upon the foundation of the faith’.
+‘Accept, O Benefactor, the praises of your servants,
+‘Humbling the haughty, despiteful look of the foe,
+‘O blessed Lord, who see all, raise us all above sin,
+‘And establish your singers, firm and unshaken,
+‘Upon the foundation of the faith’.
 
-The shepherd choir, abiding in the fields, Counted beyond all thought worthy to see The all-blest Offspring of an all-pure Bride, Were stunned by the strange sight: an angel host Praising Christ King, incarnate without seed.
+The shepherd choir, abiding in the fields,
+Counted beyond all thought worthy to see
+The all-blest Offspring of an all-pure Bride,
+Were stunned by the strange sight: an angel host
+Praising Christ King, incarnate without seed.
 
-He, who rules heaven’s height, in his compassion Became as us from Maiden without bridegroom; Word without matter once, in the last times Made solid by the flesh, that he might draw The fallen first created to himself.
+He, who rules heaven’s height, in his compassion
+Became as us from Maiden without bridegroom;
+Word without matter once, in the last times
+Made solid by the flesh, that he might draw
+The fallen first created to himself.
 
 ****
 
@@ -217,13 +282,29 @@ O Christ, you came down into a virgin womb like rain upon a fleece, and as drops
 
 Iambic. The Irmos.
 
-‘Of old Avvakoum the Prophet was found worthy ‘Ineffably to see the figure of the birth of Christ; ‘And he foretold in song the renewal of mankind; ‘For a young Babe, even the Word, has come forth from the mountain, ‘Which is the Virgin, for the renewal of our race’.
+‘Of old Avvakoum the Prophet was found worthy
+‘Ineffably to see the figure of the birth of Christ;
+‘And he foretold in song the renewal of mankind;
+‘For a young Babe, even the Word, has come forth from the mountain,
+‘Which is the Virgin, for the renewal of our race’.
 
-Equal to mortals, O Most High, you came Forth from a Virgin, having taken flesh, To cleanse the poison of the serpent’s head, By nature God, leading from sunless gates All mortals to life bringing radiance.
+Equal to mortals, O Most High, you came
+Forth from a Virgin, having taken flesh,
+To cleanse the poison of the serpent’s head,
+By nature God, leading from sunless gates
+All mortals to life bringing radiance.
 
-Nations that once were in corruption sunk And have the foe’s destruction wholly fled, Lift up your hands, clap them in songs of praise, Honouring Christ alone as Benefactor, Who in compassion has now come to us.
+Nations that once were in corruption sunk
+And have the foe’s destruction wholly fled,
+Lift up your hands, clap them in songs of praise,
+Honouring Christ alone as Benefactor,
+Who in compassion has now come to us.
 
-O Virgin, who have sprung from Jesse’s root, The bounds of mortal nature you have passed, Bearing the Father’s pre-eternal Word, As it was his good pleasure to pass through, In strange self-emptying, your womb still sealed.
+O Virgin, who have sprung from Jesse’s root,
+The bounds of mortal nature you have passed,
+Bearing the Father’s pre-eternal Word,
+As it was his good pleasure to pass through,
+In strange self-emptying, your womb still sealed.
 
 ****
 
@@ -239,11 +320,23 @@ Behold, the Virgin, as it was said of old, has conceived in the womb and borne G
 
 Iambic. The Irmos.
 
-‘From the night of deeds of error, in our darkness we keep watch, ‘And sing to you, O Christ, as to our Benefactor: ‘Come to us and grant forgiveness, ‘Make the pathway easy for us, ‘Whereby we may ascend, and so attain to glory’.
+‘From the night of deeds of error, in our darkness we keep watch,
+‘And sing to you, O Christ, as to our Benefactor:
+‘Come to us and grant forgiveness,
+‘Make the pathway easy for us,
+‘Whereby we may ascend, and so attain to glory’.
 
-The Master by his coming in the flesh Harsh hate against him utterly cut through, Strength of the murderer of souls destroyed, Unites the world to immaterial beings, Making his Father gentle to creation.
+The Master by his coming in the flesh
+Harsh hate against him utterly cut through,
+Strength of the murderer of souls destroyed,
+Unites the world to immaterial beings,
+Making his Father gentle to creation.
 
-The people that in darkness dwelt before Saw in broad day light from a beacon fire On high. The Son to God as heritage Brings nations; grace ineffable bestows Where sin once flourished more abundantly.
+The people that in darkness dwelt before
+Saw in broad day light from a beacon fire
+On high. The Son to God as heritage
+Brings nations; grace ineffable bestows
+Where sin once flourished more abundantly.
 
 ****
 
@@ -259,23 +352,51 @@ A young child has been born from Adam’s matter, and a Son has been given to th
 
 Iambic. The Irmos.
 
-‘Enclosed in the uttermost depth of the sea, ‘Jonas entreated you to come and still the storm; ‘And I, O Christ, pricked by the dart of the tyrant, ‘Call upon you, the slayer of evil, ‘To come quickly and deliver me from my sloth’.
+‘Enclosed in the uttermost depth of the sea,
+‘Jonas entreated you to come and still the storm;
+‘And I, O Christ, pricked by the dart of the tyrant,
+‘Call upon you, the slayer of evil,
+‘To come quickly and deliver me from my sloth’.
 
-Who was with God in the beginning, God The Word, seeing our nature powerless To guard what it once was, now gives it strength, Lowers himself, by second fellowship Showing it once again from passions free.
+Who was with God in the beginning, God
+The Word, seeing our nature powerless
+To guard what it once was, now gives it strength,
+Lowers himself, by second fellowship
+Showing it once again from passions free.
 
-From loins of Abraham for us he came, To raise as sons those sadly fallen in The dark of sins that bowed them low. He dwells In light, yet in a manger now to dwell For man’s salvation he has been well pleased.
+From loins of Abraham for us he came,
+To raise as sons those sadly fallen in
+The dark of sins that bowed them low. He dwells
+In light, yet in a manger now to dwell
+For man’s salvation he has been well pleased.
 
 ****
 
-Kontakion. 3rd Tone. Model Melody. (A Composition of St Romanos the Melodist)
+Kontakion.
+3rd Tone. Model Melody.
+(A Composition of St Romanos the Melodist)
 
-Today the Virgin gives birth to him who is above all being, And the earth offers the Cave to him whom no one can approach; Angels with Shepherds give glory, And Magi journey with a star; For us there has been born **A little Child: God before the ages.**
+Today the Virgin gives birth to him who is above all being,
+And the earth offers the Cave to him whom no one can approach;
+Angels with Shepherds give glory,
+And Magi journey with a star;
+For us there has been born
+**A little Child: God before the ages.**
 
 ****
 
 The Ikos.
 
-Bethlehem has opened Eden, come, let us see; We have found delight in secret, come let us receive The joys of Paradise within the cave; There the unwatered root has appeared whose blossom is forgiveness, There has been found the undug well From which David once wished to drink; There a Virgin has borne a babe And has at once quenched Adam’s and David’s thirst. For this let us hasten to this place where there has been born **A little Child: God before the ages.**
+Bethlehem has opened Eden, come, let us see;
+We have found delight in secret, come let us receive
+The joys of Paradise within the cave;
+There the unwatered root has appeared whose blossom is forgiveness,
+There has been found the undug well
+From which David once wished to drink;
+There a Virgin has borne a babe
+And has at once quenched Adam’s and David’s thirst.
+For this let us hasten to this place where there has been born
+**A little Child: God before the ages.**
 
 ****
 
@@ -287,7 +408,9 @@ On the 25th day of the same month, the Nativity according to the flesh of our Lo
 
 Verses.
 
-God the one born, the Mother too a Virgin: What greater wonder had creation seen? Mary the Virgin bore God on the twenty fifth day of December.
+God the one born, the Mother too a Virgin:
+What greater wonder had creation seen?
+Mary the Virgin bore God on the twenty fifth day of December.
 
 God, who loves mankind, seeing the human race under the tyranny of the devil, took compassion on it, and sending his Archangel Gabriel, he said to the Mother of God: ‘Hail, full of grace, the Lord is with you’. And at once our Lord Jesus Christ, the Son and Word of God, was conceived in her immaculate womb. And when the nine months were completed from her conceiving, a decree went out from Caesar Augustus for the whole inhabited world to be enrolled; and Kyrinios was sent to Jerusalem to make the enrolment in Bethlehem. Joseph the guardian of the Mother of God went up with her to be enrolled in Bethlehem. And when the Virgin was about to give birth, not having found lodging due to the great number of people, she entered a poor cave, and there, without corruption, she gave birth to our Lord Jesus Christ, and she wrapped him like a babe in swaddling clothes, and laid down and put in the manger of the irrational beasts the Creator of all things, as he was about to deliver us from our unreason.
 
@@ -297,7 +420,8 @@ On the same day, the worship by the Magi.
 
 Verses.
 
-Men from the nations worshipped you, O Word, Showing your future honour from the Nations.
+Men from the nations worshipped you, O Word,
+Showing your future honour from the Nations.
 
 In those days there was a Seer called Balaam in the country of the Persians who prophesied many things, among which he said: ‘A star will dawn out of Jacob, and will crush the princes of Moab’. The other Seers then, holding this prophecy in succession, taught it to the kings of the Persians. And it came to these men, three in number, and they were keeping watch for when they might see such a star. But being astronomers, when they saw that Christ’s star did not follow a course like the other stars, from east to west, but from north to south, knew that it showed the birth of a great king; and having followed the star, they found Christ the Lord, and falling down they worshipped him and offered him gold, incense and myrrh. And so, on the orders of an Angel, they returned to their country.
 
@@ -309,7 +433,8 @@ On the same day, Commemoration of the Shepherds who saw the Lord.
 
 Verses.
 
-The Shepherds, leaving their own flock behind, To see Christ the Good Shepherd went with haste.
+The Shepherds, leaving their own flock behind,
+To see Christ the Good Shepherd went with haste.
 
 To him be glory to the ages of ages. Amen.
 
@@ -329,13 +454,29 @@ What is this word? the Shepherds said. Let us go that we may see what has come t
 
 Iambic. The Irmos.
 
-‘Caught and held fast by love for the King of all, ‘The Young Men despised the impious threats ‘Of the tyrant in his boundless fury; ‘And when the dread fire withdrew from them, they said ‘To the Master: Unto all ages, blessed are you!’
+‘Caught and held fast by love for the King of all,
+‘The Young Men despised the impious threats
+‘Of the tyrant in his boundless fury;
+‘And when the dread fire withdrew from them, they said
+‘To the Master: Unto all ages, blessed are you!’
 
-Seething and roaring in its wrath the flame Burnt up when heated sevenfold the servants, But the Young Men it saves, as victors crowns. On whom the Lord, rewarding piety, Bestows abundantly his cooling dew.
+Seething and roaring in its wrath the flame
+Burnt up when heated sevenfold the servants,
+But the Young Men it saves, as victors crowns.
+On whom the Lord, rewarding piety,
+Bestows abundantly his cooling dew.
 
-Christ our Defender, you shamed mortals’ foe, Having your incarnation beyond speech As shield, in human form bringing the joy Of being like God; in hope of which we once Fell from on high into the murky depths.
+Christ our Defender, you shamed mortals’ foe,
+Having your incarnation beyond speech
+As shield, in human form bringing the joy
+Of being like God; in hope of which we once
+Fell from on high into the murky depths.
 
-You have cast down by your almighty power Fierce sin that raised its head in wanton pride, And raged blaspheming through a world gone mad. Those once dragged down today you save from snares, O Benefactor, by your will made flesh.
+You have cast down by your almighty power
+Fierce sin that raised its head in wanton pride,
+And raged blaspheming through a world gone mad.
+Those once dragged down today you save from snares,
+O Benefactor, by your will made flesh.
 
 ****
 
@@ -353,11 +494,23 @@ Babylon received the spoils of Sion the Queen and her wealth taken by the spear;
 
 Iambic. The Irmos.
 
-‘The young men of the old covenant, walking in the fire ‘Unburned are figures of the sealed womb of the Maiden, ‘When she gave birth in fashion past nature; ‘The same grace it was worked both by one wondrous power, ‘And raises the people to sing in praise’.
+‘The young men of the old covenant, walking in the fire
+‘Unburned are figures of the sealed womb of the Maiden,
+‘When she gave birth in fashion past nature;
+‘The same grace it was worked both by one wondrous power,
+‘And raises the people to sing in praise’.
 
-Fleeing the outrage of becoming God By error, all creation like the youths With trembling hymns the everlasting Word Self emptied; fears to bring a prayer despised; Subject to change, by wisdom though endures.
+Fleeing the outrage of becoming God
+By error, all creation like the youths
+With trembling hymns the everlasting Word
+Self emptied; fears to bring a prayer despised;
+Subject to change, by wisdom though endures.
 
-The nations Rising, you have come to turn Back human nature from the desert hills To pasture rich in flowers. Now destroy The violent force of mortals’ murderer, By providence now seen as God and man.
+The nations Rising, you have come to turn
+Back human nature from the desert hills
+To pasture rich in flowers. Now destroy
+The violent force of mortals’ murderer,
+By providence now seen as God and man.
 
 ****
 
@@ -401,37 +554,70 @@ Iambic. The Irmos.
 
 To-day the Virgin bears the Master within the cave.
 
-‘For us it is easier in fear to love silence, ‘For this is without danger, but it is hard indeed ‘With love to weave songs harmoniously composed, ‘O Virgin. But do you, O Mother, give us strength ‘That we may fulfil our intent’.
+‘For us it is easier in fear to love silence,
+‘For this is without danger, but it is hard indeed
+‘With love to weave songs harmoniously composed,
+‘O Virgin. But do you, O Mother, give us strength
+‘That we may fulfil our intent’.
 
 Today the Master is born as a babe of a Virgin Mother.
 
-‘For us it is easier in fear to love silence, ‘For this is without danger, but it is hard indeed ‘With love to weave songs harmoniously composed, ‘O Virgin. But do you, O Mother, give us strength ‘That we may fulfil our intent’.
+‘For us it is easier in fear to love silence,
+‘For this is without danger, but it is hard indeed
+‘With love to weave songs harmoniously composed,
+‘O Virgin. But do you, O Mother, give us strength
+‘That we may fulfil our intent’.
 
 Today the Shepherds behold the Saviour wrapped in swaddling clothes and laid in a manger.
 
-Types of the Word, pure Mother, we have seen That have no light and shadows that are past; Newly he has appeared from the closed gate, And we, found worthy of the light of truth, Your womb, as is most fitting, now we bless.
+Types of the Word, pure Mother, we have seen
+That have no light and shadows that are past;
+Newly he has appeared from the closed gate,
+And we, found worthy of the light of truth,
+Your womb, as is most fitting, now we bless.
 
 Today the Master who cannot be touched is wrapped as a babe in swaddling rags.
 
-Types of the Word, pure Mother, we have seen That have no light and shadows that are past; Newly he has appeared from the closed gate, And we, found worthy of the light of truth, Your womb, as is most fitting, now we bless.
+Types of the Word, pure Mother, we have seen
+That have no light and shadows that are past;
+Newly he has appeared from the closed gate,
+And we, found worthy of the light of truth,
+Your womb, as is most fitting, now we bless.
 
 Today all creation rejoices greatly and is glad, for Christ is born of a Virgin Mother.
 
-Types of the Word, pure Mother, we have seen That have no light and shadows that are past; Newly he has appeared from the closed gate, And we, found worthy of the light of truth, Your womb, as is most fitting, now we bless.
+Types of the Word, pure Mother, we have seen
+That have no light and shadows that are past;
+Newly he has appeared from the closed gate,
+And we, found worthy of the light of truth,
+Your womb, as is most fitting, now we bless.
 
 The Powers of heaven declare to the world that the Saviour, Lord and Master has been born.
 
-The people that delights in Christ has found Its longing, counted worthy of God’s coming, Now cries in supplication for rebirth As giving life. Do you, pure Virgin, grant The grace to worship then that radiant glory.
+The people that delights in Christ has found
+Its longing, counted worthy of God’s coming,
+Now cries in supplication for rebirth
+As giving life. Do you, pure Virgin, grant
+The grace to worship then that radiant glory.
 
 Glory.
 
 Magnify, O my soul, the might of the undivided godhead in three Persons.
 
-The people that delights in Christ has found Its longing, counted worthy of God’s coming, Now cries in supplication for rebirth As giving life. Do you, pure Virgin, grant The grace to worship then that radiant glory.
+The people that delights in Christ has found
+Its longing, counted worthy of God’s coming,
+Now cries in supplication for rebirth
+As giving life. Do you, pure Virgin, grant
+The grace to worship then that radiant glory.
 
 Both now.
 
-Magnify, O my soul, her that has delivered us from the curse. The people that delights in Christ has found Its longing, counted worthy of God’s coming, Now cries in supplication for rebirth As giving life. Do you, pure Virgin, grant The grace to worship then that radiant glory.
+Magnify, O my soul, her that has delivered us from the curse.
+The people that delights in Christ has found
+Its longing, counted worthy of God’s coming,
+Now cries in supplication for rebirth
+As giving life. Do you, pure Virgin, grant
+The grace to worship then that radiant glory.
 
 ****
 
@@ -481,6 +667,7 @@ Today Christ is born of the Virgin in Bethlehem. Today he who is without beginni
 
 Great Doxology and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

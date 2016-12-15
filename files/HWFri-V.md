@@ -14,7 +14,9 @@ Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, no
 
 The appointed monk or the Superior reads the Opening Psalm as follows:
 
-Amen. Come let us worship and fall down before the King, our God. Come let us worship and fall down before Christ the King, our God. Come let us worship and fall down before Christ himself, the King and our God.
+Amen. Come let us worship and fall down before the King, our God.
+Come let us worship and fall down before Christ the King, our God.
+Come let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
@@ -26,7 +28,9 @@ And again
 
 The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
+Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen.
+Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
 
 ****
 
@@ -258,7 +262,9 @@ Wisdom. Stand upright! ****
 
 We say
 
-THE THANKSGIVING AT THE LIGHTING OF THE LAMPS **An ancient poem, or, as some say, by the martyr Athenogenes.**
+THE THANKSGIVING
+AT THE LIGHTING OF THE LAMPS
+**An ancient poem, or, as some say, by the martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life: therefore the world glorifies you.
 
@@ -496,7 +502,12 @@ Amen. ****
 
 After the Litany say this prayer.
 
-Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen. Let your mercy, Lord be upon us, as we have hoped in you. Blessed are you, Lord: teach me your statutes. Blessed are you, Master: make me understand your statutes. Blessed are you, Holy One: enlighten me with your statutes. Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
+Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen.
+Let your mercy, Lord be upon us, as we have hoped in you.
+Blessed are you, Lord: teach me your statutes.
+Blessed are you, Master: make me understand your statutes.
+Blessed are you, Holy One: enlighten me with your statutes.
+Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -654,7 +665,8 @@ Reader:
 
 Amen. ****
 
-Then the following Apolytikia Tone 2.
+Then the following Apolytikia
+Tone 2.
 
 The noble Joseph, taking down your most pure Body from the Tree, wrapped it in a clean shroud with sweet spices and laid it for burial in a new grave.
 
@@ -716,6 +728,7 @@ People:
 
 Amen.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

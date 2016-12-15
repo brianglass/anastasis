@@ -7,7 +7,9 @@ FIRST HOUR
 
 Note that on the Mondays of holy Lent we do not add a Kathisma of the Psalter at the First Hour. On the other days we do, and we make 3 prostrations at each Antiphon. The First Hour being joined to the Morning Office, as has been said above, begins straight away with:
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -167,6 +169,7 @@ And Dismissal. And we process into the Narthex, where the customary prayers are 
 
 This is the arrangement for Matins and the First Hour for the whole of holy Lent.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

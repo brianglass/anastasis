@@ -51,7 +51,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.
 We magnify you, Mother of God, as we cry: Hail, closed gate, through which the Paradise of old has been opened for mankind.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">After the 3rd Reading, Kathismata. As you are source of compassion.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">After the 3rd Reading, Kathismata.
+As you are source of compassion.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">All-holy Bodiless Choirs, entreat the good God and Master to spare us at the hour of judgement, to deliver us from the bitter punishment, the wickedness of demons, the blackness of the passions and from every threat, as we take refuge with love in your protection. </span>
@@ -76,7 +77,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;font-style:normal;
 mso-bidi-font-style:italic">Canon of compunction, of which the acrostic</span><a href="#_ftn1" id="_ftnref1">[1]</a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic"> is</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Give me showers of tears, O Word of God. Joseph. </span>
+color:red;font-style:normal;mso-bidi-font-style:italic"> is</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">
+Give me showers of tears, O Word of God. Joseph. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Ode 1. Tone 2. Irmos. </span>
@@ -109,7 +111,8 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion. </span>
 font-family:&quot;Book Antiqua&quot;">O Maiden, alone graced by God, you bore the source of dispassion, heal me, wounded by passions, and snatch me from eternal fire. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Another, of the Bodiless Powers, of which the acrostic is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> I sing the praise of the choir of Angels. </span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Another, of the Bodiless Powers, of which the acrostic is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">
+I sing the praise of the choir of Angels. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Troparia. </span>
@@ -213,7 +216,8 @@ font-family:&quot;Book Antiqua&quot;">Reverencing a Unity in Essence and a Trini
 font-family:&quot;Book Antiqua&quot;">Willingly the Lord takes flesh, O Immaculate, from your pure blood, is united to humankind and, swayed by your entreaties, receives the repentant, who before were subject to sins. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos. I heard of your glorious dispensation.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos.
+I heard of your glorious dispensation.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">I bring you the Bodiless Powers as suppliants. Accept them, O Merciful One, as you are compassionate and ransom me from sin. </span>
@@ -261,7 +265,8 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion </span>
 font-family:&quot;Book Antiqua&quot;">You gave birth, O All-blameless, as a new-born babe to the Son who exists before the ages, who is double with two operations of the will, as man and at the same time God. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos. The coal foreseen by Isaias.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos.
+The coal foreseen by Isaias.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The Seraphim and Cherubim with the Thrones lifted up on high, blazing with the divine radiance of the Godhead, imitating God give light to those that follow. </span>
@@ -357,7 +362,8 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion </span>
 font-family:&quot;Book Antiqua&quot;">Your womb, immaculate Maiden, Bride of God, became a dwelling for the immaterial light, that lessens our godlessness with rays of the knowledge of God, whose praise we sing as we cry: Blessed are you, the God of our fathers. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos. Youths were revealed.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Of the Bodiless Powers. Another Irmos.
+Youths were revealed.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">As they ever dance around the throne of the ineffable glory, the heavenly Minds sing with bodiless voices: Our most high God and God of our fathers, blessed are you. </span>
@@ -504,6 +510,7 @@ italic">Theotokion.</span> </span>
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -6,7 +6,9 @@ FIRST HOUR
 
 The First Hour being joined to the Morning Office, as has been said above, begins straight away with:
 
-> > Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+> > Come, let us worship and fall down before the King, our God.
+> > Come, let us worship and fall down before Christ, the King, our God.
+> > Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -42,7 +44,8 @@ What shall we call you, O Full of grace? Heaven? For you made the Sun of righteo
 
 ****
 
-Troparion of the Prophecy. Tone 3.
+Troparion of the Prophecy.
+Tone 3.
 
 You were struck on behalf of the human race and were not angered; \* free our life from corruption, Lord, and save us.
 
@@ -64,7 +67,8 @@ Verse:
 
 O God, who shall be likened to you?
 
-The Reading from the Prophecy of Jeremias. \[
+The Reading from the Prophecy of Jeremias.
+\[
 
 **11:18-12:5a.9b-11a.14-15**\]
 
@@ -84,7 +88,10 @@ God is known in Judea; his name is great in Israel. ****
 
 Then we chant the following Verses:
 
-Direct my steps according to your word, and let no iniquity lord it over me. Deliver me from the slander of men, and I shall keep your commandments. Let your face shine on your servant, and teach me your statutes. Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour.
+Direct my steps according to your word, and let no iniquity lord it over me.
+Deliver me from the slander of men, and I shall keep your commandments.
+Let your face shine on your servant, and teach me your statutes.
+Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour.
 
 ****
 
@@ -146,6 +153,7 @@ The other Hours are sung plainly with three psalms, and the Beatitudes are read 
 
 Note that the Liti in the Narthex is dropped from today until the Sunday of Antipascha.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

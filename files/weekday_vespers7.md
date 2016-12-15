@@ -332,6 +332,7 @@ Glory. Both now.
 
 At the prayers of her who gave you birth, O Christ, those of your Martyrs, Apostles, Prophets, Hierarchs, Venerable and Righteous ones, and all your Saints, give rest to your servants who have fallen asleep.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

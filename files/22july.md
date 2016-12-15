@@ -5,7 +5,8 @@
 22 JULY - HOLY MARY MAGDALEN
 ============================
 
-**Commemoration of the Holy Myrrhbearer and Equal of the Apostles, Mary Magdalen.**
+**Commemoration of the Holy Myrrhbearer and Equal of the Apostles,
+Mary Magdalen.**
 
 AT VESPERS
 ----------
@@ -159,7 +160,10 @@ Christ the light of the world, seeing you the vigilant eye of faith and the inse
 
 On the 22nd of the month, Commemoration of the holy Myrrhbearer and Equal of the Apostles, Mary Magdalen.
 
-**Verses.** With touches immaterial she touches you, My Christ, to whom you said, ‘O Mary, touch me not.’ Magdala’s Mary slept the twenty second.
+**Verses.
+**With touches immaterial she touches you,
+My Christ, to whom you said, ‘O Mary, touch me not.’
+Magdala’s Mary slept the twenty second.
 
 She was from Magdala in the regions of Syria. When she approached Christ troubled by seven demons, she was delivered from them by Christ’s grace. Then she followed him until his Passion and was one of the Myrrhbearers. She, with the ‘other Mary’, the most holy Mother of God, was the first to behold the Resurrection, when she saw the Angel late on the Sabbath. In the morning she saw two Angels sitting clothed in white, and then the Lord himself, whom she thought was a gardener. From him she heard the words: Do not touch me. After the divine and holy Ascension she came to Ephesus, to Saint John, the Apostle and Divine. There she fell asleep in sanctity and was laid to rest at the entrance to the cave in which the Seven Holy Youths slept. Later under Leo, who by blessed fortune had become our King, her relics were translated by him and laid in the monastery of St Lazarus established by him, in which her annual assembly is celebrated, and in the estate of Curator near the Taurus..
 
@@ -213,6 +217,7 @@ Mary, aptly named, and Disciple of Christ, with the rest of the Myrrhbearers and
 
 **The rest of the Office and Dismissal **
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

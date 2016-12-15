@@ -50,7 +50,8 @@ Glory to you, Christ God, boast of Apostles, joy of martyrs, whose preaching is 
 
 Glory. Both now*.*
 
-**Theotokion. Today Judas watches.**
+**Theotokion.
+Today Judas watches.**
 
 You surpassed the ranks of Angels, as you gave a body to God; while I, who have vanquished all in sins, alas! quake and tremble. Therefore I do not dare to call on you for help Sovereign lady, Mother of God. Do not then despise me, but hasten, save me guiding me to the straight way.
 
@@ -72,7 +73,8 @@ I beseech you, Master, be patient with me, though I bear no fruit, and do not cu
 
 ****
 
-Others, of the Forerunner. Having despised.
+Others, of the Forerunner.
+Having despised.
 
 As escort to the bride with words you led forward the Church of Christ, wise Saint, as an unblemished bride and set her beside the Master as his subject. But as you now have power, defend her and appear as her champion, rescuing her from every wickedness of the devil, O All-blessed.
 
@@ -124,7 +126,8 @@ By the tree of the Cross you cured the bitterness of a tree, and opened Paradise
 
 ****
 
-Others, of the Mother of God. Same melody.
+Others, of the Mother of God.
+Same melody.
 
 Like the Angel, let us offer our ‘Hail’ to the Mother of God, and let us cry out: Blessed, All-pure, glory to you.
 
@@ -230,7 +233,8 @@ When you were crucified, O Merciful, the sun grew dark and creation was shaken. 
 
 ****
 
-Others, of the Mother of God. Today Judas watches
+Others, of the Mother of God.
+Today Judas watches
 
 Bend your loving ear to me as I implore, All-Blameless, and do not cast me from your presence, not send me far from your help. For by trickery the trickster strives to destroy me; stirs my heart with irrational passions. But do you keep me wholly safe from his harm.
 
@@ -330,6 +334,7 @@ Daniel saw you as a holy, divine mountain, honoured one, and wise Isaias proclai
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

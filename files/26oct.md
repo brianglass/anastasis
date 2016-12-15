@@ -50,19 +50,22 @@ Entrance,
 
 O Joyful light. **Prokeimenon of the day, and the Readings.**
 
-The Reading is from the Prophecy of Isaias. \[
+The Reading is from the Prophecy of Isaias.
+\[
 
 **63:15-19 & 64:1-5 and selection**\]
 
 Look down from heaven, Lord, and see from your holy house and your glory. Where is the multitude of your mercy and your pity, that you keep back from us, O Lord? For you are our Father, though Abraham did not know us, though Israel did not acknowledge us; but you are our Father, deliver us. From the beginning your name is upon us. Why have you made us wander from your way, Lord? Why have you hardened our hearts not to fear you? Turn back for the sake of your servants, for the tribes of your inheritance, that we may inherit a small part of your holy mountain. Our enemies have trampled down your sanctuary. We have become as at the beginning, when you did not know us, when your name had not been invoked upon us. If you open the heaven, trembling will take hold upon mountains from you, and they will melt as wax melts before the fire; and fire will burn up your enemies, and your name will be manifest to your enemies; before your face nations will be troubled. When you do glorious things trembling from you will seize mountains. From eternity we have not heard, nor have we seen a God save you; and your works are true, and you do mercy to those who wait on you. For mercy will meet those who act justly, and they will be mindful of your ways. And now, Lord, your are our Father, while we are your clay and you are our Fashioner; we are all the works of your hands; do not be very angry with us, Lord, and do not remember our sins in season. And now look upon, Lord, for we are all your people.
 
-The Reading is from the Prophecy of Jeremy. \[
+The Reading is from the Prophecy of Jeremy.
+\[
 
 **2:1-12**\]
 
 Thus says the Lord: I have remembered the mercy of your youth and the love of your marriage, in your following the Holy One of Israel, says the Lord, the Holy One of Israel. For the Lord the first of his produce. All that devour him shall offend; evils will come upon them, says the Lord. Hear the word of the Lord, house of Jacob and all the family of the house of Israel. Thus says the Lord: What offence did your fathers find in me, that they rebelled far from me and went after vanities and became vain? Nor did they say: Where is the Lord, who brought us up from Egypt, who guided us in the wilderness, in a vast and trackless land, in a waterless and fruitless land, and in the shadow of death? In a land in which no man had ever journeyed, nor had any human dwelt there? And I led you into Carmel, to eat its fruits and its good things. And you entered and defiled my land, and you turned my inheritance into an abomination. Your priests did not say: Where is the Lord? And those who stood by the law did not know me, and the shepherds sinned against me, and the prophets prophesied by Baal and went after what is profitless. Therefore I will dispute with you again, says the Lord, and I will dispute with your children’s children. Pass through the isles of the Kittim and see; send to Kedar and observe closely, and see if such things have been done; if the nations will change their gods - and they are not gods. But my people has changed their glory for that from which they get no profit. Heaven is amazed at this and shudders greatly with horror, says the Lord.
 
-The Reading is from the Wisdom of Solomon. \[
+The Reading is from the Wisdom of Solomon.
+\[
 
 **3:1-9**\]
 
@@ -70,7 +73,8 @@ The souls of the just are in the hand of God, and no torment will ever touch the
 
 ****
 
-At the Liti, Idiomel Stichera. Tone 1. By George Sikeliotes
+At the Liti, Idiomel Stichera.
+Tone 1. By George Sikeliotes
 
 Rejoice in the Lord, city of Thessaloniki; be glad and dance, resplendent by faith, for you possess as a treasure in your bosom Demetrios the all-renowned Athlete, and Martyr for the truth; look and receive healings of wonders; and see how he strikes down the insolence of the Barbarians, and with thanksgiving cry out to the Saviour: Lord, glory to you!
 
@@ -94,7 +98,9 @@ O greatest mystery! Seeing the wonders I proclaim the divinity, I do not deny th
 
 ****
 
-At the Aposticha, Idiomel Stichera of the Earthquake. A composition of Symeon of the Wonderful Mountain. Tone 2.
+At the Aposticha, Idiomel Stichera of the Earthquake.
+A composition of Symeon of the Wonderful Mountain.
+Tone 2.
 
 When the earth was troubled in fear of your rage, hills and mountains were shaken, Lord; but having looked upon us with an eye of compassion, in your anger do not be enraged at us; but with compassion for the creation of your hands free us from the dread threat of earthquake, as you are good and love mankind.
 
@@ -184,7 +190,8 @@ Hail gate of the Lord, though which none may pass; hail wall and protection of t
 
 ****
 
-After the Polyeleos, Kathisma. Tone 3. Awed by the beauty.
+After the Polyeleos, Kathisma.
+Tone 3. Awed by the beauty.
 
 We implore you faithfully Demetrios, most compassionate Martyr of the Lord, to deliver us from dangers of every kind that assail us; heal the wounds of our souls and bodies; tame the proud ragings of our foes, O Saint; give peace to our life, that we may ever glorify you.
 
@@ -238,7 +245,8 @@ Christ God took your blameless spirit to tabernacles beyond the world, wise mart
 
 Then the Canons; that of the earthquake with the Irmi to 6; those of the Saint to 8.
 
-**\[The Canon of the Earthquake, of which the Acrostic is:** O Christ, earth’s tremors end with speed Joseph.\]
+**\[The Canon of the Earthquake, of which the Acrostic is:
+**O Christ, earth’s tremors end with speed Joseph.\]
 
 ****
 
@@ -262,7 +270,8 @@ Theotokion.
 
 As God he was before without mother; as one like us he became without father from you, all-praised Mother of God, taking flesh in the union which is beyond reason and understanding.
 
-**\[Second Canon of the Saint, of which the Acrostic is:** Adorned with spiritual myrrh, you become myrrh.
+**\[Second Canon of the Saint, of which the Acrostic is:**
+Adorned with spiritual myrrh, you become myrrh.
 
 ****
 
@@ -274,7 +283,8 @@ Katavasia
 
 I will open my mouth. ****
 
-Ode 3. First Canon of the Saint. Your Church, O Christ.
+Ode 3. First Canon of the Saint.
+Your Church, O Christ.
 
 The decree of the tyrants was reckoned by you as nothing, O Champion, for you chose before all things the Word of God.
 
@@ -310,7 +320,8 @@ Because from your unendurable wrath that threatened us you have delivered us and
 
 ****
 
-Ode 4. First Canon of the Saint. Seeing you the Sun of justice.
+Ode 4. First Canon of the Saint.
+Seeing you the Sun of justice.
 
 The most high Word of God, seeing you had conquered the falsehood of impiety, crowned you with glory, Demetrios, as you sang: Glory to your power, O Lord.
 
@@ -388,7 +399,9 @@ On the 26th of the month, Commemoration of the holy and glorious Great Martyr De
 
 Verses.
 
-Lances, my Christ, pierce through Demetrios, Tracing the passions of your lance-pierced side. Spears on the twenty sixth day pierced the side of the martyr Demetrios.
+Lances, my Christ, pierce through Demetrios,
+Tracing the passions of your lance-pierced side.
+Spears on the twenty sixth day pierced the side of the martyr Demetrios.
 
 He lived in the reign of the Emperors Diocletian and Maximianos and was from the city of Thessalonika, a devout Christian from the start and a teacher of the faith in Christ. But when Maximianos visited Thessalonika, the Saint was arrested as being well known for his beliefs. The Emperor was extremely proud of a certain Lyaios and urged the people of the place to come out and meet him in combat (Lyaios was a man of huge stature and excelled in strength those who came agaisnt him). A certain young man, Christian by faith, named Nestor, went to Demetrios, who was in prison, and said, ‘Servant of God, I intend to compete aginst Lyaios. But pray for me.’ Demetrios signed his forehead with the sign of the Cross and said, ‘You will both beat Lyaios and bear a Mertyr’s witness for Christ.’ At these words Nestor took courage and opposed Lyaios, cast down his arrogant boasting and slew him.
 
@@ -400,7 +413,8 @@ On the same day the holy Martyrs Artemidoros and Basil attained perfection by th
 
 Verses.
 
-Artemidoros, for whom end was sword, Had Basil as his fellow for the sword.
+Artemidoros, for whom end was sword,
+Had Basil as his fellow for the sword.
 
 On the same day the holy Martyr Leptina was dragged down into the ground and attained perfection.
 
@@ -408,7 +422,8 @@ On the same day the holy Martyr Leptina was dragged down into the ground and att
 
 Verses.
 
-Dragged to the ground by hands of hostile men, Leptina \[thin\] left to earth the bulk of flesh.
+Dragged to the ground by hands of hostile men,
+Leptina \[thin\] left to earth the bulk of flesh.
 
 On the same day the holy Martyr Glykon attained perfection by the sword.
 
@@ -416,7 +431,8 @@ On the same day the holy Martyr Glykon attained perfection by the sword.
 
 Verses.
 
-Glykon, you stretched your neck out o sword, Pouring for Christ your blood as sweet \[glykeia\] libation.
+Glykon, you stretched your neck out o sword,
+Pouring for Christ your blood as sweet \[glykeia\] libation.
 
 On the same day, Commemoration of the great and terrible earthquake.
 
@@ -424,7 +440,8 @@ On the same day, Commemoration of the great and terrible earthquake.
 
 Verses.
 
-You shook, but saved again the earth, O Word; For of your anger pity is the sum.
+You shook, but saved again the earth, O Word;
+For of your anger pity is the sum.
 
 In the twenty fourth year of the reign of Leo the Isaurian, in the ninth Indiction, on the 26th of October, there was a great and terrible earthquake in Constantinople, so that the upper stories and the more splendid of the other buildings collapsed and many people were buried under the ruins. And so on the day of the Great martyr Demetrios we commemorate that terrible threat of the earthquake, going in procession to the church in Vlachernae of our all-pure, holy and glorious Lady, Mother of God and Ever-Virgin Mary, where we celebrate the divine Liturgy. At her prayers may we be delivered from every threat and attain eternal good things, in Christ Jesus our Lord, to whom be glory and might to the ages of ages. Amen.
 
@@ -528,6 +545,7 @@ Holy myron from the Saint is given, while his Idiomels are chanted.
 
 At the Liturgy, Typika and Beatitudes, and from the canons of the Saint the 3rd and 6th Odes.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -8,7 +8,8 @@ The usual office of the Resurrection. The Anavathmi and Prokeimenon of the Tone.
 
 Having seen the Resurrection **etc.**
 
-Canon of the Ancestors. Ode 1. Tone 6. Irmos.
+Canon of the Ancestors.
+Ode 1. Tone 6. Irmos.
 
 ’The One, who of old hid the pursuing tyrant with the waves of the sea, the Children of those he saved have hidden beneath the earth; but let us, like the young maidens, sing to the Lord, for he has been greatly glorified’. (**Twice**)
 
@@ -30,7 +31,8 @@ O full of grace, Mother without bridegroom, Virgin undefiled, we call you blesse
 
 ****
 
-Canon of the Forefeast. Tone 1. Christ is born.
+Canon of the Forefeast.
+Tone 1. Christ is born.
 
 Christ made a child in the flesh, Christ willingly become a beggar, Christ made visible, the Virgin now comes to Bethlehem to give birth to him. Let heaven and earth be glad.
 
@@ -92,7 +94,8 @@ An Angel turned the furnace of the Youths to dew, while now he halts the women�
 
 ****
 
-Of the Ancestors. Ode 4. The Irmos.
+Of the Ancestors.
+Ode 4. The Irmos.
 
 ’Foreseeing your divine self-emptying on the Cross, Avvakum cried out marvelling: You have cut short the strength of the mighty, loving Lord, and preached to those in Hell, as all-powerful’. (**Twice)**
 
@@ -132,7 +135,8 @@ Rod out of Jesse’s root, and flower that blossomed from his stem, O Christ, yo
 
 ****
 
-Of the Ancestors. Ode 5. The Irmos.
+Of the Ancestors.
+Ode 5. The Irmos.
 
 ’Isaias, as he watched by night, saw the light that knows no evening, the light, O Christ, of your Theophany that came to pass through your compassion for us, and he cried aloud: The dead will arise, and those in the graves will be raised, and all those born of earth will rejoice’. (**Twice**)
 
@@ -168,7 +172,8 @@ As you are God of peace and Father of mercies, you have sent us your Angel of gr
 
 ****
 
-Of the Ancestors. Ode 6. The Irmos.
+Of the Ancestors.
+Ode 6. The Irmos.
 
 ’Watching the sea of life rising with the tempest of temptations, as I hasten to your fair haven, I cry to you: Bring my life up from corruption, O most merciful’. (**Twice**)
 
@@ -204,7 +209,8 @@ The monster from the deep spat Jonas from its bowels, like a new-born babe, just
 
 ****
 
-Kontakion. Of the Ancestors. Tone 6.
+Kontakion.
+Of the Ancestors. Tone 6.
 
 Because you did not honour an image traced by human hand, but were armed with the breastplate of uncreated being, you were glorified, thrice-blessed Youths, in the arena of the fire; but standing in the midst of the immaterial flame you called on God: Come swiftly in your pity, hasten in your mercy to come to our aid, for you can accomplish whatever you will.
 
@@ -240,47 +246,57 @@ Commemoration of Adam and Eve, the first-formed.
 
 Verses.
 
-Living I hymn the race’s authors dead: Responsible that I both live and die.
+Living I hymn the race’s authors dead:
+Responsible that I both live and die.
 
 Commemoration of the just Abel, Adam’s son.
 
-Your blood and soul apart cry out to God: First of the dead, and first too of the saved.
+Your blood and soul apart cry out to God:
+First of the dead, and first too of the saved.
 
 Commemoration of the just Seth, Adam’s son.
 
-New offspring for his parents Abel’s place Seth took; a just man too, as Abel was.
+New offspring for his parents Abel’s place
+Seth took; a just man too, as Abel was.
 
 Commemoration of the just Enos, Seth’s son.
 
 Commemoration of the just Canaan, Enos’s son.
 
-Canaan was written of in Moses’ book; So in the present book must he be written.
+Canaan was written of in Moses’ book;
+So in the present book must he be written.
 
 Commemoration of Malelael, Canaan’s son.
 
 Commemoration of Jared, Malelael’s son.
 
-Just is it in the number of the just Jared the just also to celebrate.
+Just is it in the number of the just
+Jared the just also to celebrate.
 
 Commemoration of the just Enoch, Jared’s son.
 
-Enoch, who had pleased God most visibly, In lands invisible was made to dwell.
+Enoch, who had pleased God most visibly,
+In lands invisible was made to dwell.
 
 Commemoration of Mathousala, Enoch’s son.
 
-That you, Mathousala, were Enoch’s child I learned, and here for others wrote it down.
+That you, Mathousala, were Enoch’s child
+I learned, and here for others wrote it down.
 
 Commemoration of Lamech, Mathousala’s son.
 
-Knowing two Lamechs, I must honour one Named Lamech, but not him the murderer.
+Knowing two Lamechs, I must honour one
+Named Lamech, but not him the murderer.
 
 Commemoration of the just Noe, Lamech’s son.
 
-Adam brought mortals ruin from a tree: But Noe through a tree saved all the race.
+Adam brought mortals ruin from a tree:
+But Noe through a tree saved all the race.
 
 Commemoration of the just Shem, Noe’s son.
 
-His father’s nakedness Sem rightly covered, Found that he had his father’s prayers as cover.
+His father’s nakedness Sem rightly covered,
+Found that he had his father’s prayers as cover.
 
 Commemoration of the just Japhet. Noe’s son.
 
@@ -292,59 +308,72 @@ Commemoration of the just Sala, Cainan’s son.
 
 Commemoration of the just Heber, after whom the Jews are named Hebrews.
 
-Heber is truly great for all the Jews; He gave his own name to the Hebrew race.
+Heber is truly great for all the Jews;
+He gave his own name to the Hebrew race.
 
 Commemoration of the just Phalek, Heber’s son.
 
-I keep high festival for Eber’s child; For Moses tells that Phalek begot.
+I keep high festival for Eber’s child;
+For Moses tells that Phalek begot.
 
 Commemoration of Ragab, Phalek’s son.
 
-Again conception and again new birth; Phalek begets for us Ragab his son.
+Again conception and again new birth;
+Phalek begets for us Ragab his son.
 
 Commemoration of the just Seruch, Ragab’s son.
 
-Writing the offspring of ancients down, Were I to miss out Seruch, I would err.
+Writing the offspring of ancients down,
+Were I to miss out Seruch, I would err.
 
 Commemoration of the just Nachor, Seruch’s son.
 
 Commemoration of the just Tharra, Nachor’s son.
 
-Tharras came forth from Nachor as his son; Father of many nations father he became.
+Tharras came forth from Nachor as his son;
+Father of many nations father he became.
 
 Commemoration of the just Patriarch Abraham.
 
-How shall I welcome Abraham with words, To whom it was vouchsafed to welcome Angels?
+How shall I welcome Abraham with words,
+To whom it was vouchsafed to welcome Angels?
 
 Commemoration of the Patriarch Isaac, Abraham’s son.
 
-Bound for the slaughter Isaac was a type Of God’s high Word who would to slaughter come.
+Bound for the slaughter Isaac was a type
+Of God’s high Word who would to slaughter come.
 
 Commemoration of the Patriarch Jacob, Isaac’s son.
 
-By the Ladder that is the Virgin Jacob saw God coming down to earth before his birth.
+By the Ladder that is the Virgin Jacob saw
+God coming down to earth before his birth.
 
 Commemoration of the Patriarch Ruben, Jacob’s son.
 
-Of Jacob’s honoured offspring I have known Ruben to be the godlike, honoured start.
+Of Jacob’s honoured offspring I have known
+Ruben to be the godlike, honoured start.
 
 Commemoration of the Patriarch Symeon, Jacob’s son.
 
-Though only second Symeon in line, From us no second honour does he bear.
+Though only second Symeon in line,
+From us no second honour does he bear.
 
 Commemoration of the Patriarch Levi, Jacob’s son.
 
-As godly servant of the the greatest God What better glory, Levi, do you wish?
+As godly servant of the the greatest God
+What better glory, Levi, do you wish?
 
 Commemoration of the Patriarch Juda, Jacob’s son, of whose tribe came the Christ.
 
-Those who are saved will now sing Juda’s praise, For Christ who is salvation came from him.
+Those who are saved will now sing Juda’s praise,
+For Christ who is salvation came from him.
 
 Commemoration of the Patriarch Zavulon, Jacob’s son, whose tribe lives by the sea shore.
 
 Commemoration of the Patriarch Issachar, Jacob’s son, whose tribe tills the soil.
 
-Issachar sets himself to heavy toil, Sustains his life by bringing bread from earth.
+Issachar sets himself to heavy toil,
+Sustains his life by bringing bread from earth.
 
 Commemoration of the Patriarch Dan, Jacob’s son, whose tribe is judge.
 
@@ -372,19 +401,23 @@ Commemoration of Salmon, Naason’s son.
 
 Commemoration of Booz, Salmon’s son.
 
-Evangelist, whom do you write as son Of Salmon here? Booz, he says, I write.
+Evangelist, whom do you write as son
+Of Salmon here? Booz, he says, I write.
 
 Commemoration of Obed, Booz’ son, born of Ruth.
 
-Obed of Ruth, a Moabite by tribe, But yet of Booz, a true Israelite.
+Obed of Ruth, a Moabite by tribe,
+But yet of Booz, a true Israelite.
 
 Commemoration of Jesse, Obed’s son.
 
-Jesse give birth, and let your race give birth Until from it a Child, great God, is born.
+Jesse give birth, and let your race give birth
+Until from it a Child, great God, is born.
 
 Commemoration of King David, Jesse’s son.
 
-What shall I say, the Lord bears witness here, I have found David after my own heart.
+What shall I say, the Lord bears witness here,
+I have found David after my own heart.
 
 Commemoration of King Solomon, David’s son.
 
@@ -438,19 +471,23 @@ Commemoration of Jacob, Mathan’s son.
 
 Commemoration of Joseph, the Betrothed, Jacob’s son.
 
-To Joseph, the Betrothed, the Spirit shows That his betrothed, before they wed, conceives.
+To Joseph, the Betrothed, the Spirit shows
+That his betrothed, before they wed, conceives.
 
 Commemoration of the just Melchisedek.
 
-No father and no mother Scripture gives To you, Melchisedek, as type of Christ.
+No father and no mother Scripture gives
+To you, Melchisedek, as type of Christ.
 
 Commemoration of the just Job.
 
-Having the Most High to give fitting praise, Job therefore has no need of earthly praise.
+Having the Most High to give fitting praise,
+Job therefore has no need of earthly praise.
 
 Commemoration of the Prophet Moses, and the priests Hor and Aaron.
 
-Aaron with Hor depicts Christ’s suffering, Both raising Moses arms up like a Cross.
+Aaron with Hor depicts Christ’s suffering,
+Both raising Moses arms up like a Cross.
 
 Commemoration of Jesus, Navi’s son.
 
@@ -462,7 +499,8 @@ Commemoration of the Holy Prophet Daniel.
 
 Commemoration of the three Holy Youths.
 
-The furnace fire was fire and also dew; For the ungodly fire, for Youths, though, dew.
+The furnace fire was fire and also dew;
+For the ungodly fire, for Youths, though, dew.
 
 Commemoration of the just Sara, Abraham’s wife.
 
@@ -472,29 +510,35 @@ A child is witness too of Sara’s pains.
 
 Commemoration of the just Rebecca, Isaac’s wife.
 
-Noblest of husbands found to share his bed Rebecca, who was noblest of wives.
+Noblest of husbands found to share his bed
+Rebecca, who was noblest of wives.
 
 Commemoration of the just Lea, Jacob’s first wife.
 
-The Lord did not make Lea fair of face, But gave her womb the gift of motherhood.
+The Lord did not make Lea fair of face,
+But gave her womb the gift of motherhood.
 
 Commemoration of the just Rachel, Jacob’s second wife.
 
-Her father’s gods through longing Rachel steals, But at the last she longs for God the Word.
+Her father’s gods through longing Rachel steals,
+But at the last she longs for God the Word.
 
 Commemoration of the just Asineth, the most upright Joseph’s wife.
 
-The sun exceeds in beauty all the stars; For me Asineth maids beneath the sun.
+The sun exceeds in beauty all the stars;
+For me Asineth maids beneath the sun.
 
 Commemoration of the just Mary, Moses’ sister.
 
-Let’s sing, she said, and sing unto the Lord, Now Mary beats the timbrel of the soul.
+Let’s sing, she said, and sing unto the Lord,
+Now Mary beats the timbrel of the soul.
 
 Commemoration of the just Deborah, who judged Israel.
 
 Commemoration of the just Ruth.
 
-Leaving her nation and her gods behind, Nation and God of Moses Ruth then found.
+Leaving her nation and her gods behind,
+Nation and God of Moses Ruth then found.
 
 Commemoration of the just woman of Sareptha, to whom Elias was sent.
 
@@ -630,7 +674,8 @@ A strange and wonderful mystery I see, the Cave is heaven, the Virgin the Cherub
 
 ****
 
-Exapostilaria Of the Fathers
+Exapostilaria
+Of the Fathers
 
 The princes of the Patriarchs and the Fathers before the Law, Abraham, Isaac and Jacob, shone out by faith like beacons; for all the Prophets and the Just like torches took their light from them, and formed of light they enlightened all creation in its darkness with rays of honoured prophecy.
 
@@ -680,6 +725,7 @@ Great Doxology and Dismissal
 
 Before the First Hour, the Eothinon.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

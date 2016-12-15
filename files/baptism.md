@@ -1,7 +1,8 @@
 \[ [Home](index.md) \] \[ [Up](eucholog.md) \] \[ Baptism \] \[ [Marriage Rites](marriage.md) \] \[ [Anointing of the Sick](anointin.md) \] \[ [Funeral Service](funeral.md) \] \[ [Consecration of a Church](dedic-int.md) \] \[ [Liturgy of Saint James](lit-james.md) \] \[ [Proskomidi](proskomidi.md) \] \[ [Canon for Confession](canon_for_confession.md) \] \[ [Presanctified](presanctified.md) \] \[ [Ordinations](ordinations.md) \]
 
 <span style="font-size:18.0pt;
-mso-bidi-font-size:10.0pt">ORDER THAT TAKES PLACE BEFORE HOLY BAPTISM</span>
+mso-bidi-font-size:10.0pt">ORDER THAT TAKES PLACE BEFORE
+HOLY BAPTISM</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red">PRAYER FOR MAKING A CATECHUMEN</span>
 
@@ -27,7 +28,8 @@ EN-GB">Lord, have mercy. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;font-style:normal;mso-bidi-font-style:italic">Priest:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> The Lord rebukes you, O Devil, the Lord who came into the world and dwelt among mortals so that he might destroy your tyranny and deliver humanity; the Lord who on the Tree crushed the hostile powers, when the sun was darkened, the earth shaken, the graves opened and the bodies of Saints arose; the Lord who by death abolished death and destroyed the one who had the power of death, that is you, the Devil. I adjure you by God, who revealed the tree of life and set in place the Cherubim and the flaming sword which turned this way and that to guard it: Be rebuked and withdraw! I adjure you by the One who walked on the surface of the sea as on dry land and rebuked the tempest of the winds, the One whose gaze dries up the deeps and whose curse melts mountains. For it is he who now commands you, through us: Be afraid, come out, withdraw from this creature and return no more. Do not hide in him/her, nor encounter him/her, nor influence him/her either by night or day, early or at noon. But go back to your own Tartarus until the great day of the judgement that has been prepared. Be afraid of God, who is seated upon the Cherubim and looks upon the deeps; before whom Angels, Archangels, Thrones, Dominions, Principalities, Authorities, Powers, the many-eyed Cherubim and the six-winged Seraphim tremble; before whom heaven and earth, the sea and all that is in them tremble. Come out, and withdraw from the sealed and newly-enlisted soldier of Christ our God. For it is by him that I adjure you, the One who walks on the wings of the winds, who makes his Angels spirits and his ministers a flaming fire. Come out, and withdraw from this creature with all your power and your angels. For the name of the Father and of the Son and of the Holy Spirit has been glorified, now and for ever, and to the ages of ages. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+The Lord rebukes you, O Devil, the Lord who came into the world and dwelt among mortals so that he might destroy your tyranny and deliver humanity; the Lord who on the Tree crushed the hostile powers, when the sun was darkened, the earth shaken, the graves opened and the bodies of Saints arose; the Lord who by death abolished death and destroyed the one who had the power of death, that is you, the Devil. I adjure you by God, who revealed the tree of life and set in place the Cherubim and the flaming sword which turned this way and that to guard it: Be rebuked and withdraw! I adjure you by the One who walked on the surface of the sea as on dry land and rebuked the tempest of the winds, the One whose gaze dries up the deeps and whose curse melts mountains. For it is he who now commands you, through us: Be afraid, come out, withdraw from this creature and return no more. Do not hide in him/her, nor encounter him/her, nor influence him/her either by night or day, early or at noon. But go back to your own Tartarus until the great day of the judgement that has been prepared. Be afraid of God, who is seated upon the Cherubim and looks upon the deeps; before whom Angels, Archangels, Thrones, Dominions, Principalities, Authorities, Powers, the many-eyed Cherubim and the six-winged Seraphim tremble; before whom heaven and earth, the sea and all that is in them tremble. Come out, and withdraw from the sealed and newly-enlisted soldier of Christ our God. For it is by him that I adjure you, the One who walks on the wings of the winds, who makes his Angels spirits and his ministers a flaming fire. Come out, and withdraw from this creature with all your power and your angels. For the name of the Father and of the Son and of the Holy Spirit has been glorified, now and for ever, and to the ages of ages. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -50,7 +52,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;font-style:normal;mso-bidi-font-style:italic">Priest:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> It is God, the Holy One, who is beyond understanding and unsearchable in all his works and in his strength, the One who foreordained for you, O Devil, the penalty of eternal damnation, that through us, his unprofitable servants, orders you, and every power that works with you, to depart from the one who has been newly sealed in the name of our Lord Jesus Christ, our true God. I adjure you, most evil, unclean, foul, abominable and alien spirit, by the power of Jesus Christ, who has all authority in heaven and on earth and who said to the deaf and dumb demon, ‘Come out of the man, and enter him no more!’ Depart! Acknowledge the futility of your power, which had no authority even over swine. Remember the One who ordered you, in accordance with your own request, to enter the herd of swine. Fear God, at whose command the earth was established upon the waters, who created the heavens and fixed the mountains with a king post and the valleys with a cross-beam, placed sand as a boundary for the sea and made a safe path through wild water; who touches the mountains and they smoke; who wraps himself in light as in a garment, stretching out the heavens like a tent cloth; who roofs his upper chambers with waters; who established the earth on its foundations; it will not be moved for to age on age; who summoned the water of the sea and poured it out upon the face of the earth. Come and depart from one who is being made ready for holy Enlightenment. I adjure you by the saving Passion of our Lord Jesus Christ, by his precious Body and Blood and his dread Coming; for he will come, and he will not delay, to judge the whole earth and he will condemn you and the power that works with you to the Gehenna of fire, handing you over to the exterior darkness, where the worm is unsleeping and the fire is not quenched. Because the might is Christ our God’s, with the Father and the Holy Spirit, now and for ever, and to the ages of ages. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+It is God, the Holy One, who is beyond understanding and unsearchable in all his works and in his strength, the One who foreordained for you, O Devil, the penalty of eternal damnation, that through us, his unprofitable servants, orders you, and every power that works with you, to depart from the one who has been newly sealed in the name of our Lord Jesus Christ, our true God. I adjure you, most evil, unclean, foul, abominable and alien spirit, by the power of Jesus Christ, who has all authority in heaven and on earth and who said to the deaf and dumb demon, ‘Come out of the man, and enter him no more!’ Depart! Acknowledge the futility of your power, which had no authority even over swine. Remember the One who ordered you, in accordance with your own request, to enter the herd of swine. Fear God, at whose command the earth was established upon the waters, who created the heavens and fixed the mountains with a king post and the valleys with a cross-beam, placed sand as a boundary for the sea and made a safe path through wild water; who touches the mountains and they smoke; who wraps himself in light as in a garment, stretching out the heavens like a tent cloth; who roofs his upper chambers with waters; who established the earth on its foundations; it will not be moved for to age on age; who summoned the water of the sea and poured it out upon the face of the earth. Come and depart from one who is being made ready for holy Enlightenment. I adjure you by the saving Passion of our Lord Jesus Christ, by his precious Body and Blood and his dread Coming; for he will come, and he will not delay, to judge the whole earth and he will condemn you and the power that works with you to the Gehenna of fire, handing you over to the exterior darkness, where the worm is unsleeping and the fire is not quenched. Because the might is Christ our God’s, with the Father and the Holy Spirit, now and for ever, and to the ages of ages. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -73,7 +76,8 @@ EN-GB">Lord, have mercy. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;font-style:normal;mso-bidi-font-style:italic">Priest:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Lord Sabaoth, God of Israel, who heal every disease and every sickness, look upon your servant, search out, seek and drive from him/her all the activities of the devil. Rebuke the unclean spirits and expel them, and cleanse the work of your hands; and using your swift force, crush Satan speedily under his/her feet and grant him/her victories against him and all his unclean spirits, so that, obtaining mercy from you, he/she may be found worthy of your immortal and heavenly Mysteries and may give glory to you, the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Lord Sabaoth, God of Israel, who heal every disease and every sickness, look upon your servant, search out, seek and drive from him/her all the activities of the devil. Rebuke the unclean spirits and expel them, and cleanse the work of your hands; and using your swift force, crush Satan speedily under his/her feet and grant him/her victories against him and all his unclean spirits, so that, obtaining mercy from you, he/she may be found worthy of your immortal and heavenly Mysteries and may give glory to you, the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -94,7 +98,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;font-style:normal;mso-bidi-font-style:italic">Priest:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt"> Master and Lord, the One who Is, who made man according to your image and likeness and gave him the power of eternal life; then, when he fell through sin, did not disdain him, but provided for the salvation of the world through the incarnation of your Christ, do you yourself receive also this creature of yours, whom you have redeemed from the slavery of the foe, into the heavenly Kingdom. Open the eyes of his/her mind so that the enlightenment of your Gospel may dawn on him/her. Yoke to his/her life an Angel of light, to deliver him/her from every attack of the adversary, from evil encounter, from the noon-day demon, from evil visions. </span>
+mso-bidi-font-size:10.0pt">
+Master and Lord, the One who Is, who made man according to your image and likeness and gave him the power of eternal life; then, when he fell through sin, did not disdain him, but provided for the salvation of the world through the incarnation of your Christ, do you yourself receive also this creature of yours, whom you have redeemed from the slavery of the foe, into the heavenly Kingdom. Open the eyes of his/her mind so that the enlightenment of your Gospel may dawn on him/her. Yoke to his/her life an Angel of light, to deliver him/her from every attack of the adversary, from evil encounter, from the noon-day demon, from evil visions. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Then the Priest breathes on the mouth, forehead and breast of the Catechumen, saying: </span>
@@ -104,7 +109,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;font-style:normal;mso-bidi-font-style:italic">Aloud:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> By the grace and pity and love for mankind of your Only-Begotten Son, with whom you are blessed, together with your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+By the grace and pity and love for mankind of your Only-Begotten Son, with whom you are blessed, together with your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -217,7 +223,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">The Priest says:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Blessed is God who wishes all to be saved and come to the knowledge of the truth, now and for ever, and to the ages of ages. Amen. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Blessed is God who wishes all to be saved and come to the knowledge of the truth, now and for ever, and to the ages of ages. Amen. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">Then he says this Prayer: </span>
@@ -253,12 +260,14 @@ EN-GB;mso-bidi-font-style:italic">The Priest enters the Sanctuary and vests in w
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
 EN-GB;mso-bidi-font-style:italic">Then the Deacon says:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Master, give the blessing. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Master, give the blessing. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
 EN-GB;mso-bidi-font-style:italic">The Priest, out loud:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, now and for ever, and to the ages of ages. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, now and for ever, and to the ages of ages. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -476,7 +485,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">At each invocation the Priest immerses them and raises them again. After the baptism the Priest washes, as he and the People chant (x3): </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">**Psalm 31**</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Blessed are those whose iniquities have been forgiven and whose sins have been covered (<span style="color:red;mso-bidi-font-style:italic">x3</span>). Blessed is the one to whom the Lord imputes no sin and in whose mouth there is no guile. Because I kept silent my bones grew old from my crying out all day long. Because night and day your hand was heavy upon me; I was turned to wretchedness by a thorn’s being fastened in me. I acknowledged my sin and did not hide my iniquity. I said, ‘Against myself I will admit my iniquity to the Lord’, and you forgave the ungodliness of my heart. For this every holy one will pray to you at a fitting moment. Except in a flood of many waters they will not come near him. For you are my refuge from the affliction which surrounds me, my joy to deliver me from those who have surrounded me. ‘I will make you understand and guide you in the way in which you should go. I will fix my eyes upon you. Do not become like horse and mule, who have no understanding. With bit and bridle you must constrain their cheeks so that they do not come near you.’ Many are the scourges of the sinner, but mercy will surround the one who hopes in the Lord. Rejoice in the Lord and be glad you righteous, and boast all you upright in heart. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Blessed are those whose iniquities have been forgiven and whose sins have been covered (<span style="color:red;mso-bidi-font-style:italic">x3</span>). Blessed is the one to whom the Lord imputes no sin and in whose mouth there is no guile. Because I kept silent my bones grew old from my crying out all day long. Because night and day your hand was heavy upon me; I was turned to wretchedness by a thorn’s being fastened in me. I acknowledged my sin and did not hide my iniquity. I said, ‘Against myself I will admit my iniquity to the Lord’, and you forgave the ungodliness of my heart. For this every holy one will pray to you at a fitting moment. Except in a flood of many waters they will not come near him. For you are my refuge from the affliction which surrounds me, my joy to deliver me from those who have surrounded me. ‘I will make you understand and guide you in the way in which you should go. I will fix my eyes upon you. Do not become like horse and mule, who have no understanding. With bit and bridle you must constrain their cheeks so that they do not come near you.’ Many are the scourges of the sinner, but mercy will surround the one who hopes in the Lord. Rejoice in the Lord and be glad you righteous, and boast all you upright in heart. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">And as he clothes the newly baptized, the Priest says: </span>
@@ -486,12 +496,14 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Then the following is chanted in Tone 8:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Grant me a tunic of light, O most merciful, Christ our God, who wrap yourself in light as in a garment. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Grant me a tunic of light, O most merciful, Christ our God, who wrap yourself in light as in a garment. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">After the newly-baptized is clothed:</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
-EN-GB;mso-bidi-font-style:italic"> Deacon: </span><span style="font-size:14.0pt;
+EN-GB;mso-bidi-font-style:italic">
+Deacon: </span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">Let us pray to the Lord. </span>
 
 <span style="font-size:14.0pt;
@@ -507,7 +519,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Aloud:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Because you are our God, a God who has mercy and who saves, and to you we give glory, to the Father and to the Son and to the Holy Spirit, now and for ever, and to the ages of ages. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Because you are our God, a God who has mercy and who saves, and to you we give glory, to the Father and to the Son and to the Holy Spirit, now and for ever, and to the ages of ages. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -589,7 +602,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 color:red;mso-ansi-language:EN-GB;mso-bidi-font-style:italic">The Apostle. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-mso-ansi-language:EN-GB">The Reading is from the Epistle of Paul to the Romans. \[<span style="color:red;mso-bidi-font-style:italic">6:3-11</span>\] </span>
+mso-ansi-language:EN-GB">The Reading is from the Epistle of Paul to the Romans.
+\[<span style="color:red;mso-bidi-font-style:italic">6:3-11</span>\] </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -598,7 +612,8 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Reader:</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB"> Brethren, as many of us as were baptized into Christ were baptized into his death. We were buried then with him through baptism to death, so that, just as Christ was raised from the dead through the glory of the Father, we too might walk in newness of life. For if we have grown into union with him through a death like his, we shall also be united with him in the resurrection. For we know that our old self was crucified with him, so that our sinful body might be done away with, that we might no longer be in slavery to sin. For one who has died has been justified from sin. If then we died with Christ, we believe that we shall also live with him. For we know that Christ, being raised from the dead, dies no more; death no longer lords it over him. As to dying, he died once and for all; as to living, he lives for God. Consequently, you also must consider yourselves dead to sin, but alive to God in Christ Jesus our Lord. </span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language:EN-GB">
+Brethren, as many of us as were baptized into Christ were baptized into his death. We were buried then with him through baptism to death, so that, just as Christ was raised from the dead through the glory of the Father, we too might walk in newness of life. For if we have grown into union with him through a death like his, we shall also be united with him in the resurrection. For we know that our old self was crucified with him, so that our sinful body might be done away with, that we might no longer be in slavery to sin. For one who has died has been justified from sin. If then we died with Christ, we believe that we shall also live with him. For we know that Christ, being raised from the dead, dies no more; death no longer lords it over him. As to dying, he died once and for all; as to living, he lives for God. Consequently, you also must consider yourselves dead to sin, but alive to God in Christ Jesus our Lord. </span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;mso-ansi-language:
@@ -636,4 +651,5 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-ansi-language
 mso-bidi-font-size:10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">Priest: </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-mso-ansi-language:EN-GB">The Reading is from the holy Gospel according to Matthew. \[</span>
+mso-ansi-language:EN-GB">The Reading is from the holy Gospel according to Matthew.
+\[</span>

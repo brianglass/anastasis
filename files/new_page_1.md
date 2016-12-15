@@ -92,7 +92,8 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter, Kathisma of the Saint. Tone 4. Lifted up on the Cross. Ὁ ὑψωθεὶς ἐν τῷ Σταυρῷ.
+After the 1st Reading from the Psalter, Kathisma of the Saint.
+Tone 4. Lifted up on the Cross. Ὁ ὑψωθεὶς ἐν τῷ Σταυρῷ.
 
 Loving your bridegroom, Christ, you radiantly adorned your lamp and shone out with virtues, O all-praised; therefore you entered with him into the marriage, having received from him the crown of your contest; but from dangers rescue us who celebrate with faith your memory.
 
@@ -104,7 +105,8 @@ Lifted up on the Cross of your own will, to the new commonwealth that bears your
 
 ****
 
-After the 2nd Reading from the Psalter, Kathisma of the Saint. Tone 4. Lifted up on the Cross. Ὁ ὑψωθεὶς ἐν τῷ Σταυρῷ.
+After the 2nd Reading from the Psalter, Kathisma of the Saint.
+Tone 4. Lifted up on the Cross. Ὁ ὑψωθεὶς ἐν τῷ Σταυρῷ.
 
 Your struggles, pure Saint, and your crown your sweat and your wonders put to shame the trophies of the devil; for longing from your heart for your bridegroom Christ, you did not quail before scourges or death; but you were offered wholly to God, wearing the crown of true religion.
 
@@ -116,7 +118,8 @@ In Paradise I fell terribly by the bitter counsel of the slayer of mortals; on C
 
 \[
 
-**In the church of the Saint we sing the following at the 50th Psalm. Tone 4. Jesus having risen.Ἀναστὰς ὀ Ἰησοῦς.**
+**In the church of the Saint we sing the following at the 50th Psalm.
+Tone 4. Jesus having risen.Ἀναστὰς ὀ Ἰησοῦς.**
 
 Give me strength, Efphemia all-praised, to praise you, honoured maiden, as you intercede with Christ to have mercy on me.\]
 
@@ -126,7 +129,8 @@ The Canons of the Feast and of the Saint, of which the acrostic, without the The
 
 Τhe all-praised maiden now I celebrate.
 
-**By Monk John.**
+**
+By Monk John.**
 
 Ode 1. Tone 8. ᾊσωμεν τῷ Κυρίῳ.
 
@@ -254,7 +258,9 @@ She lived in the times of Diocletian; arrested because of her confession of Chri
 
 Verses.
 
-Slain by a bear’s fangs for the sake of God, With praises \[*efphemiais*\] Efphemia should be your crown. And on the sixteenth day a with its fangs bear slew Efphemia.
+Slain by a bear’s fangs for the sake of God,
+With praises \[*efphemiais*\] Efphemia should be your crown.
+And on the sixteenth day a with its fangs bear slew Efphemia.
 
 On the same day, commemoration of the holy Martyr Melitini.
 
@@ -264,7 +270,8 @@ She was from Markianoupolis in Thrace in the reign of Antoninus, in the governor
 
 Verses.
 
-Her head struck off by sword, Melitini Offered her blood to Christ as honey \[*meli*\] sweet.
+Her head struck off by sword, Melitini
+Offered her blood to Christ as honey \[*meli*\] sweet.
 
 At their holy intercessions, O God, have mercy on us. Amen.
 
@@ -406,10 +413,12 @@ Today choirs of Fathers, assembled, All-praised, for the sake of Christ, bring y
 
 ****
 
-Both now. Of the Feast. Same Tone. By Andrew of Jerusalem.
+Both now. Of the Feast. Same Tone.
+By Andrew of Jerusalem.
 
 Today truly the holy utterance of David has reached its term; for see, we manifestly worship the footstool of your immaculate feet.; and hoping in the shadow of your wings, O all-compassionate, we cry aloud to you: Let the light of your face be signed upon us, and exalt the horn of orthodox Christians by the exaltation of your precious Cross, O Christ most merciful.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 07 December 2006**

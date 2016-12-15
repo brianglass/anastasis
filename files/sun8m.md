@@ -124,7 +124,8 @@ Let everything that has breath.
 
 **The Sunday Resurrection Gospel.** Having seen the Resurrection. **Psalm 50.**
 
-Resurrection Canon. Ode 1. Tone 8. Irmos.
+Resurrection Canon.
+Ode 1. Tone 8. Irmos.
 
 Moses’ wonderworking staff, striking and dividing the sea in the figure of a cross, once drowned Pharao the charioteer, while it saved Israel the fugitive as he marched on foot, singing a song to God.
 
@@ -144,7 +145,8 @@ Glorious things have been said of you in generation after generation, Virgin Mot
 
 ****
 
-Another Canon, of Cross and Resurrection. Irmos.
+Another Canon, of Cross and Resurrection.
+Irmos.
 
 \[Crossing the water as on dry land and fleeing the harsh misery of Egypt, the Israelite cried aloud, To our Redeemer and our God now let us sing!\]
 
@@ -160,7 +162,8 @@ The ranks of Angels and of mortals without ceasing sing your praise, Mother with
 
 ****
 
-Another Canon, of the Mother of God. In alphabetical order. Irmos.
+Another Canon, of the Mother of God. In alphabetical order.
+Irmos.
 
 \[Let us sing to the Lord, who led his people in the Red Sea, for he alone has been greatly glorified.\]
 
@@ -196,7 +199,8 @@ You were revealed as higher than the Cherubim and Seraphim, Mother of God, for y
 
 ****
 
-Another, of Cross and Resurrection. Irmos.
+Another, of Cross and Resurrection.
+Irmos.
 
 \[Lord who constructed heaven’s vault and builder of the Church, establish me in your love, the pinnacle of all desires, the firm foundation of the faithful, only lover of mankind.\]
 
@@ -212,7 +216,8 @@ Having dwelt in a Virgin, you appeared, Lord, in bodily form to humankind, as it
 
 ****
 
-Another, of the Mother of God. Irmos.
+Another, of the Mother of God.
+Irmos.
 
 \[You are the foundation, Lord, of those who have recourse to you; you are the light of those in darkness; and my spirit sings your praise.\]
 
@@ -248,7 +253,8 @@ You are the boast of the faithful, Mother without bridegroom, you are the protec
 
 ****
 
-Another, of Cross and Resurrection. Irmos.
+Another, of Cross and Resurrection.
+Irmos.
 
 \[Lord, I have heard the mystery of your dispensation; I have considered your works and glorified your Godhead.\]
 
@@ -298,7 +304,8 @@ Having obtained a mother’s freedom of speech before your Son, O All-pure, do n
 
 ****
 
-Another, of Cross and Resurrection. Irmos.
+Another, of Cross and Resurrection.
+Irmos.
 
 \[Enlighten us, O Lord, with your commandments, and with your upraised arm grant us your peace. Only Lover of mankind.\]
 
@@ -318,7 +325,8 @@ Mary, pure and revered, and who did not know wedlock, implore your Son and our G
 
 ****
 
-Another, of the Mother of God. Irmos.
+Another, of the Mother of God.
+Irmos.
 
 \[Rising at dawn, O Lord, we cry out to you, ‘Save us! For you are our God, we know no other but you’.\]
 
@@ -354,7 +362,8 @@ May we be delivered from grievous faults at your entreaties, pure Mother of God,
 
 ****
 
-Another, of Cross and Resurrection. Irmos.
+Another, of Cross and Resurrection.
+Irmos.
 
 \[I pour out my supplication to the Lord, and to him I declare my afflictions, for my soul has been filled with evils and my life has drawn near to hell. And like Jonas I beg, ‘O God, bring me up from corruption!\]
 
@@ -418,7 +427,8 @@ Speaking of God with orthodox belief, we proclaim you Lord of all, Father of one
 
 ****
 
-Another, of Cross and Resurrection. Irmos.
+Another, of Cross and Resurrection.
+Irmos.
 
 \[The Youths from Judea of old in Babylon having come to the faith of the Trinity, trampled down the flame of the furnace as they sang, ‘God of our Fathers, blessed are you!’\]
 
@@ -560,7 +570,8 @@ Fair is your fruit, Mother of God, no cause of corruption for those who partake,
 
 ****
 
-At Lauds. Resurrection Stichera. Tone 8. Model Melody.
+At Lauds. Resurrection Stichera.
+Tone 8. Model Melody.
 
 Lord, though you stood at the judgement seat being judged by Pilate, yet seated with the Father you were not absent from your throne; and risen from the dead you freed the world from the slavery of the stranger, as you are full of pity and love mankind.
 
@@ -622,6 +633,7 @@ Both now.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

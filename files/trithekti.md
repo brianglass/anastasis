@@ -40,7 +40,9 @@ Reader:
 
 Amen. Lord, have mercy (**x12**), Glory. Both now.
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ the King, our God.
+Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -172,7 +174,9 @@ The Lamplighter, making the customary bow to the Superior leaves and strikes the
 
 SIXTH HOUR
 
-Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us fall down and worship before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God.
+Come, let us worship and fall down before Christ, the King, our God.
+Come, let us fall down and worship before Christ himself, the King, our God.
 
 ****
 
@@ -320,6 +324,7 @@ And Dismissal.
 
 It is to be noted that after the Dismissal we leave the Church and go off to our cells with stillness; it is not allowed to have conversations with one another, for they have been forbidden by the holy Fathers, and we ought to observe this after every assembly.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

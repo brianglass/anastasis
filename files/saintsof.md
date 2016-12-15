@@ -1,6 +1,14 @@
 \[ [Home](index.md) \] \[ [Up](horologion.md) \] \[ Saints of the Month \] \[ [Vespers for Sundays and Feasts](vespers.md) \] \[ [Matins for Sundays and Feasts](mat-sun.md) \] \[ [Weekday Matins](weekday_matins.md) \] \[ [Midnight Office](midnight_office.md) \] \[ [Saturday Midnight Office](saturday_midnight_office.md) \] \[ [Sunday Midnight Office](sunday_midnight_office.md) \] \[ [Lesser Hours](lesser_hours.md) \] \[ [Small Compline](small_compline.md) \] \[ [Lenten Offices](lenten_offices.md) \] \[ [Little Paraklesis](lit-parak.md) \]
 
-[September](septembe.md) [October](october.md) [November](november.md) [December](december.md) [January](january.md) [February](feb.md) [June](june.md) [July](july.md) [August](august.md)
+[September](septembe.md)
+[October](october.md)
+[November](november.md)
+[December](december.md)
+[January](january.md)
+[February](feb.md)
+[June](june.md)
+[July](july.md)
+[August](august.md)
 
 Each month we hope to publish the Troparia for the Saints of the month as they are found in the Greek editions of the ***Mega Horologion***, or ***Large Book of Hours***. The texts for each day are traditionally accompanied by brief notes on the Saints or events commemorated, and they provide a sort of miniature ***Synaxarion***, though their historical reliability is often uncertain, to say the least.
 
@@ -14,6 +22,7 @@ The present translations are based on three editions: 1\] that published by the 
 
 Where possible the translations are taken from the edition of the *****Divine Liturgy of St John Chrysostom***** of the Archdiocese of Thyateira and Great Britain (OUP 1995) and from *****An Orthodox Prayer Book*****, published by OUP in May 1999 \[ISBN 0-19-122447-2\].
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

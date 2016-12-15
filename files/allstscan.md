@@ -10,7 +10,8 @@ The canon would seem to be fairly late, since apart from the ‘refrains’ in O
 **THE CANON**
 =============
 
-*****Its Acrostic is:***** **I SING THE RANKS OF ALL THE SAINTS WITH MANY NAMES**
+*****Its Acrostic is:****
+***I SING THE RANKS OF ALL THE SAINTS WITH MANY NAMES**
 
 *****Ode 1. Tone 8*****
 
@@ -133,6 +134,7 @@ The canon would seem to be fairly late, since apart from the ‘refrains’ in O
 
 This Translation © Archimandrite Ephrem, 1997
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -7,7 +7,8 @@ ON SUNDAY EVENING
 
 At
 
-Lord, I have cried, **Prosomia of the Lord. Save me, Lord my God.**
+Lord, I have cried, **Prosomia of the Lord.
+Save me, Lord my God.**
 
 I have sinned, Lord my God, I have sinned against you. O Word, be merciful to me, do not reject me, do not despise me, but as alone compassionate and merciful, accept me as I repent and give me power, O Saviour, to do your statutes, for you alone are compassionate.
 
@@ -17,7 +18,8 @@ Rescue my soul from hardness, Lord my God, and grant me showers of tears, that I
 
 ****
 
-Other Stichera, of the Bodiless Powers. Great is the power of your Cross.
+Other Stichera, of the Bodiless Powers.
+Great is the power of your Cross.
 
 You gave existence to choirs of Bodiless beings, Lord, revealing to all the wealth of your goodness. And from non-existence you brought them into the being of your glory that is beyond the mind, to glorify you now with never silent voices.
 
@@ -165,7 +167,8 @@ Prophets, Apostles and Martyrs of Christ taught that a consubstantial Trinity sh
 
 Glory, Both now.
 
-**Cross-Theotokion. Great is the power of your Cross.**
+**Cross-Theotokion.
+Great is the power of your Cross.**
 
 When she saw you nailed to the Cross, my Christ, the Lamb who gave you birth, without blemish and your Mother, with weeping lamented and cried out, ‘Do not make me childless, whom you kept pure after childbirth!’
 
@@ -346,6 +349,7 @@ Glory. Both now.
 
 Mother of God, holy among women, Mother without bridegroom, intercede with the King and God to whom you gave birth to save us as he loves humankind.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -416,7 +416,8 @@ We faithful know you, Mother of God, to be the bridal chamber of the ineffable i
 
 ****
 
-Aposticha of Lauds. Of Compunction.
+Aposticha of Lauds.
+Of Compunction.
 
 I am a sheep of your rational flock, and I flee to you, the Good Shepherd; seek me out who have been led astray, O God, and have mercy on me.
 
@@ -467,6 +468,7 @@ Pure Virgin, take pity on me, who am always sinning and am wholly in the grip of
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

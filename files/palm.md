@@ -28,7 +28,8 @@ He who as God rides on the backs of the Cherubim is seated on a colt as for our 
 
 ****
 
-Aposticha. Prosomia. Tone 2. House of Ephratha.
+Aposticha. Prosomia.
+Tone 2. House of Ephratha.
 
 New Sion, be radiant with children and sing the hymn with palms, ‘See, your King bringing salvation comes to his Passion’.
 
@@ -48,13 +49,15 @@ With fear I praise your dread dispensation. To you I cry, ‘Hosanna!’, for yo
 
 ****
 
-Apolytikia. 1st Tone.
+Apolytikia.
+1st Tone.
 
 Assuring us before your Passion of the general resurrection, you raised Lazarus from the dead, O Christ God: therefore, like the Children, we also carry tokens of victory, and we cry to you, the Conqueror of death: Hosanna in the highest! Blessed is he who comes in the name of the Lord.
 
 ****
 
-Another, for Palm Sunday only. 4th Tone.
+Another, for Palm Sunday only.
+4th Tone.
 
 Buried with you through Baptism, Christ our God, we have been granted immortal life by your Resurrection, and we sing your praises, crying: Hosanna in the highest! Blessed is he who comes in the name of the Lord.
 
@@ -111,15 +114,18 @@ O Joyful Light **and the Saturday Prokeimenon.**
 
 Then the Readings.
 
-The Reading is from Genesis \[**49:1-12\]**
+The Reading is from Genesis
+\[**49:1-12\]**
 
 Then Jacob called his sons, and said to them, ‘Gather round, that I may tell you what will happen to you in the last days. Assemble and hear me, sons of Jacob. Hear Israel, hear your father. Juda, your brothers shall praise you. Your hand will be on the back of your enemies. Your father’s sons will bow down before you. Juda is a lion’s whelp. From a tender shoot, my son, you have gone up. He crouches down, he stretches out like a lion, like a whelp. Who will rouse him? A ruler will not fail from Juda, nor a leader from his thighs, until the things laid up for him come, and he is the expectation of the nations. Binding his foal to the vine and his ass’s colt to the branch, he will wash his robe in wine and his cloak in the blood of the grape. His eyes are more cheering than wine, and his teeth whiter than milk’.
 
-The reading is from the Prophecy of Sophonias. \[**3:14-19\]**
+The reading is from the Prophecy of Sophonias.
+\[**3:14-19\]**
 
 Thus says the Lord, ‘Rejoice, daughter of Sion. Shout, daughter of Jerusalem! Rejoice and exult with all your heart, daughter of Jerusalem! The Lord has taken away your iniquities, he has ransomed you from the hand of your enemies. The king of Israel, the Lord, is in your midst. You shall see evils no more. At that time the Lord will say to Jerusalem, ‘Be of good courage, Sion Do not let your hands grow weak. The Lord, your God, is in your midst. The Mighty One will save you. He will bring joy upon you and renew you by his love. He will rejoice over you with delight, as on a day of festival. And I will gather your afflicted. Alas! Who has taken up a reproach against you? I will work for your sake at that time. And I will save her that was oppressed and receive her who was rejected, and I will make them a boast and famed in all the earth’.
 
-The reading is from the Prophecy of Zachary. \[**9:9-15\]**
+The reading is from the Prophecy of Zachary.
+\[**9:9-15\]**
 
 Rejoice greatly, daughter of Sion! Shout aloud, daughter of Jerusalem! See, your king comes to you, just and bringing salvation. He is meek and riding on beast of burden, on a young colt. He will utterly destroy the chariots from Ephraim and the war horse from Jerusalem. And the battle bow he will utterly destroy, and there shall be abundance of peace out of the nations, and he will rule over the waters as far as the sea, and from rivers unto the ends of the earth. As for you also, because of the blood of my covenant with you, I will set your prisoners free from the waterless pit. You shall dwell in your strongholds, prisoners of the congregation. For one day of your exile I will repay you double. For I have bent you Juda as bow for myself. I have filled Ephraim and I will arouse your children, O Sion, against the children of the Greeks, and handle you like a warrior’s sword. Then the Lord will appear over them, and he will go forth like a lightning bolt. The Lord Almighty will sound the trumpet and march forth in the tumult of his threat. The Lord Almighty will protect them.
 
@@ -163,7 +169,8 @@ Six days before the Passover was to take place, Jesus came to Bethany to call ba
 
 And the usual Prayers in the Narthex.
 
-At the Aposticha the following Idiomels. Tone 8.
+At the Aposticha the following Idiomels.
+Tone 8.
 
 Rejoice and be glad, city of Sion, exult and be joyful, Church of God. For see, your King has come with justice, seated upon a colt, praised by Children, ‘Hosanna in the highest! Blessed are you, who have great compassion. Have mercy on us’.
 
@@ -193,13 +200,15 @@ Both now.
 
 **The same again.**
 
-Apolytikia. 1st Tone.
+Apolytikia.
+1st Tone.
 
 Assuring us before your Passion of the general resurrection, you raised Lazarus from the dead, O Christ God. Therefore, like the Children, we also carry tokens of victory, and we cry to you, the Conqueror of death: Hosanna in the highest! Blessed is he who comes in the name of the Lord. (
 
 **Twice**) ****
 
-Another, for Palm Sunday only. 4th Tone.
+Another, for Palm Sunday only.
+4th Tone.
 
 Buried with you through Baptism, Christ our God, we have been granted immortal life by your Resurrection, and we sing your praises, crying: Hosanna in the highest! Blessed is he who comes in the name of the Lord.
 
@@ -216,7 +225,8 @@ Cleansed in soul, let us, like the Children, with branches spiritually praise Ch
 
 ****
 
-Another Kathisma. Tone 4. Today you have appeared.
+Another Kathisma.
+Tone 4. Today you have appeared.
 
 By raising Lazarus, dead for four days, from the grave, Lord, you taught all to cry out to you with Palms and branches, ‘Blessed are you who come’.
 
@@ -240,7 +250,39 @@ At the Polyeleos, the Selection.
 
 In all the earth. Alleluia.
 
-Lord, our Lord, how wonderful is your name in all the earth. For your majesty has been raised up above the heavens. From the mouth of infants you have made sure of praise. Because of your enemies, to destroy the enemy and avenger. You rebuked the nations, and the impious perished. A stone which the builders rejected, this has become the head of the corner. This is the Lord’s doing, and it is marvellous in our eyes. The Lord is great in Sion, and high over all the peoples. Here he smashed the might of their bows. Weapon and sword and war. Sion heard and was glad, the daughters of Judea rejoiced. Jerusalem, praise the Lord; Sion, praise your God. The God of gods will appear in Sion. Go round Sion and encompass her. Observe her towers. To proclaim the Lord’s name in Sion, and his praise in Jerusalem. For God is king of all the earth. Sing with understanding. God reigns over the nations. Sing to the Lord, who dwells in Sion. For God will save Sion, and the cities of Judea will be rebuilt. A song is due to you, O God, in Sion. And a vow will be paid to you in Jerusalem. Blessed is he who comes in the name of the Lord. The Lord is God and has appeared to us. Celebrate a feast with thick branches, as far as the horns of the altar. You are my God, and I will give you thanks. You are my God and I will exalt you. I will give you thanks, for you have heard me and become my salvation. That I may declare all your praise in the gates of the daughter of Sion. Who will give salvation to Israel out of Sion? In the courts of the house of the Lord, in your midst, Jerusalem. The Lord will be king for ever. Your God, O Sion, to generation and generation. Your praise abides for ever, and to the ages of ages.
+Lord, our Lord, how wonderful is your name in all the earth.
+For your majesty has been raised up above the heavens.
+From the mouth of infants you have made sure of praise.
+Because of your enemies, to destroy the enemy and avenger.
+You rebuked the nations, and the impious perished.
+A stone which the builders rejected, this has become the head of the corner.
+This is the Lord’s doing, and it is marvellous in our eyes.
+The Lord is great in Sion, and high over all the peoples.
+Here he smashed the might of their bows.
+Weapon and sword and war.
+Sion heard and was glad, the daughters of Judea rejoiced.
+Jerusalem, praise the Lord; Sion, praise your God.
+The God of gods will appear in Sion.
+Go round Sion and encompass her.
+Observe her towers.
+To proclaim the Lord’s name in Sion, and his praise in Jerusalem.
+For God is king of all the earth.
+Sing with understanding. God reigns over the nations.
+Sing to the Lord, who dwells in Sion.
+For God will save Sion, and the cities of Judea will be rebuilt.
+A song is due to you, O God, in Sion.
+And a vow will be paid to you in Jerusalem.
+Blessed is he who comes in the name of the Lord.
+The Lord is God and has appeared to us.
+Celebrate a feast with thick branches, as far as the horns of the altar.
+You are my God, and I will give you thanks. You are my God and I will exalt you.
+I will give you thanks, for you have heard me and become my salvation.
+That I may declare all your praise in the gates of the daughter of Sion.
+Who will give salvation to Israel out of Sion?
+In the courts of the house of the Lord, in your midst, Jerusalem.
+The Lord will be king for ever.
+Your God, O Sion, to generation and generation.
+Your praise abides for ever, and to the ages of ages.
 
 Glory. **Tone 1**
 
@@ -252,7 +294,8 @@ Your people, O Christ, brings you your Mother in supplication; at her prayers gr
 
 ****
 
-After the Polyeleos, the following Kathisma. Tone 8. Taking knowledge.
+After the Polyeleos, the following Kathisma.
+Tone 8. Taking knowledge.
 
 He who sits on the throne of the Cherubim and on the colt for our sake, and has come to his voluntary Passion, hears today the Children crying out, ‘Hosanna!’ and the crowds replying, ‘Son of David, hasten to save those whom you fashioned, blessed Jesus. For for this you have come, that we may know your glory’.
 
@@ -260,7 +303,7 @@ Glory. Both now.
 
 **The same again.**
 
-We have a reading from the Homilies on the Gospel according to John about the feast, numbers [65](http://ccel.wheaton.edu/fathers/NPNF1-14/John/John-Hom65.html) and [66](http://ccel.wheaton.edu./fathers/NPNF1-14/John/John-Hom66.html) \[by St. John Chrysostom\]
+We have a reading from the Homilies on the Gospel according to John about the feast, numbers [65](/fathers/NPNF1-14/JohnJohn-Hom65.md) and [66](/fathers/NPNF1-14/JohnJohn-Hom66.md) \[by St. John Chrysostom\]
 
 Then the 1st Antiphon of the Anavathmi in Tone 4, and after
 
@@ -344,7 +387,8 @@ Then we sing the Canon, the Irmi twice and the Troparia 4, or 6 times when there
 
 The Canon, of which the acrostic is:
 
-Hosanna Christ, blessed God **A composition of Monk Kosmas.** ****
+Hosanna Christ, blessed God
+**A composition of Monk Kosmas.** ****
 
 Ode 1. Tone 4. Irmos.
 
@@ -444,7 +488,8 @@ Katavasia.
 
 The spirits of the Just. ****
 
-Kontakion \[sung\]. Model melody. Tone 6. \[By [St Romanos](kontak16.md)\]
+Kontakion \[sung\]. Model melody. Tone 6.
+\[By [St Romanos](kontak16.md)\]
 
 Mounted on the throne in heaven, Christ God, and on the colt on earth, you accepted the praise of the angels and the hymn of the children who cried to you, ‘Blessed are you who come to call back Adam.’
 
@@ -464,7 +509,9 @@ On the same day, Palm Sunday, we celebrate the radiant and glorious festival of 
 
 Verses.
 
-The One who spread the sky out with a word, Seated upon a colt now seeks to free From dumb unreason all the human race.
+The One who spread the sky out with a word,
+Seated upon a colt now seeks to free
+From dumb unreason all the human race.
 
 After the raising of Lazarus from the dead, many people saw what had happened and began to believe in Jesus. A decision was taken by the synagogue of the Jews to kill both Christ and Lazarus. Jesus therefore flees, giving place to evil, while the Jews were planning to kill him during the Feast of Passover. When a considerable time had been given to flight, Jesus came six days before Passover, as Scripture says, to Bethany, where Lazarus, the one who had been dead, was. And there a meal took place at which Lazarus also was eating with him. But his sister Mary poured sweet perfume over his feet. And the next day he sent his Disciples to bring the ass and her colt. And he who has heaven as his throne, mounted on the colt entered Jerusalem. The children of the Hebrews threw their garments over it and, cutting down branches of palm trees and carrying others in their hands, they went ahead of him crying out, ‘Hosanna to the Son of David. Blessed is he who comes in the name of the Lord, the King of Israel’. This happened because the All-Holy Spirit moved their tongues to praise and extol Christ. They showed this through the Palms \[Baïa\], that is the branches (Baïon is what the Hebrews call the soft branch) which signified in advance the victory of Christ over death. For it was the custom for the victors in contests or wars to be honoured and escorted in the victory processions with branches of evergreen trees. The colt on the other hand signified us, the people from the nations, on which Christ, seated and resting upon it as victor and conqueror, was proclaimed as King of the whole earth. Of this Feast the Prophet Zachary said, ‘Rejoice greatly, daughter of Sion. See, your King comes to you, meek and seated on a beast of burden and a colt of an ass, offspring of a beast of burden’. And David again says of the Children, ‘From the mouth of babes and sucklings you have made sure of praise.’ But as Christ entered, Scripture says, all Jerusalem was shaken and the crowds, provoked to vengeance by the Chief Priests, were looking to make away with him. But he avoided them by hiding and showing himself, and he spoke to them in parables.
 
@@ -723,7 +770,8 @@ Verse:
 
 O give thanks to the Lord for he is good, for his mercy endures for ever.
 
-The Reading is from the Epistle of Paul to the Philippians. \[**4:4-9\]**
+The Reading is from the Epistle of Paul to the Philippians.
+\[**4:4-9\]**
 
 Brethren, rejoice in the Lord always; again I will say, Rejoice. Let all men know your forbearance. The Lord is at hand. Be anxious about nothing, but in everything by prayer and supplication with thanksgiving let your requests be made known to God. And the peace of God, which passes all understanding, will keep your hearts and your minds in Christ Jesus. Finally, brethren, whatever is true, whatever is honourable, whatever is just, whatever is pure, whatever is lovely, whatever is gracious, if there is any excellence, if there is anything worthy of praise, think on these things. What you have learned and received and heard and seen in me, do; and the God of peace will be with you.
 
@@ -827,6 +875,7 @@ It is a fearful thing to fall into the hands of the living God. He is the Judge 
 
 **Note that** Virgin Mother of God **is chanted with music on all the Sundays of holy Lent as on the present one. But on the other days of Holy Week it is simply recited.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

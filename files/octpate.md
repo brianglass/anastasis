@@ -41,19 +41,22 @@ Entrance,
 
 O Joyful Light, **the Prokeimenon of the day, and the Readings.**
 
-The Reading is from Genesis. \[
+The Reading is from Genesis.
+\[
 
 **14,14-20**\]
 
 Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants three hundred and eighteen, and pursued the enemy as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologomor and the kings with him, to the valley of Sabi; this was the plain of Kings. And Melchizedek, king of Salem, brought out bread and wine; he was Priest of the Most High. And he blessed Abram and said: Blessed is Abram by the most high God, who created the heaven and the earth. And blessed is the most high God, who has delivered your enemies into your hand.
 
-The Reading from Deuteronomy. \[
+The Reading from Deuteronomy.
+\[
 
 **1,8-11 & 15-17<sup>b</sup>**\]
 
 Moses said to the sons of Israel: See, I have delivered the land before you; go in and inherit the land which I swore to your fathers, to Abraham and to Isaac and to Jacob, to give it to them and to their seed after them. And I spoke to you at that time saying: I alone shall not be able to bear you. The Lord your God has multiplied you, and behold, you are to-day as the stars of heaven in multitude. May the Lord the God of our fathers multiply you a thousand times more than you are, and bless you as he has spoken to you. And I took from you wise and understanding and prudent men, and I set them to rule over you, captains of thousands and hundreds and fifties and tens and recorders for your judges. And I commanded your judges at that time, saying: Hear cases between your brethren, and judge rightly between a man and his brother and the stranger who is with him. You shall not have respect to persons in judging. You shall hear the small as well as the great. You shall not shrink before any man’s person; for the judgement is God’s.
 
-The Reading from Deuteronomy. \[**10,14-18 & 20-21\]**
+The Reading from Deuteronomy.
+\[**10,14-18 & 20-21\]**
 
 Moses said to the sons of Israel: Behold the heaven and the highest heaven belong to the Lord your God, the earth and all that is in it. the Lord preferred your fathers, to love them: and he chose their seed after them, you above all nations, as it is at this day. So circumcise the hardness of your heart and stiffen your neck no longer. For the Lord your God is God of Gods and the Lord of Lords, the great God, mighty and awesome, who shows no partiality, who takes no bribe. He executes judgement for the stranger, the orphan and the widow; and loves the stranger, giving him food and clothing. You shall fear the Lord your God and serve him, and to him you shall hold fast, and take oaths in his name. He is your boast, he your God, who has done for you the great and wonderful things which your eyes have seen.
 
@@ -237,7 +240,8 @@ On the same day we celebrate the memory of the Holy and blest Fathers, who assem
 
 Verses
 
-The Champions with the weapons of your words, O Word, the foes of honoured icons trounced.
+The Champions with the weapons of your words,
+O Word, the foes of honoured icons trounced.
 
 This holy, seventh Ecumenical Council took place in Nicea a second time, in the reign of the Emperor Constantine and his mother Irene, when Hadrian was Pope of Rome, Tarasios Patriarch of Constantinople, Politianos of Alexandria, Theodoret of Antioch and Elias of Jerusalem. Three hundred and sixty five Holy Fathers were assembled. They all assembled against the Iconoclasts, and they condemned in writing every heresy, the leaders of the heresies and then all the Iconoclasts; placing on record and decreeing that anyone who does not venerate the holy images is a stranger to the Orthodox faith; that the honour given to the image passes to its prototype; and that whoever worships and honours the image, worships the person of the one depicted therein. And so when they had thus decreed and had strengthened the Orthodox faith, each one returned to his own See.
 
@@ -345,6 +349,7 @@ Communion.
 
 The just will be held in eternal memory.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

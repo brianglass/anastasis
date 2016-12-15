@@ -64,7 +64,8 @@ From Jesse’s root and from David’s loins Mary the child of God is being born
 AT MATINS
 ---------
 
-**After the 1st Reading from the Psalter, Kathisma. Tone 1.**
+**After the 1st Reading from the Psalter, Kathisma.
+Tone 1.**
 
 Born wondrously from barren birth pangs, you bore a Child beyond nature from virgin loins; for you appeared as a fair shoot and blossomed with life for the world. Therefore the Powers of heaven cry out to you Mother of God, ‘Glory, O honoured one, to your coming forth! Glory to your virginity! Glory to your child-bearing, alone all-immaculate!’
 
@@ -72,7 +73,8 @@ Glory. Both now.
 
 **The same.**
 
-After the 2nd Reading from the Psalter, Kathisma. Tone 5.
+After the 2nd Reading from the Psalter, Kathisma.
+Tone 5.
 
 All things of heaven now rejoice, the human race with them keeps festival, and the Prophets mystically exult with them; for she whom they foresaw in types in ancient generations, bush and jar, cloud, gate and throne, and great mountain, is being born today.
 
@@ -226,7 +228,9 @@ On the 7th of the same month, Commemoration of the holy Martyr Sozon.
 
 Verses
 
-Torments of body Sozon once endured, Fixed on the only Saviour \[**sozo**\] of his soul. Sozon, his radiant flesh fiercely pounded, died on the seventh.
+Torments of body Sozon once endured,
+Fixed on the only Saviour \[**sozo**\] of his soul.
+Sozon, his radiant flesh fiercely pounded, died on the seventh.
 
 On the same day, Commemoration of the holy Apostles Evodos and Onesiphoros.
 
@@ -236,7 +240,8 @@ On the same day, Saint Eupsychios met his end by the sword.
 
 Verses
 
-Eupsychios, courageous \[**eupsychos**\] at the sword, Offers his Fashioner his soul with joy.
+Eupsychios, courageous \[**eupsychos**\] at the sword,
+Offers his Fashioner his soul with joy.
 
 On the same day is celebrated the dormition of the Venerable Loukás of the Eparchy of Lykaonia, third Superior of the Monastery of the Saviour, called ‘Of the Deep Torrent’.
 
@@ -330,7 +335,8 @@ All creation rejoice, as you perceive the joy being born beyond hope from Anne a
 
 ****
 
-At the Aposticha of Lauds, Prosomia. Tone 2.
+At the Aposticha of Lauds, Prosomia.
+Tone 2.
 
 Come children of Adam, let us sing the praise of her who came of David’s line and gave birth to Christ, Mary the all-pure Virgin.
 
@@ -360,6 +366,7 @@ The foreordained Queen of all, God’s dwelling place, sacred enclosure of the e
 
 And the rest as usual, and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

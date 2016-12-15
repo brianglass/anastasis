@@ -43,7 +43,8 @@ By your voluntary and life-giving death, O Christ, you smashed the gates of Hell
 
 ****
 
-The Anavathmi of the Tone. Antiphon 1.
+The Anavathmi of the Tone.
+Antiphon 1.
 
 I lift my eyes to you, O Word, in heaven; take pity on me that I may live for you.
 
@@ -95,7 +96,8 @@ Having seen the Resurrection of Christ**, Ps.50 etc.**
 
 Then the Canons: of the Resurrection with the Irmi to 4, of the Assumption to 4 and of the Fathers to 6.
 
-Canon of the Resurrection. Tone 6. Ode 1. Irmos.
+Canon of the Resurrection. Tone 6.
+Ode 1. Irmos.
 
 ‘Marching on foot in the deep as on dry land, Israel saw Pharao their pursuer drowning and cried out, Let us sing to God a hymn of victory’.
 
@@ -115,7 +117,9 @@ Having received your own creator, beyond understanding incarnate from your womb 
 
 ****
 
-Canon of the Assumption. Tone 5. A composition of Monk John. Ode 1. Irmos. To God the Saviour
+Canon of the Assumption. Tone 5.
+A composition of Monk John.
+Ode 1. Irmos. To God the Saviour
 
 All peoples let us sing a hymn of victory to Christ who has been taken up with glory on the shoulders of the Cherubim, and seated us at the Father’s right hand; for he has been glorified.
 
@@ -133,7 +137,8 @@ Immaculate Mother of God, without ceasing implore the God who was incarnate of y
 
 Canon of the Holy Fathers. Tone 6. Its Acrostic is:
 
-I sing the first assembly of Pastors. **Ode 1. Marching on foot in the deep.**
+I sing the first assembly of Pastors.**
+Ode 1. Marching on foot in the deep.**
 
 praise the all-holy Council of the holy Fathers as I cry out: O Christ, I implore you, guard closely in me its all-holy revelation.
 
@@ -151,7 +156,11 @@ ear her own Son and God the holy Queen stands clothed in many colours with divin
 
 Katavasia.
 
-The slow of tongue, hidden in divine darkness, Proclaimed the law written by God; For shaking the dust from his mind’s eye, He sees the One Who Is, and is initiated Into knowledge of the Spirit, giving praise with songs inspired.
+The slow of tongue, hidden in divine darkness,
+Proclaimed the law written by God;
+For shaking the dust from his mind’s eye,
+He sees the One Who Is, and is initiated
+Into knowledge of the Spirit, giving praise with songs inspired.
 
 ****
 
@@ -211,11 +220,16 @@ qual no word, no tongue of mortals to praise you worthily, O Virgin; for from yo
 
 Katavasia.
 
-‘Only the prayer of the prophetess Anna Of old, who brought a broken spirit To the Mighty One and God of knowledge, Broke the fetters of a childless womb And the harsh insult of one with many children.’
+‘Only the prayer of the prophetess Anna
+Of old, who brought a broken spirit
+To the Mighty One and God of knowledge,
+Broke the fetters of a childless womb
+And the harsh insult of one with many children.’
 
 ****
 
-Kontakion of the Assumption. Tone 8. *\[*By St Romanos*\]*
+Kontakion of the Assumption. Tone 8.
+*\[*By St Romanos*\]*
 
 When you had fulfilled the dispensation for our sake and united things on earth with those of heaven, you were taken up in glory, Christ our God, in no way parted, but remaining undivided and crying to those who love you: ‘I am with you, and no one against you.’
 
@@ -293,7 +307,11 @@ ampling a plant showed me to be a corpse; for the tree of life which appeared fr
 
 Katavasia.
 
-‘Monarch of monarchs, Alone from the Alone, Word who came forth from the Father without cause, As Benefactor you have unerringly sent out Your Spirit, equal in strength, to the Apostles, As they sing: Glory to your might, O Lord.’
+‘Monarch of monarchs, Alone from the Alone,
+Word who came forth from the Father without cause,
+As Benefactor you have unerringly sent out
+Your Spirit, equal in strength, to the Apostles,
+As they sing: Glory to your might, O Lord.’
 
 ****
 
@@ -351,7 +369,11 @@ ince we know you, O all pure, to be the shining lamp which has shed on all Chris
 
 Katavasia.
 
-‘O light-formed children of the Church, Receive the Spirit’s fire-breathing dew, A redeeming purification of offences; For now a law has gone out from Sion, The torch-tongue-formed grace of the Spirit.’
+‘O light-formed children of the Church,
+Receive the Spirit’s fire-breathing dew,
+A redeeming purification of offences;
+For now a law has gone out from Sion,
+The torch-tongue-formed grace of the Spirit.’
 
 ****
 
@@ -409,7 +431,11 @@ ampstand, ark, table and jar, so Moses, greatest of the prophets, wrote of you o
 
 Katavasia.
 
-‘O Christ, the Master, you shone from the Virgin As pardon and salvation for us, That like the prophet Jonas from the breast Of the sea beast, you might snatch from corruption The whole fallen race of Adam.’
+‘O Christ, the Master, you shone from the Virgin
+As pardon and salvation for us,
+That like the prophet Jonas from the breast
+Of the sea beast, you might snatch from corruption
+The whole fallen race of Adam.’
 
 ****
 
@@ -433,11 +459,13 @@ On the same day, the seventh Sunday from Pascha, we celebrate the First Ecumenic
 
 Verses
 
-O spiritual firmament’s light-bearing stars, My mind illumine with your shining rays. ****
+O spiritual firmament’s light-bearing stars,
+My mind illumine with your shining rays. ****
 
 Against Arius.
 
-The Son the Father’s Essence does not share, Said Arius: may he not share God’s glory.
+The Son the Father’s Essence does not share,
+Said Arius: may he not share God’s glory.
 
 We celebrate the present feast for the following reason. Since our Lord Jesus Christ, who had put on our flesh, had ineffably accomplished the whole dispensation and be reinstated on his Father’s throne, the Saints, wishing to show that the Son of God had truly become man and that as perfect man God had been assumed and had sat down at the right of the Majesty on high and because this synod of the holy Fathers had thus proclaimed and confessed him to be consubstantial and identical in honour with the Father; for this reason they appointed this present Feast after the glorious Assumption, as it were putting forward the assembly of so many Fathers proclaiming this, that the one who was taken up in the flesh was God and in the flesh perfect man.
 
@@ -509,7 +537,11 @@ refiguring your giving birth, the furnace did not burn the three youths; for the
 
 Katavasia.
 
-‘Harmonious melody of instruments decreed Reverence to the lifeless idol wrought of gold. But the Comforter’s life-bearing grace Inspires with reverence to cry: Only Trinity, Equal in strength, without beginning, blessed are you.’
+‘Harmonious melody of instruments decreed
+Reverence to the lifeless idol wrought of gold.
+But the Comforter’s life-bearing grace
+Inspires with reverence to cry: Only Trinity,
+Equal in strength, without beginning, blessed are you.’
 
 ****
 
@@ -567,7 +599,11 @@ he Prophets in images all mystically foresaw you bearing the Word; for having ta
 
 Katavasia.
 
-‘The triple radiant type of Godhead’s source Looses the bonds and turns the flame to dew; Youths give praise; while all created nature Blesses the only Saviour and Creator Of all as Benefactor.’
+‘The triple radiant type of Godhead’s source
+Looses the bonds and turns the flame to dew;
+Youths give praise; while all created nature
+Blesses the only Saviour and Creator
+Of all as Benefactor.’
 
 ****
 
@@ -625,7 +661,11 @@ ince life, clad in flesh, has shone forth for all from you, O Sovereign Lady, Mo
 
 Katavasia.
 
-‘Hail, Queen, glorious virgin mother; For every fluent, every eloquent mouth With oratory has not the strength to sing you worthily; But every mind is dizzy when it seeks to understand Your giving birth; therefore with one accord we glorify you.’
+‘Hail, Queen, glorious virgin mother;
+For every fluent, every eloquent mouth
+With oratory has not the strength to sing you worthily;
+But every mind is dizzy when it seeks to understand
+Your giving birth; therefore with one accord we glorify you.’
 
 ******
 
@@ -707,6 +747,7 @@ Before the First Hour Eothinon 10. Tone 6.
 
 After your descent into Hell and your Resurrection from the dead, O Christ, the Disciples, losing heart as was natural at your separation from them, turned back to their trade: and once again there were boats and nets and a catch nowhere. But you appeared, O Saviour, and as Master of all things ordered them to cast their nets on the right hand side: and at once the word was deed, and there was a great multitude of fish, and a strange supper ready on land. Your Disciples partook of it then; make us also worthy to enjoy it now in spirit, O Lover of humankind.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

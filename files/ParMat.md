@@ -91,7 +91,8 @@ Then
 
 Let everything that has breath**, Resurrection Gospel 5.** Having seen the Resurrection**. Psalm 50 etc. The Canons of Easter, with the Irmi, and of the Mother of God to 8, and that of the Paralysed Man to 6.**
 
-Easter Canon. Tone 1. Ode 1. Irmos.
+Easter Canon. Tone 1. Ode 1.
+Irmos.
 
 The day of Resurrection, let us be radiant, O peoples: Pascha, the Lord’s Pascha; for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song.
 
@@ -103,9 +104,11 @@ Let the heavens as is fitting rejoice, and let the earth be glad, let the whole 
 
 ****
 
-Canon of the Mother of God. Tone 1. The Acrostic in the first Troparia:
+Canon of the Mother of God. Tone 1.
+The Acrostic in the first Troparia:
 
-Theophan**. Ode 1. The same Irmos.**
+Theophan**.
+Ode 1. The same Irmos.**
 
 The boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
 
@@ -113,9 +116,12 @@ Having seen your Son and God risen from the dead, you rejoice with the Apostles,
 
 ****
 
-Canon of the Paralysed Man. Tone 3. Whose Acrostic is in the 9th Ode:
+Canon of the Paralysed Man. Tone 3.
+Whose Acrostic is in the 9th Ode:
 
-Joseph**. Composition of Joseph of Thessaloniki. Ode 1. The Irmos.**
+Joseph**.
+Composition of Joseph of Thessaloniki.
+Ode 1. The Irmos.**
 
 \[O God, you are glorious in your wonders; you do marvels; you turned the deep into earth, covered chariots and saved a people who sing to you, as God our redeemer.\]
 
@@ -405,7 +411,8 @@ On the same day, the fourth Sunday from Easter, we remember the Paralysed Man, a
 
 Verses.
 
-Strength to the paralysed, the word of Christ. And so this word was healing, this alone.
+Strength to the paralysed, the word of Christ.
+And so this word was healing, this alone.
 
 In your boundless mercy, Christ our God, have mercy on us. Amen.
 
@@ -693,6 +700,7 @@ NOTICE.
 
 Note that the office of the Paralysed Man is sung for three days: on Sunday, Monday and Tuesday.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

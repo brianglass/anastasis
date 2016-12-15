@@ -1,6 +1,11 @@
 \[ [Home](index.md) \] \[ [Up](triodion.md) \] \[ Readings \] \[ [Tax Collector and Pharisee](PubPharE.md) \] \[ [Prodigal Son](ProdigalE.md) \] \[ [Cheese Week](cheese_week.md) \] \[ [Sunday of Orthodoxy](sunday_of_orthodoxy.md) \] \[ [Sunday of the Cross](sunday_of_the_cross.md) \] \[ [Palm Sunday](palm.md) \] \[ [Holy Week](holyweek.md) \] \[ [Carnival Week](carnival_week.md) \]
 
-[First Week](first.md) [Second Week](second_week.md) [Third Week](third.md) [Fourth Week](fourth.md) [Fifth Week](fifth.md) [Sixth Week](sixth_week.md)
+[First Week](first.md)
+[Second Week](second_week.md)
+[Third Week](third.md)
+[Fourth Week](fourth.md)
+[Fifth Week](fifth.md)
+[Sixth Week](sixth_week.md)
 
 This page will contain the daily readings from Holy Scripture for the weekdays of Great Lent, together with the Prokeimena and the Troparia for the Prophecy. All the translations are made from the Christian Old Testament, commonly known as the Septuagint, which has been the Christian text since the days of the Apostles. It was only in the sixteenth century that certain Christian bodies rejected this text in favour of translations based on the Hebrew Masoretic tradition. The Orthodox Churches have never taken this step. I should perhaps stress that **these translations are provisional and in no way to be considered as definitive. Moreover they are translations of the texts as they are used in the contemporary Orthodox Church, and are in not intended to be translations of the Old Greek, or even of the Septuagint, as professional scholars understand these terms.**
 
@@ -18,6 +23,7 @@ Because HTML does not easily accept footnotes, I have added in blue in square br
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

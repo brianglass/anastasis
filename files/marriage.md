@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](eucholog.md) \] \[ [Baptism](baptism.md) \] \[ Marriage Rites \] \[ [Anointing of the Sick](anointin.md) \] \[ [Funeral Service](funeral.md) \] \[ [Consecration of a Church](dedic-int.md) \] \[ [Liturgy of Saint James](lit-james.md) \] \[ [Proskomidi](proskomidi.md) \] \[ [Canon for Confession](canon_for_confession.md) \] \[ [Presanctified](presanctified.md) \] \[ [Ordinations](ordinations.md) \]
 
-[Betrothal](betrotha.md) [Crowning](crowning.md)
+[Betrothal](betrotha.md)
+[Crowning](crowning.md)
 
  
 
@@ -28,6 +29,7 @@ At the end of the rite of Crowning will be found the short rite for the Untying 
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

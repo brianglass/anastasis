@@ -146,6 +146,7 @@ As the One who descended into the lowest part of the earth and saved mankind, an
 
 Hail, Mother of God, Mother of Christ God; as to-day you saw him whom you bore flying up from earth, with Angels you magnified him.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

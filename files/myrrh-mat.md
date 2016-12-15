@@ -98,7 +98,8 @@ hen the Sabbath was over, Mary Magdalen and Mary, the mother of James, and Salom
 
 After Psalm 50, the Canons of Pascha with the Irmi to 4, of the Mother of God to 4 \[2\], and of the Myrrhbearers to 6 \[8\].
 
-Paschal Canon. Tone 1. Ode 1. Irmos.
+Paschal Canon. Tone 1. Ode 1.
+Irmos.
 
 The day of Resurrection, let us be radiant, O peoples. Pascha, the Lord’s Pascha! for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song.
 
@@ -430,7 +431,9 @@ Synaxarion from the Menaion, then the following:
 
 On the same day, the third Sunday from Pascha, we celebrate the feast of the Myrrhbearers. We also remember Joseph of Arimatheia, who was a disciple in secret, as well as Nikodemos, the disciple by night.
 
-**Verses** Women Disciples bring sweet spice to Christ; While I to them, like spices, bring my hymn.
+**Verses** **
+**Women Disciples bring sweet spice to Christ;
+While I to them, like spices, bring my hymn.
 
 ********
 
@@ -649,7 +652,8 @@ Having fallen asleep in the flesh as one mortal, O King and Lord, you rose again
 
 ****
 
-Another, of the Myrrhbearers. Model Melody. Same Tone.
+Another, of the Myrrhbearers. Model Melody.
+Same Tone.
 
 Women hear a voice of gladness, ‘Trampling on the tyrant Hell, I have raised the world from corruption. Run, tell my friends the good tidings, for I wish joy to shine on what I fashioned from the source from which came grief’.
 
@@ -689,6 +693,7 @@ It is the day of Resurrection; let us be radiant for the festival, and let us em
 
 ******Great Doxology and Dismissal******
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

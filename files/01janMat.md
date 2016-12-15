@@ -23,7 +23,8 @@ The Maker of the world and the Master of all things, who exists above with the F
 
 ****
 
-After the 2nd reading, Kathisma. Tone 8. The Wisdom and Word.
+After the 2nd reading, Kathisma.
+Tone 8. The Wisdom and Word.
 
 Drawing out in a manner fitting God the mystical wealth of ineffable wisdom, you have treasured up for all streams of orthodoxy, which with divine inspiration delight hearts of the believers, but fittingly drown the doctrines of the unbelievers. Therefore through both by exertions of true religion you were revealed as an invincible champion of the Trinity. High Priest Basil, intercede with Christ God to grant forgiveness of offences to those who feast with love your holy memory.
 
@@ -91,7 +92,10 @@ Grace was poured out on your lips, Venerable Father, and you became shepherd of 
 
 ****
 
-The Canons of the Feast and of the Saint. The Canon of the Feast. A Composition by Stephanos. Ode 1. Tone 2. The Irmos.
+The Canons of the Feast and of the Saint.
+The Canon of the Feast.
+A Composition by Stephanos.
+Ode 1. Tone 2. The Irmos.
 
 ’Come, you peoples, let us sing a song to Christ God, who parted the sea and guided the people he had taken from the slavery of the Egyptians; for he has been glorified’.
 
@@ -101,7 +105,8 @@ Christ receives circumcision on the eighth day from his birth; and today he redu
 
 ****
 
-Of the Saint. The same Irmos. A composition of John of Damascus.
+Of the Saint. The same Irmos.
+A composition of John of Damascus.
 
 Yours is the voice that should have been with those who wish to undertake your praises, Basil; but as you judge kindly, Father, grant us grace ungrudgingly.
 
@@ -129,7 +134,11 @@ Katavasia.
 
 Another.
 
-’Israel trod the storm-tossed surging of The sea, as dry land once again revealed. While the black waters utterly concealed Egypt’s chief captains in a watery grave, Through strength most mighty of the Master’s hand’.
+’Israel trod the storm-tossed surging of
+The sea, as dry land once again revealed.
+While the black waters utterly concealed
+Egypt’s chief captains in a watery grave,
+Through strength most mighty of the Master’s hand’.
 
 ****
 
@@ -169,7 +178,11 @@ Katavasia.
 
 Another.
 
-’All we who have been freed from ancient snares, Ravening lions too, whose jaws are smashed, Let us rejoice, and open wide our mouths, Weaving from words a song now for the Word, Whose pleasure is bestowing gifts on us’.
+’All we who have been freed from ancient snares,
+Ravening lions too, whose jaws are smashed,
+Let us rejoice, and open wide our mouths,
+Weaving from words a song now for the Word,
+Whose pleasure is bestowing gifts on us’.
 
 ****
 
@@ -229,7 +242,11 @@ The one whom you called: A Voice crying in the wilderness, heard your voice, Lor
 
 Another.
 
-’Cleansed by the torch of mystic contemplation, Mortals’ renewal now a Prophet sings, Making his voice, by Spirit struck, ring out, Telling of Word ineffable made flesh, By whom the strength of mighty ones was smashed’.
+’Cleansed by the torch of mystic contemplation,
+Mortals’ renewal now a Prophet sings,
+Making his voice, by Spirit struck, ring out,
+Telling of Word ineffable made flesh,
+By whom the strength of mighty ones was smashed’.
 
 ****
 
@@ -267,7 +284,11 @@ Jesus, the Prince of life, has come to abolish the condemnation of Adam the firs
 
 Another.
 
-’Washed by the cleansing of the Spirit from The poison of the dark and filthy foe, We set out on a new, unerring path To gladness unattainable, that those Alone whom God has reconciled attain’.
+’Washed by the cleansing of the Spirit from
+The poison of the dark and filthy foe,
+We set out on a new, unerring path
+To gladness unattainable, that those
+Alone whom God has reconciled attain’.
 
 ****
 
@@ -305,7 +326,12 @@ The voice of the Word, the lampstand of the Light, the morning star, the Forerun
 
 Another.
 
-’The Father’s joyful voice made manifest The Dear One, that he from the womb had uttered, In truth, he said, this is my offspring of The selfsame nature. From the human race He, bringing light, has sprung, my living Word, By providence divine a mortal man.’
+’The Father’s joyful voice made manifest
+The Dear One, that he from the womb had uttered,
+In truth, he said, this is my offspring of
+The selfsame nature. From the human race
+He, bringing light, has sprung, my living Word,
+By providence divine a mortal man.’
 
 ****
 
@@ -323,7 +349,8 @@ Bowl of temperance, mouth of wisdom and foundation of doctrines, Basil the Great
 
 Synaxarion.
 
-January, which has 31 days. The day has 10 hours, the night 14.
+January, which has 31 days.
+The day has 10 hours, the night 14.
 
 On the 1st of the month we celebrate the Circumcision according to the flesh of our Lord and God and Saviour, Jesus Christ.
 
@@ -331,7 +358,8 @@ On the 1st of the month we celebrate the Circumcision according to the flesh of 
 
 Verses.
 
-When Christ was circumcised, Law was cut off; The Law cut off, at once grace entered in.
+When Christ was circumcised, Law was cut off;
+The Law cut off, at once grace entered in.
 
 On the same day, Commemoration of our Father among the Saints Basil the Great, Archbishop of Caesarea in Cappadocia.
 
@@ -339,7 +367,9 @@ On the same day, Commemoration of our Father among the Saints Basil the Great, A
 
 Verses.
 
-Lives Basil, for his death was in the Lord. Lives he with us, as speaking from his books. Basil, you died on the first on the month that is named after Janus.
+Lives Basil, for his death was in the Lord.
+Lives he with us, as speaking from his books.
+Basil, you died on the first on the month that is named after Janus.
 
 On the same day the holy Martyr Theodotos died by the sword.
 
@@ -347,7 +377,8 @@ On the same day the holy Martyr Theodotos died by the sword.
 
 Verses.
 
-Says Theodotos I am not content Unless my head is cut off for God’s sake.
+Says Theodotos I am not content
+Unless my head is cut off for God’s sake.
 
 On the same day, Saint Gregory, father of Saint Gregory the Divine, died in peace.
 
@@ -355,7 +386,8 @@ On the same day, Saint Gregory, father of Saint Gregory the Divine, died in peac
 
 Verses.
 
-Father you were enriched when at your death Your eulogy was spoken by your son.
+Father you were enriched when at your death
+Your eulogy was spoken by your son.
 
 At their holy intercessions, O God, have mercy on us.
 
@@ -399,7 +431,11 @@ Katavasia.
 
 Another.
 
-"He burned the heads of dragons in the stream, Who once within the furnace stilled the flame, Which leapt high in the air around the youths. While with the Spirit’s dew he washes clean The mist hard to restrain that comes from sin’.
+"He burned the heads of dragons in the stream,
+Who once within the furnace stilled the flame,
+Which leapt high in the air around the youths.
+While with the Spirit’s dew he washes clean
+The mist hard to restrain that comes from sin’.
 
 ****
 
@@ -439,11 +475,17 @@ Katavasia.
 
 Another.
 
-’Creation knows that it has been set free; Those once in darkness are now sons of light. Alone the captain of the darkness groans. The whole inheritance of nations that Was once in misery, blesses the cause.’
+’Creation knows that it has been set free;
+Those once in darkness are now sons of light.
+Alone the captain of the darkness groans.
+The whole inheritance of nations that
+Was once in misery, blesses the cause.’
 
 ****
 
-Ode 9. MEGALYNARIA Sung in this Ode. Tone 2.
+Ode 9.
+MEGALYNARIA
+Sung in this Ode. Tone 2.
 
 Magnify, O my soul, her who is greater in honour and more glorious than the hosts on high. (
 
@@ -513,11 +555,16 @@ Katavasia.
 
 Another.
 
-’O how the wonders of your giving birth Surpass the mind, pure Bride and blessed Mother. Through whom we have obtained entire salvation, Rightly we praise you as our benefactress, Bringing as gift to you, a hymn of thanks’.
+’O how the wonders of your giving birth
+Surpass the mind, pure Bride and blessed Mother.
+Through whom we have obtained entire salvation,
+Rightly we praise you as our benefactress,
+Bringing as gift to you, a hymn of thanks’.
 
 ****
 
-Exapostilarion. By the sacred Spirit.
+Exapostilarion.
+By the sacred Spirit.
 
 With love of true love of wisdom, Father, you circumcised the covering of your soul and were revealed to the world as a sun by your wonders, and flooded the minds of the faithful with light, O Basil, worshipper of the Trinity and initiate of the Mother of God.
 
@@ -580,6 +627,7 @@ Note that on this day the Liturgy of Saint Basil the Great is celebrated because
 
 **The details of the different typika vary a good deal for the Liturgy. Some permit Antiphons instead of the Typika; some give as the Entrance chant,** Son of God, wonderful in the Saints; **some order the Apolytikion of the Saint of the Monastery as well as those of the Feast and Saint, that of Dionysiou simply saying,** and the usual; **some replace,** We have seen the true light **by the Apolytikion of the Feast and only prescribe one Communion chant. In all cases** In you, O full of grace **replaces** It is truly meet.\]
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

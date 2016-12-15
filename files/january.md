@@ -93,7 +93,8 @@ Enriched with the grace of prophecy, you clearly announced beforehand, O Prophet
 
 ****
 
-Apolytikion of the Forefeast; and of the Apostles. Tone 3. \[Common\]
+Apolytikion of the Forefeast; and of the Apostles.
+Tone 3. \[Common\]
 
 O holy Apostles, intercede with the merciful God to grant our souls forgiveness of sins.
 
@@ -273,7 +274,8 @@ From infancy you longed fervently for the Lord, you abandoned the pleasures in t
 
 ****
 
-After the 3rd Ode, Kontakion of the Kalyvite. Tone 2. Seeking things on high.
+After the 3rd Ode, Kontakion of the Kalyvite.
+Tone 2. Seeking things on high.
 
 Longing for poverty, wise Father, in imitation of Christ, you abandoned your parents’ wealth, and grasping the Gospel in your hands, John, you followed Christ God interceding unceasingly on behalf of our souls.
 
@@ -575,6 +577,7 @@ Kontakion. Tone 3. Today the Virgin.
 
 Having received from divine grace the free gift of wonders, O Saints, you unceasingly work wonders, by your invisible surgery cutting out all our passions, inspired Kyros with godlike John. For you are godlike physicians.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

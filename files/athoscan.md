@@ -134,7 +134,13 @@ On the Second Sunday of Matthew we celebrate the memory of all the Venerable Fat
 
 **Verses for the Mountain and the Fathers who became Saints on it.**
 
-> > Mount Athos far outstrips all mountains high Of European lands by being called ‘Holy’; Athos, which nurtures flowers, has ever flowered With truly spiritual flowers, the godly Fathers; The choir of Monks of Athos honours now The godlike choir of Fathers of Mount Athos. A throng of Athonites stands round the throne of God.
+> > Mount Athos far outstrips all mountains high
+> > Of European lands by being called ‘Holy’;
+> > Athos, which nurtures flowers, has ever flowered
+> > With truly spiritual flowers, the godly Fathers;
+> > The choir of Monks of Athos honours now
+> > The godlike choir of Fathers of Mount Athos.
+> > A throng of Athonites stands round the throne of God.
 
 At their holy intercessions, Christ God, have mercy on us and save us. Amen.
 
@@ -198,6 +204,7 @@ Accept, august, all-holy Trinity, those whom Mount Athos offers you as first-fru
 
 All we who dwell on the Mountain offer you songs of thanksgiving, Mother of God, for you ever keep us safe from every peril; you nourish, cherish and care for us. But we beg you, ‘After our end, grant us the divine Kingdom’.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

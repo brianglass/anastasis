@@ -4,8 +4,9 @@
 
 THE ASSUMPTION
 
-OF OUR LORD AND GOD AND SAVIOUR JESUS CHRIST
-============================================
+OF OUR LORD AND GOD AND SAVIOUR
+JESUS CHRIST
+===============================
 
 **ON WEDNESDAY OF THE 6TH WEEK**
 
@@ -108,21 +109,25 @@ Entrance,
 
 O joyful Light**, Prokeimenon of the day, and the Readings.**
 
-The Reading is from the Prophecy of Isaias. \[**2,2-3\]**
+The Reading is from the Prophecy of Isaias.
+\[**2,2-3\]**
 
 Thus says the Lord, It shall come to pass in the last days that the mountain of the Lord shall be manifest, and the house of God from the peaks of the mountains; and it shall be exalted high above the hills; and all the nations shall come to it; and many peoples shall walk there, and shall say: Come, let us go up to the mountain of the Lord, and to the house of the God of Jacob; and he will declare his way to us, and we will walk in it.
 
-The Reading is from the Prophecy of Isaias. \[**62,10-63,3; 7-9\]**
+The Reading is from the Prophecy of Isaias.
+\[**62,10-63,3; 7-9\]**
 
 Thus says the Lord: Walk, go through my gates; prepare my way and make a way for my people, and cast the stones out of the way; raise up a standard for the nations. For see, the Lord has made it heard to the ends of the earth: Say to the daughter of Sion: See, your Saviour has come, and his reward is with him, and his work before his face. And he will call it a holy people, redeemed by the Lord; while you will be called a city sought after, and not forsaken. Who is this who comes from Edom, the scarlet of his garments from Bosor, thus beautiful in his apparel? He cries out with much strength. I reason of justice and judgement of salvation. Why are your garments red, and your clothing as from a trodden winepress? I am full of the trodden grape; I have trampled the winepress quite alone, and no man from the nations was with me. I have remembered the mercy of the Lord, I will recall the Lord’s virtues, the Lord’s praise for all the things with which He rewards us. The Lord is a good judge for the house of Israel; he deals with us according to his mercy and according to the multitude of his justice. And he said: Are you not my people? Children will surely not be rebellious; and he became for them salvation out of their every distress. It was not an emissary, not an Angel, but the Lord himself saved them because he loved them and spared them. He redeemed them and took them up and exalted them all the days of the age.
 
-The Reading is from the Prophecy of Zachary. \[**14,4; 8-11\]**
+The Reading is from the Prophecy of Zachary.
+\[**14,4; 8-11\]**
 
 Thus says the Lord: See, the day of the Lord is coming, and on that day his feet will stand upon the mount of Olives, opposite Jerusalem, where the sun rises. And on that day living water will come out from Jerusalem, half towards the first sea and half towards the last sea; in spring and in summer it shall be so; and the Lord will be for a King over all the earth; in that day there shall be one Lord, and his name, compassing all the earth and the wilderness from Gabaa as far as Remmon, south of Jerusalem; and he shall be exalted and remain on his place from the gate of Benjamin as far as the place of the first gate, as far as the gate of Gomor and as far as the tower of Anameël and as far as the tower of the corners and as far as the king’s winepresses; they shall dwell in it and there shall be no more curse and Jerusalem shall dwell confidently.
 
 ****
 
-At the Liti, Idiomel Stichera. Tone 1
+At the Liti, Idiomel Stichera.
+Tone 1
 
 In ascending to heaven, Lord, whence you also descended, do not leave us orphans; may your Spirit come, bringing peace to the world; show to the children of humankind deeds of your power, O Lord who love humankind.
 
@@ -209,25 +214,29 @@ AT MATINS
 
 ****
 
-After the 1st reading from the Psalter, Kathisma. Tone 1. When the stone had been sealed.
+After the 1st reading from the Psalter, Kathisma.
+Tone 1. When the stone had been sealed.
 
 While Angels marvelled at the strangeness of your ascent and Disciples were amazed at the awe-inspiring nature of your lifting up, you went up as God with glory, and the gates were lifted up for you, O Saviour; therefore the powers of heaven marvelled as they cried aloud: Glory to your descent, O Saviour! Glory to your kingdom! Glory to your Assumption, only lover of humankind!
 
 ****
 
-After the 2nd reading from the Psalter, Kathisma. Tone 3. Awed by the beauty.
+After the 2nd reading from the Psalter, Kathisma.
+Tone 3. Awed by the beauty.
 
 The God before the ages and without beginning, having made divine the human nature that he had taken up, has been taken up to-day. Angels hastening forth showed him to the Apostles as he went into heaven with great glory; and worshipping him they said: Glory to God who has been taken up!
 
 ****
 
-After the Polyeleos, Kathisma. Tone 5. Let us believers.
+After the Polyeleos, Kathisma.
+Tone 5. Let us believers.
 
 When you came down from heaven to things on earth and as God raised up with you Adam’s nature which lay below in Hades’ prison, you brought it to heaven by your Assumption, O Christ, and made it sit with you on your Father’s throne, as you are merciful and love humankind.
 
 ****
 
-The first Antiphon of the Anavathmi in Tone 4, then the Prokeimenon in Tone 4.
+The first Antiphon of the Anavathmi in Tone 4,
+then the Prokeimenon in Tone 4.
 
 God has gone up to a shout of joy: \* the Lord to the sound of the trumpet.
 
@@ -265,7 +274,9 @@ To-day, seeing our nature in the heavens, the Powers above, marvelling at the st
 
 The Canons; that in Tone 5 with the Irmi to 8 and that in Tone 4 to 6.
 
-Canon in Tone 5. A composition of Monk John. Ode 1. Irmos.
+Canon in Tone 5.
+A composition of Monk John.
+Ode 1. Irmos.
 
 To God the Saviour who guided the people in the sea dry-shod, and drowned Pharao with all his host, to him alone let us sing: for he has been glorified.
 
@@ -287,11 +298,15 @@ Immaculate Mother of God, without ceasing implore the God who was incarnate from
 
 ****
 
-Canon in Tone 4, of which the acrostic is the alphabet; but in the 8th and 9th Odes:
+Canon in Tone 4,
+of which the acrostic is the alphabet;
+but in the 8th and 9th Odes:*
+*
 
 JOSEPH’S ODE ****
 
-A Composition of Joseph of Thessaloniki. I will open my mouth.
+A Composition of Joseph of Thessaloniki.
+I will open my mouth.
 
 Immortal by nature, you arose on the third day and appeared to the Eleven and to all the Disciples, and riding on a cloud you hastened back to the Father, O Christ, Maker of the universe.
 
@@ -309,7 +324,11 @@ All-spotless Lady, you bore the Master of all, who accepted the voluntary passio
 
 Katavasia.
 
-The slow of tongue, hidden in divine darkness, Proclaimed the law written by God; For shaking the dust from his mind’s eye, He sees the One Who Is, and is initiated Into knowledge of the Spirit, giving praise with songs inspired.
+The slow of tongue, hidden in divine darkness,
+Proclaimed the law written by God;
+For shaking the dust from his mind’s eye,
+He sees the One Who Is, and is initiated
+Into knowledge of the Spirit, giving praise with songs inspired.
 
 ****
 
@@ -355,7 +374,11 @@ All-pure Virgin mother, who gave birth to the Destroyer of death, the only immor
 
 Katavasia.
 
-Only the prayer of the prophetess Anna Of old, who brought a broken spirit To the Mighty One and God of knowledge, Broke the fetters of a childless womb And the harsh insult of one with many children.
+Only the prayer of the prophetess Anna
+Of old, who brought a broken spirit
+To the Mighty One and God of knowledge,
+Broke the fetters of a childless womb
+And the harsh insult of one with many children.
 
 ****
 
@@ -405,7 +428,11 @@ Blessed has your womb become, All-blameless Lady, for you were found worthy to c
 
 Katavasia.
 
-Monarch of monarchs, Alone from the Alone, Word who came forth from the Father without cause, As Benefactor you have unerringly sent out Your Spirit, equal in strength, to the Apostles, As they sing: Glory to your might, O Lord!
+Monarch of monarchs, Alone from the Alone,
+Word who came forth from the Father without cause,
+As Benefactor you have unerringly sent out
+Your Spirit, equal in strength, to the Apostles,
+As they sing: Glory to your might, O Lord!
 
 ****
 
@@ -443,7 +470,11 @@ Angels spoke to the Apostles as they watched: Men of Galilee, why are you amazed
 
 Katavasia.
 
-O light-formed children of the Church, Receive the Spirit’s fire-breathing dew, A redeeming purification of offences; For now a law has gone out from Sion, The torch-tongue-formed grace of the Spirit.
+O light-formed children of the Church,
+Receive the Spirit’s fire-breathing dew,
+A redeeming purification of offences;
+For now a law has gone out from Sion,
+The torch-tongue-formed grace of the Spirit.
 
 ****
 
@@ -487,11 +518,16 @@ Pure Maiden, we hymn your conceiving, we hymn your ineffable giving birth, throu
 
 Katavasia.
 
-O Christ, the Master, you shone from the Virgin As pardon and salvation for us, That like the prophet Jonas from the breast Of the sea beast, you might snatch from corruption The whole fallen race of Adam.
+O Christ, the Master, you shone from the Virgin
+As pardon and salvation for us,
+That like the prophet Jonas from the breast
+Of the sea beast, you might snatch from corruption
+The whole fallen race of Adam.
 
 ****
 
-Kontakion. Model Melody. Tone 8. \[By St Romanos\]
+Kontakion. Model Melody. Tone 8.
+\[By St Romanos\]
 
 When you had fulfilled the dispensation for our sake and united things on earth with things in heaven, you were taken up in glory, Christ our God, in no way divided, but remaining inseparable, you cried to those who loved you, ‘I am with you, and there is no one against you.’
 
@@ -511,7 +547,8 @@ On the Thursday of the sixth week from Pascha, we celebrate the Assumption of ou
 
 Verses
 
-Seated, O Word, upon the Father’s right, Granting Initiates a surer faith.
+Seated, O Word, upon the Father’s right,
+Granting Initiates a surer faith.
 
 **When he was with his Disciples before his passion, he promised them the coming of the all-holy Spirit, saying, ‘It is right that I go away. For if I do not go away, the Paraclete will not come’. And again, ‘When he comes, he will teach you all truth,. Therefore, after rising from the dead, he appeared to them for forty days, not the whole time, but at intervals, eating and drinking with them, proving the resurrection more surely. Finally, after promising many things about the kingdom of God, he ordered them not to leave Jerusalem, but to wait there to receive the coming of the all-holy Spirit, and they would also be baptised through him. For they had formerly only been baptised in water by John (though later Epiphanios of Cyprus recounted that John the Theologian baptised the Mother of God, while Peter and he baptised the rest of the Apostles). He ordered them to remain in Jerusalem so that the first proclamation of the Gospel might be confirmed there, lest, by leaving for foreign places, they might be easily misrepresented. And because it was necessary, as it is for soldiers, for them to be armed with the weapons of the Spirit and so go out to battle with the enemies of Christ.**
 
@@ -567,7 +604,11 @@ O marvellous wonders! How did you, O full of God’s grace, contain the uncontai
 
 Katavasia.
 
-Harmonious melody of instruments decreed Reverence to the lifeless idol wrought of gold. But the Advocate’s life-bearing grace Inspires with reverence to cry: Only Trinity, Equal in strength, without beginning, blessed are you.
+Harmonious melody of instruments decreed
+Reverence to the lifeless idol wrought of gold.
+But the Advocate’s life-bearing grace
+Inspires with reverence to cry: Only Trinity,
+Equal in strength, without beginning, blessed are you.
 
 ****
 
@@ -611,7 +652,11 @@ See, Mother of God, your Son, having despoiled death by his Cross, rose on the t
 
 Katavasia.
 
-The triple radiant type of Godhead’s source Looses the bonds and turns the flame to dew; Youths give praise; while all created nature Blesses the only Saviour and Creator Of all as Benefactor.
+The triple radiant type of Godhead’s source
+Looses the bonds and turns the flame to dew;
+Youths give praise; while all created nature
+Blesses the only Saviour and Creator
+Of all as Benefactor.
 
 ****
 
@@ -673,7 +718,11 @@ The Light which shone from Light dawned from you, dispelled all the blackness of
 
 Katavasia
 
-Hail, Queen, glorious virgin mother; For every fluent, every eloquent mouth With oratory has not the strength to sing you worthily; But every mind is dizzy when it seeks to understand Your giving birth; therefore with one accord we glorify you.
+Hail, Queen, glorious virgin mother;
+For every fluent, every eloquent mouth
+With oratory has not the strength to sing you worthily;
+But every mind is dizzy when it seeks to understand
+Your giving birth; therefore with one accord we glorify you.
 
 ****
 
@@ -706,7 +755,8 @@ Great Doxology and Dismissal.
 AT THE LITURGY
 ==============
 
-**We sing the following Antiphons Antiphon 1. Tone 2.**
+**We sing the following Antiphons
+Antiphon 1. Tone 2.**
 
 All you nations, clap your hands; shout to God with a voice of gladness.
 
@@ -812,7 +862,8 @@ God has gone up with a shout; the Lord to the sound of the trumpet. ****
 
 Instead of
 
-It is truly right. **Tone 5.**
+It is truly right.
+**Tone 5.**
 
 Since beyond mind and beyond reason ineffably you bore the Timeless in time, O Mother of God, we faithful with one mind magnify you.
 
@@ -830,12 +881,14 @@ We have seen the true light:
 
 You were taken up in glory, Christ our God, having made the Disciples joyful with the promise of the Holy Spirit; through the blessing they were assured that you are the Son of God, the redeemer of the world.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
 
 able&gt;
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

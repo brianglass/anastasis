@@ -40,19 +40,22 @@ Entrance,
 
 O Joyful Light, **Prokeimenon of the day and the Readings.**
 
-The Reading is from the Wisdom of Solomon. \[
+The Reading is from the Wisdom of Solomon.
+\[
 
 **3:1-9**\]
 
 The souls of the righteous are in the hand of God, and no torment will ever touch them. In the eyes of the foolish they seem to have died, and their departure was reckoned to be a disaster, and their going from us to be their destruction; but they are at peace. For though in the sight of others they were punished, their hope is full of immortality. Having been disciplined a little, they will receive great good, because God tested them and found them worthy of himself; like gold in the furnace he tried them, and like a sacrificial burnt offering he accepted them. In the time of their visitation they will shine forth, and will run like sparks through the stubble. They will judge nations and hold sway over peoples, and the Lord will reign over them for ever. Those who trust in him will understand truth, and the faithful will abide with him in love, because grace and mercy are upon his Holy Ones, and he watches over his elect.
 
-The Reading is from the Wisdom of Solomon. \[
+The Reading is from the Wisdom of Solomon.
+\[
 
 **5:15-6:3**\]
 
 The righteous live for ever, and their reward is with the Lord; the Most High takes care of them. Therefore they will receive the crown of glory and the diadem of beauty from the hand of the Lord, because with his right hand he will cover them, and with his arm he will shield them. He will take his zeal as his whole armour and will arm all creation to repel his enemies; he will put on justice as a breastplate, and wear impartial judgement as a helmet; he will take holiness as an invincible shield, and sharpen stern wrath for a sword, and creation will join with him to fight against his frenzied foes. Shafts of lightning will fly with true aim, and will leap from the clouds to the target, as from a well-drawn bow, and hailstones full of wrath will be hurled as from a catapult; the water of the sea will rage against them, and rivers will relentlessly overwhelm them; a mighty wind will rise against them, and like a tempest it will winnow them away. Lawlessness will lay waste the whole earth, and evil-doing will overturn the thrones of the mighty. Listen therefore, O kings, and understand; learn, O judges of the ends of the earth. Give ear, you that hold sway over multitudes, and boast of crowds of nations. For your dominion was given you from the Lord, and your sovereignty from the Most High.
 
-The Reading is from the Wisdom of Solomon. \[
+The Reading is from the Wisdom of Solomon.
+\[
 
 **4:7-15**\]
 
@@ -60,7 +63,8 @@ The righteous, though he die early, will be at rest. For old age is not honoured
 
 ****
 
-At the Aposticha, Prosomia. Tone 5.
+At the Aposticha, Prosomia.
+Tone 5.
 
 Hail venerable Athanasios, companion of angelic choirs; for you truly led their life on earth, all-blessed Father, practising virtue and appearing as an unsullied mirror of purity, receiving the blazing beams of the Holy Spirit; therefore shining brightly you saw the future, foretelling all, initiated from the divine illumination of Christ; implore him that our souls be given his great mercy.
 
@@ -106,7 +110,8 @@ Virgin Mother of God, we hymn you as the means of the salvation of our race; for
 
 ****
 
-After the 1st reading from the Psalter, Kathisma. Tone 4.
+After the 1st reading from the Psalter, Kathisma.
+Tone 4.
 
 Taking up his Cross on your shoulders, you devoutly followed Christ by ascetic deeds, venerable Athanasios; and you have become a model for all monastics who in holiness live the ascetic life, glorious Father. But now that by godly trials you have attained the palaces above do not cease to intercede for the salvation of our souls.
 
@@ -118,7 +123,8 @@ Like the Prophet I cry out to you: Do not enter into judgement with me, O Christ
 
 ****
 
-After the 2nd reading from the Psalter, Kathisma. Tone 4.
+After the 2nd reading from the Psalter, Kathisma.
+Tone 4.
 
 Through godly deeds and a pure life you were well pleasing to the Lord, Venerable Father; and you have been found worthy of the inheritance of the Bodiless Powers, wise Athanasios.
 
@@ -244,7 +250,14 @@ As noblest contemplator of the immaterial beings and truest ascetic teacher we y
 
 The Ikos.
 
-Accepting your call from above you have inherited immortal life; for with a body upon earth you shared the life of the Bodiless Ones and became impregnable to the passions; and so we praise you Father: Hail, bright glory of monks; hail, radiant monument of sobriety. Hail, far seen token of courage; hail, proof of all-wise prudence. Hail, balanced line of accurate justice; hail, who by reason order the impulses of duties. Hail, mind who enjoy ineffable thoughts; hail, who devoutly perceive all creation. Hail, through whom the demons are shamed; hail through whom every passion is slain. Hail, haven of those in the tempest of life; hail saviour of those who faithfully cry to you: Hail, Father Athanasios!
+Accepting your call from above you have inherited immortal life; for with a body upon earth you shared the life of the Bodiless Ones and became impregnable to the passions; and so we praise you Father:
+Hail, bright glory of monks; hail, radiant monument of sobriety.
+Hail, far seen token of courage; hail, proof of all-wise prudence.
+Hail, balanced line of accurate justice; hail, who by reason order the impulses of duties.
+Hail, mind who enjoy ineffable thoughts; hail, who devoutly perceive all creation.
+Hail, through whom the demons are shamed; hail through whom every passion is slain.
+Hail, haven of those in the tempest of life; hail saviour of those who faithfully cry to you:
+Hail, Father Athanasios!
 
 ****
 
@@ -256,7 +269,13 @@ On the 5th of the same month, Commemoration of our Venerable and godbearing Fath
 
 Verses.
 
-Anthony was Great, the beginning of Fathers; Athanasios godlike, their godly end. Though Athanasios came but late in time Yet he excelled the ancients by his toils. For Athanasios and disciples six Temple’s collapse destroyed their bodies’ temples. And on the fifth of the month Spirits brought Athanasios to God’s town.
+Anthony was Great, the beginning of Fathers;
+Athanasios godlike, their godly end.
+Though Athanasios came but late in time
+Yet he excelled the ancients by his toils.
+For Athanasios and disciples six
+Temple’s collapse destroyed their bodies’ temples.
+And on the fifth of the month Spirits brought Athanasios to God’s town.
 
 On the same day, Commemoration of our venerable Father Lampados.
 
@@ -264,7 +283,9 @@ On the same day, Commemoration of our venerable Father Lampados.
 
 Verses
 
-. Filling his lamp with oil now Lampados Was ready for the Bridegroom drawing near.
+.
+Filling his lamp with oil now Lampados
+Was ready for the Bridegroom drawing near.
 
 At their holy intercessions, O God, have mercy on us. Amen.
 
@@ -354,6 +375,7 @@ Mother of God, you are the true vine who gave bud to the fruit of life; we implo
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

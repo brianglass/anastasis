@@ -34,7 +34,8 @@ What shall we offer you, O Christ, because you have appeared on earth as a man f
 
 Glory. Both now.
 
-**The same Tone. By Kasia.**
+**The same Tone.
+By Kasia.**
 
 When Augustus reigned alone on the earth, the many kingdoms of mankind came to an end; and when you became man from the pure Virgin, the many gods of idolatry were destroyed; the cities of the world passed under one single rule; and the nations came to believe in one single Godhead; the peoples were enrolled by decree of Caesar; we the faithful were enrolled in the name of the Godhead, when you became man, O our God. Great is your mercy, Lord; glory to you!
 
@@ -44,19 +45,22 @@ And there takes place an Entrance with the Gospel;
 
 O Joyful Light, **and the Readings in their order, with the Troparia and their verses.**
 
-The Reading is from Genesis. (
+The Reading is from Genesis.
+(
 
 **1:1-13**)
 
 In the beginning God made the heavens and the earth. The earth was without form and void, and darkness was upon the face of the deep; and the Spirit of God was moving over the face of the waters. And God said, ‘Let there be light’; and there was light. And God saw that the light was good; and God separated the light from the darkness. God called the light Day, and the darkness he called Night. And there was evening and there was morning, one day. And God said, ‘Let there be a firmament in the midst of the waters, and let it separate the waters from the waters. And it was so.’ And God made the firmament and separated the waters which were under the firmament from the waters which were above the firmament. And God called the firmament Heaven. And God saw that it was good. And there was evening and there was morning, a second day. And God said, ‘Let the waters under the heavens be gathered together into one gathering and let the dry land appear.’ And it was so. And the water that was under Heaven was gathered to their gatherings, and the dry land appeared. And God called the dry land Earth, and the waters that were gathered together he called Seas. And God saw that it was good. And God said, ‘Let the earth put forth vegetation, plants yielding seed, and fruit trees bearing fruit in which is their seed, each according to its kind, upon the earth.’ And it was so. The earth brought forth vegetation, plants yielding seed according to their own kinds, and trees bearing fruit in which is their seed, each according to its kind. And God saw that it was good. And there was evening and there was morning, a third day.
 
-The Reading is from Numbers. (
+The Reading is from Numbers.
+(
 
 **24:2-3, 5-9, 17-18**)
 
 And the Spirit of God came upon Balaam, and he took up his discourse, and said, ‘How fair are your houses, O Jacob, your tents, O Israel! Like shady groves, like gardens beside a river, like tents that the Lord has planted, like cedar trees beside the waters. A man shall chrome forth from his seed and will be Lord over many nations, and his kingdom shall be exalted and increased. God led him out of Egypt; he has as it were the glory of the unicorn, he shall eat up the nations of his adversaries, and suck the marrow of their fat bones, and pierce the foe through with his arrows. He couched, he lay down like a lion, and like a young lion; who will rouse him? Blessed be every one who blesses you, and cursed be every one who curses you.’ A star shall come forth out of Jacob, and a man shall rise out of Israel; and shall crush the princes of Moab, and plunder all the sons of Seth. Edom shall be an inheritance, Esau his foe shall be an inheritance, while Israel did valiantly.
 
-The Reading from the Prophecy of Micheas. (
+The Reading from the Prophecy of Micheas.
+(
 
 **4:6-7 & 5:1-3**)
 
@@ -64,7 +68,8 @@ In those days, says the Lord, I will gather her that is bruised, and her that ha
 
 ****
 
-Then we sing, standing: Troparion. Tone 6.
+Then we sing, standing:
+Troparion. Tone 6.
 
 Secretly you were born in a cave, but heaven proclaimed you to all, using the star as its mouth, O Saviour. It brought you Magi, who worshipped you in faith. Have mercy on them and on us.
 
@@ -118,17 +123,20 @@ Secretly you were born in a cave, but heaven proclaimed you to all, using the st
 
 Then the following Readings.
 
-The Reading is from the Prophecy of Isaias. (**11:1-10**)
+The Reading is from the Prophecy of Isaias.**
+**(**11:1-10**)
 
 Thus says the Lord: There shall come forth a rod from the root of Jesse, and a flower shall grow out of the root. And the Spirit of the Lord God shall rest upon him, the spirit of wisdom and understanding, the spirit of counsel and strength, the spirit of knowledge and piety. The spirit of the fear of the Lord will fill him. He shall not judge by glory nor reprove by hearsay; but he will give judgement for the lowly with justice, and reprove with equity the glorious ones of the earth; and he shall smite the earth with the word of his mouth, and with the breath of his lips he shall destroy the wicked. And he will have his loins girt with justice, and his sides clothed with truth. Then the wolf shall feed with the lamb, and the leopard shall lie down with the kid, and the calf and the bull and the lion will feed together, and a little child shall lead them. The ox and the bear shall feed together; their young shall be together; and the lion shall eat straw like the ox. An infant child shall put its hand over the hole of asps, and the weaned child its hand on the nest of the offspring of asps. They shall not hurt or be able to destroy anyone on my holy mountain; for the whole earth shall be full of the knowledge of the Lord as much water covers the sea. In that day there shall be the root of Jesse, and he that shall arise to rule nations; in him shall the nations hope, and his rest shall be honour.
 
-The Reading is from the Prophecy of Jeremias. (
+The Reading is from the Prophecy of Jeremias.
+(
 
 **Baruch 3:36-38 & 4:1-4**)
 
 This is our God, and there shall be none other reckoned in comparison with him. He has found out all the way of knowledge, and given it to Jacob his servant and Israel his beloved. After this he appeared on earth and lived among men. This is the book of the commandments of God, and the law which exists for ever; all those who keep it fast will have life; but those who abandon it will die. Turn back Jacob, and lay hold of it, walk in the presence of its light to be illumined. Do not give your glory to another, and what is profitable to you to a foreign nation.
 
-The Reading is from the Prophecy of Daniel. (
+The Reading is from the Prophecy of Daniel.
+(
 
 **2:31-36, 44-45**)
 
@@ -190,11 +198,13 @@ You have dawned from a Virgin, O Christ, spiritual Sun of justice; and a star sh
 
 Then the following Readings.
 
-The Reading is from the Prophecy of Isaias. (**9:6-7**)
+The Reading is from the Prophecy of Isaias.**
+**(**9:6-7**)
 
 A child has been born for us, a son has been given to us; whose government is upon his shoulder, and his name will be called ‘Angel of Great Counsel, Wonderful Counsellor, Mighty God, Potentate, Prince of Peace, Father of the age to come.’ For I will bring peace upon princes, peace and health to him. Great his government, and of his peace there is no bound, upon the throne of David, and upon his kingdom, to establish it, and to uphold it with judgement and with justice from henceforth and for evermore. The zeal of the Lord of hosts will do this.
 
-The Reading is from the Prophecy of Isaias. (
+The Reading is from the Prophecy of Isaias.
+(
 
 **7:10-16 & 8:1-4, 8-10**)
 
@@ -204,7 +214,8 @@ Again the Lord spoke to Ahaz, ‘Ask a sign of the Lord your God; in the depth o
 
 After the completion of the Readings the Small Litany, and after the Ekphonesis the Trisagion.
 
-Then the Prokeimenon of the Apostle. 1st Tone.
+Then the Prokeimenon of the Apostle.
+1st Tone.
 
 The Lord said to me: You are my Son; today I have begotten you.
 
@@ -214,7 +225,8 @@ Verse:
 
 Ask of me, and I will give you nations as your inheritance.
 
-The Reading is from the Epistle of Paul to the Hebrews. (
+The Reading is from the Epistle of Paul to the Hebrews.
+(
 
 **1:1-14 & 2:1-3**)
 
@@ -236,7 +248,8 @@ Verse 3:
 
 From the womb before the Morning Star I have begotten you.
 
-The Reading is from the holy Gospel according to Luke. (
+The Reading is from the holy Gospel according to Luke.
+(
 
 **2:1-20**)
 
@@ -250,6 +263,7 @@ Communion.
 
 Praise the Lord from the heavens; praise him in the highest. Alleluia.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

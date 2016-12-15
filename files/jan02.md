@@ -29,7 +29,8 @@ O all-powerful, you are a river of peace and a stream of delight, as it written;
 
 ****
 
-\[Other Prosomia Stichera of the Saint. Tone 8. O marvellous wonder.\]
+\[Other Prosomia Stichera of the Saint.
+Tone 8. O marvellous wonder.\]
 
 Glory. Both now.
 
@@ -39,7 +40,8 @@ Christ the truth comes to the Jordan to be baptised by John, who says to him, �
 
 ****
 
-At the Aposticha, Idiomels. Tone 1. By Monk John.
+At the Aposticha, Idiomels.
+Tone 1. By Monk John.
 
 Radiant the feast that has passed; more radiant the saving feast that draws near. The one had a Angel as the bearer of good tidings, and this found the Forerunner as the one who makes ready for it in advance. In the one, when blood was shed, Bethlehem grieved, as one who was childless; in this, when the waters were blessed, the Font was made known as source of many children. Then a Star guided the Magi, but now the Father revealed you to the world. Lord, who took flesh and are coming again made manifest, glory to you!
 
@@ -323,7 +325,9 @@ On the 2nd of the same month, Commemoration of our Father among the Saints Silve
 
 Verses.
 
-Magus Zambres he shames, a dead ox lives, Silvester, Pope of Rome, though dead yet lives. And on the month’s second day Pope Silvester breathed out his last breath.
+Magus Zambres he shames, a dead ox lives,
+Silvester, Pope of Rome, though dead yet lives.
+And on the month’s second day Pope Silvester breathed out his last breath.
 
 On the same day, Commemoration of the holy Bishop and Martyr, Theagenes.
 
@@ -331,7 +335,8 @@ On the same day, Commemoration of the holy Bishop and Martyr, Theagenes.
 
 Verses.
 
-Theagenes, be cast into the deep; Though drowned therein, you swim out to the stars.
+Theagenes, be cast into the deep;
+Though drowned therein, you swim out to the stars.
 
 On the same day Saints Theopemptos and Theodoti, the mother of the holy Unmercenaries, died in peace.
 
@@ -339,9 +344,12 @@ On the same day Saints Theopemptos and Theodoti, the mother of the holy Unmercen
 
 Verses
 
-. To loose Theopemptos from bonds of flesh, Spirits of fire, sent by God \[Theou pempsantos\], drew near.
+.
+To loose Theopemptos from bonds of flesh,
+Spirits of fire, sent by God \[Theou pempsantos\], drew near.
 
-By sickness Theodoti passed from life, Who bore to life healers of sicknesses.
+By sickness Theodoti passed from life,
+Who bore to life healers of sicknesses.
 
 On the same day, the Venerable Mark the Deaf died in peace.
 
@@ -349,7 +357,8 @@ On the same day, the Venerable Mark the Deaf died in peace.
 
 Verses.
 
-No words of earthly utterance did Mark hear, Before he left earth bringing ears from earth.
+No words of earthly utterance did Mark hear,
+Before he left earth bringing ears from earth.
 
 On the same day Commemoration of the holy Martyr Basil of Ankyra.
 
@@ -357,7 +366,8 @@ On the same day Commemoration of the holy Martyr Basil of Ankyra.
 
 Verses.
 
-The roar, the gaping maw, the bite of beasts Saint Basil’s meekness did not quail before.
+The roar, the gaping maw, the bite of beasts
+Saint Basil’s meekness did not quail before.
 
 On the same day Saint Sergios died by the sword.
 
@@ -365,7 +375,8 @@ On the same day Saint Sergios died by the sword.
 
 Verses.
 
-It is not possible to say, or knowledge bear With what joy Sergios had his head cut off.
+It is not possible to say, or knowledge bear
+With what joy Sergios had his head cut off.
 
 On the same day Saint Theopistos was stoned to death.
 
@@ -373,7 +384,8 @@ On the same day Saint Theopistos was stoned to death.
 
 Verses.
 
-A multitude of faithless \[apistôn\] basely urged Slew you with stones, faithful \[pisté\] Theopistos.
+A multitude of faithless \[apistôn\] basely urged
+Slew you with stones, faithful \[pisté\] Theopistos.
 
 On the same day Commemoration of our Venerable Father Kosmas, Archbishop of Constantinople, the Wonderworker, of the revered Monastery of Chora.
 
@@ -431,7 +443,8 @@ Irmos.
 
 ****
 
-Exapostilarion. Women listen.
+Exapostilarion.
+Women listen.
 
 The voice of one who cries has sounded; you hills, leap for joy; dance, human race, for the Word before eternity, taking flesh as a man, has come that he may be baptized in Jordan by hands which he fashioned and to abolish the sin of the world.
 
@@ -507,6 +520,7 @@ The rest of the Office of Matins as usual, and Dismissal.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

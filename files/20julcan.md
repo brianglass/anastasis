@@ -2,7 +2,8 @@
 
  
 
-**The first Canon, by Monk John, with the following acrostic, not including the Theotokia:** Dancing I praise the wonders of Elias.
+**The first Canon, by Monk John, with the following acrostic, not including the Theotokia:
+**Dancing I praise the wonders of Elias.
 
 **Ode 1. Tone 2. Let us sing to the Lord.**
 
@@ -96,6 +97,7 @@ O Mother of God, who abolished the severe ancient sentence, who set upright the 
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

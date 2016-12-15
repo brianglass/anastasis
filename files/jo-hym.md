@@ -1,6 +1,12 @@
 \[ [Home](index.md) \] \[ [Up](canons.md) \] \[ [John of Damascus](john-dam.md) \] \[ Joseph the Hymnographer \] \[ [Kosmas](kosmas.md) \] \[ [Andrew of Crete](and-crete.md) \] \[ [Theophanes](theophan.md) \] \[ [Anonymous](anonymou.md) \]
 
-[Second Canon for the Assumption](asccan2.md) [Prophet Elias](20julcan2.md) [Paralysed Man](ParalCan.md) [Samaritan Woman](SamarCan.md) [Blind Man](BlindCanon.md) [Akathist](akathist.md) [Holy Cross](1augcan1.md)
+[Second Canon for the Assumption](asccan2.md)
+[Prophet Elias](20julcan2.md)
+[Paralysed Man](ParalCan.md)
+[Samaritan Woman](SamarCan.md)
+[Blind Man](BlindCanon.md)
+[Akathist](akathist.md)
+[Holy Cross](1augcan1.md)
 
 JOSEPH THE HYMNOGRAPHER \[810-886\]
 -----------------------------------
@@ -9,6 +15,7 @@ He is not to be confused with Joseph of Thessaloniki, brother of Theodore the St
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

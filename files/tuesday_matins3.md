@@ -485,6 +485,7 @@ Both now.
 
 You received in your womb the One who with the Father is without beginning and equal in majesty with the holy Spirit and you bore him beyond understanding and reason when he became man for the welfare of mankind, Mary Bride of God, spacious place of our God. Beg him insistently that your servants may be saved.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

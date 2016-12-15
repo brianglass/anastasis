@@ -40,6 +40,7 @@ mso-bidi-font-size:12.0pt;color:blue">And your mercy will pursue me all my days<
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

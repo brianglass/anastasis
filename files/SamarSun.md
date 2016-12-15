@@ -92,7 +92,8 @@ Come you peoples, let us hymn the Saviour’s Rising on the third day, through w
 
 ****
 
-Of Mid-Pentecost. Lord, by ascending the Cross. Same Tone.
+Of Mid-Pentecost.
+Lord, by ascending the Cross. Same Tone.
 
 The mid-point of the days is here, which begin with the saving Resurrection and are sealed by the divine Pentecost. It shines for it shares the brilliance of them both, and unites the two, and it is honoured for it reveals in advance the coming glory of the Master’s Assumption.
 
@@ -142,7 +143,8 @@ Let heaven and earth to-day radiantly be glad, for Christ has appeared in flesh 
 
 ****
 
-At the Aposticha Resurrection Sticheron from the Oktoichos. Tone 4.
+At the Aposticha Resurrection Sticheron from the Oktoichos.
+Tone 4.
 
 Lord, by ascending the Cross you wiped out our ancestral curse, and by descending into Hell you freed those enchained from every age, granting incorruption to the human race; therefore with hymns we glorify your life-giving and saving Rising.
 
@@ -198,7 +200,8 @@ AT MATINS
 
 ****
 
-After the 1st Psalter reading Kathismata from the Oktoichos. Tone 4.
+After the 1st Psalter reading Kathismata from the Oktoichos.
+Tone 4.
 
 As they looked at the entrance of the tomb and were unable to endure the bright flame of the Angel, the Myrrh-bearing women trembled with amazement and said, ‘Can the One who opened Paradise to the Thief have been stolen? Can he who before his passion proclaimed his Rising have been raised? Truly Christ God has risen, granting those in Hell life and resurrection’.
 
@@ -298,7 +301,8 @@ Let everything that has breath**. The 7th Resurrection Gospel etc.**
 
 The Canons, of Pascha with that of the Mother of God to 6, of Mid-Pentecost to 4 and of the Samaritan Woman to 4.
 
-Canon of Pascha. Tone 1. Ode 1. Irmos.
+Canon of Pascha. Tone 1. Ode 1.
+Irmos.
 
 ‘The day of Resurrection, let us be radiant, O peoples: Pascha, the Lord’s Pascha; for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song’.
 
@@ -312,7 +316,9 @@ Let the heavens as is fitting rejoice, and let the earth be glad, let the whole 
 
 ****
 
-Canon of the Mother of God. Tone 1. The Acrostic in the first Troparia: T h e o p h a n. Ode 1. The same Irmos.
+Canon of the Mother of God. Tone 1.
+The Acrostic in the first Troparia: T h e o p h a n.
+Ode 1. The same Irmos.
 
 he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
 
@@ -320,7 +326,8 @@ Having seen your Son and God risen from the dead, you rejoice with the Apostles,
 
 ****
 
-Canon of Mid-Pentecost. Tone 8. Ode 1. You fixed the sea.
+Canon of Mid-Pentecost.
+Tone 8. Ode 1. You fixed the sea.
 
 Nations clap your hands, Hebrews lament, for Christ the giver of life has torn asunder the chains of Hell, and raised the dead, and healed the sick with a word. This is our God, who gives life to those who believe in his name.
 
@@ -336,7 +343,8 @@ You alone, Mother of God, contained your creator in your womb and inexpressibly 
 
 ****
 
-Canon of the Samaritan Woman. Tone 4. With an acrostic in the 9th Ode: J o s e p h.
+Canon of the Samaritan Woman. Tone 4.
+With an acrostic in the 9th Ode: J o s e p h.
 
 Composition of Joseph of Thessaloniki.
 
@@ -440,7 +448,8 @@ Katavasia.
 
 Come let us drink. ****
 
-Kontakion of Mid-Pentecost. Tone 4. Lifted up on the Cross.
+Kontakion of Mid-Pentecost.
+Tone 4. Lifted up on the Cross.
 
 At the mid-point of the feast according to the law, O Christ God, Maker of all things and Master, you said to those before you: Come, and draw the water of immortality: therefore we fall down before you and with faith we cry: Grant us your mercies, for you are the source of our life.
 
@@ -690,7 +699,8 @@ On the same day, the fifth Sunday from Easter, we celebrate the feast of the Wom
 
 Verses.
 
-Water that perishes you came to take, The living drew, with which you wash soul’s filth.
+Water that perishes you came to take,
+The living drew, with which you wash soul’s filth.
 
 Through the intercessions of your Martyr Photeini, Christ our God, have mercy on us. Amen.
 
@@ -1004,6 +1014,7 @@ Before the First Hour the Eothinon. Tone 7.
 
 Lo, darkness and early dawn. And why, Mary, are you standing by the grave, your mind full of darkness? Why do you seek where Jesus has been laid? But see the disciples running together, see how they have realised the Resurrection from the grave clothes and the napkin, and have remembered the Scripture concerning this. With whom and through whom we too have believed and sing your praise O Christ, the Giver of Life.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

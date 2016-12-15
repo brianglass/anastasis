@@ -2,13 +2,15 @@
 
  
 
-**The Canon of the Cross, of which the Acrostic is:** We all praise the Tree that should be worshipped.
+**The Canon of the Cross, of which the Acrostic is:
+**We all praise the Tree that should be worshipped.
 
 ****
 
 A Composition by Joseph.
 
-Ode 1. Tone 8. The wonderworking rod of Moses.
+Ode 1. Tone 8.
+The wonderworking rod of Moses.
 
 Let us today with pure mind and devout intent worship the life-bearing Cross of the Lord; for it is set forth granting to those who approach it sanctification and salvation, illumination, glory and mercy.
 
@@ -134,6 +136,7 @@ Cross-Theotokion.
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

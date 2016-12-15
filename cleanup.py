@@ -3,6 +3,8 @@ import multiprocessing
 import os.path
 import pipes
 
+from urllib.parse import urlunparse, urlparse
+
 from lxml import etree, html
 from lxml.html import clean
 
@@ -19,9 +21,9 @@ def replace_tag(old_element, new_element):
 
 def remove_empty(node):
     def recursively_empty(e):
-       if e.text and e.text.strip():
-           return False
-       return all((recursively_empty(c) for c in e.iterchildren()))
+        if e.tag == 'br' or e.text and e.text.strip():
+            return False
+        return all((recursively_empty(c) for c in e.iterchildren()))
 
     for action, elem in etree.iterwalk(node):
         if recursively_empty(elem):
@@ -52,24 +54,24 @@ def transform(filename):
         href = node.get('href')
 
         try:
-            basename, extension = href.split('.')
+            parsed_url = urlparse(href)
+            path, filename = os.path.split(parsed_url.path)
+            basename, extension = filename.split('.')
+            hostname = parsed_url.hostname
         except ValueError:
             continue
         else:
-            if extension.startswith('htm'):
-                node.set('href', '{}.{}'.format(basename, 'md'))
+            if hostname and hostname.startswith('anastasis'):
+                hostname = None
 
-    # Convert footnotes to MD references
-    # for node in tree.xpath('//div[@style="mso-element:footnote-list"]//p[@class="MsoFootnoteText"]'):
-    #     try:
-    #         link = node.xpath('descendant::a')[0]
-    #         number = etree.tostring(link, method='text', encoding='unicode').strip('[]')
-    #         link.getparent().remove(link)
-    #         span = html.Element('span')
-    #         span.text = '[{}]:'.format(number)
-    #         node.insert(0, span)
-    #     except IndexError:
-    #         pass
+            if extension.startswith('htm'):
+                if path:
+                    new_path = '{}{}.{}'.format(path, basename, 'md')
+                else:
+                    new_path = '{}.{}'.format(basename, 'md')
+
+                new_url = '', '', new_path, '', '', parsed_url.fragment
+                node.set('href', urlunparse(new_url))
 
     # Pandoc passes this through, cluttering up the final markdown. Must come
     # after footnore rewriting.

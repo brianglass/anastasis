@@ -661,10 +661,12 @@ Taking refuge in your help, O Mother of God, as in a sheltered haven we are save
 
 **In Cyprus and in some other places, on the first Sunday of October the feast of All Saints of Cyprus is celebrated.**
 
-**Apolytikion for the Saints of Cyprus Tone 1. Citizen of the desert.**
+**Apolytikion for the Saints of Cyprus
+Tone 1. Citizen of the desert.**
 
 The Saints of Cyprus, Apostles and Martyrs, High Priests and Ascetics, let us Cypriots, as is fitting, having formed a new choir, honour with spiritual songs, as glorious adornments and defenders of the isle, as we cry, ‘Glory to the One who made you strong! Glory to the One who crowned you! Glory to the One who through you grants us gifts divine!’
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

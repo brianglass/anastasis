@@ -138,7 +138,8 @@ O God, who gave being to the Powers of heaven by a word, granted grace to Prophe
 
 ****
 
-Of the Saint. Another Irmos. Be my firm foundation. Στερέωμά μου.
+Of the Saint. Another Irmos.
+Be my firm foundation. Στερέωμά μου.
 
 As you offer intercessions for the whole world, save us from every necessity and ten thousand troubles, holy Nicholas.
 
@@ -176,7 +177,8 @@ Chosen Mother of God, intercede with the sacred Apostles, the Martyrs and Prophe
 
 ****
 
-Of the Saint. Another Irmos. Christ God, the virtue. Ἐκάλυψεν οὐρανούς.
+Of the Saint. Another Irmos.
+Christ God, the virtue. Ἐκάλυψεν οὐρανούς.
 
 By your wisdom, Nicholas, you blinded the mind of Arius, made dark by heresy and so saved those led by him into error.
 
@@ -212,7 +214,8 @@ Lord my God, born of a Maiden who knew not wedlock, at her supplications and tho
 
 ****
 
-Of the Saint. Another Irmos. At dawn my spirit rises. Ὀρθρίζει τὸ πνεῦμά μου.
+Of the Saint. Another Irmos.
+At dawn my spirit rises. Ὀρθρίζει τὸ πνεῦμά μου.
 
 The purposes of savage men, which are ever directed against us, render ineffectual, Father Nicholas, by your intercessions.
 
@@ -250,7 +253,8 @@ Mother of the light, enlighten my soul, darkened by the passions, and entreat, w
 
 ****
 
-Of the Saint. Another Irmos. Jonas cried out. Ὁ Ἰωνᾶς ἐκ κοιλίας.
+Of the Saint. Another Irmos.
+Jonas cried out. Ὁ Ἰωνᾶς ἐκ κοιλίας.
 
 You set at naught the unjust sentence of death, and by your compassion you saved those condemned to die, O Father, as the fervent defender of those who call on you.
 
@@ -288,7 +292,8 @@ All-spotless, with Martyrs, Angels, Saints and Apostles, implore your Son and Lo
 
 ****
 
-Of the Saint. Another Irmos. The Youths of old. Κάμινον καιομένην.
+Of the Saint. Another Irmos.
+The Youths of old. Κάμινον καιομένην.
 
 Wise Hierarch you became an ornament of the Church: deliver me from all the disorder of disgraceful passions, ever pleading with the Benefactor of the whole world.
 
@@ -326,7 +331,8 @@ When you bore the fire you were preserved unburned, Virgin who knew not wedlock,
 
 ****
 
-Of the Saint. Another Irmos. Imitating the Youths. Τοὺς ἐν καμίνῳ.
+Of the Saint. Another Irmos.
+Imitating the Youths. Τοὺς ἐν καμίνῳ.
 
 All-holy Nicholas, your body breathing myrrh lies in Myra, pours forth myrrh for those who have recourse to you and stops mankind’s diseases.
 
@@ -366,7 +372,8 @@ The choirs of Martyrs and Apostles have you in the midst as the brightest lamp, 
 
 ****
 
-Of the Saint. Another Irmos. The Mother beyond nature. Τὴν ὐπὲρ φύσιν.
+Of the Saint. Another Irmos.
+The Mother beyond nature. Τὴν ὐπὲρ φύσιν.
 
 Having followed in the footsteps of the ways of the holy Apostles, you inherited their authority as an honoured Hierarch, holy Nicholas.
 
@@ -398,10 +405,12 @@ Breathing as one, looking to one end the victorious Martyrs found one road of li
 
 Glory. Both now.
 
-**Theotokion.** **Today Judas watches. Σήμερον γρηγορεῖ.**
+**Theotokion.***
+***Today Judas watches. Σήμερον γρηγορεῖ.**
 
 Alas, I have became a haunt of pleasures, wretch that I am! Therefore I ever appear a laughing-stock to my foes; therefore I fall down before you, holy Virgin; see my tribulation, offer me help, cleanse me by tears and deliver me, I pray, O Pure one, and let those who rejoice at my destruction be put to shame.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

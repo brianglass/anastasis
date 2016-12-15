@@ -18,7 +18,8 @@ canon of the akathist
 
 A Composition of Joseph the Hymnographer
 
-<span style="color:red">The Acrostic, without the Irmi, is:</span> Vessel of joy, to you alone ‘Hail!’ belongs.
+<span style="color:red">The Acrostic, without the Irmi, is:</span>
+Vessel of joy, to you alone ‘Hail!’ belongs.
 
 <span style="color:red">Ode 1. Tone 4. Irmos. </span>
 
@@ -237,6 +238,7 @@ Spare your inheritance, O God, disregarding all our sins. For this you have inte
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

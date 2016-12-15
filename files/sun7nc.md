@@ -4,7 +4,8 @@
 
 AT THE MIDNIGHT OFFICE
 
-**Canon to the Trinity, of which the Acrostic is:** I praise you, O Trinity, nature that rules as one.
+**Canon to the Trinity, of which the Acrostic is:**
+I praise you, O Trinity, nature that rules as one.
 
 ****
 
@@ -46,7 +47,8 @@ Have mercy, holy Trinity, on your servants who have sinned, and receive them, O 
 
 Glory. Both now.
 
-**Theotokion. The same.**
+**Theotokion.
+The same.**
 
 Do good, all-pure Mother of God, to our souls that have been ruined by sins; and ransom from faults those who sing your praise, O Bride of God.
 
@@ -100,7 +102,8 @@ The Word, born from the Sun, the Father by an ineffable word as another Sun befo
 
 ****
 
-Kathismata. More luminous than fire.
+Kathismata.
+More luminous than fire.
 
 Consubstantial Trinity, three-personned Unity, have mercy on those you fashioned, burning up, O Immortal, the vices of the those who fall and enlightening the hearts of those who sing the praise of your compassion. Our God, glory to you.
 
@@ -160,6 +163,7 @@ Taking from your most pure womb, O Mother of God, mind and soul and the matter o
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

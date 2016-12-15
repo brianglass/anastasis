@@ -17,9 +17,11 @@ MEMBERS Of The New Church Council
 
 **David Griffiths, Assistant Secretary.**
 
-**Members: Kyprianos Prodromou, Michales Christofi, Ioannis Ioakeim, Christrophoros Ignatiou, Nektarios Karayiannis, Soterios Charalambou, Georghios Asiminios and Panayiotis Georghiou.**
+**Members:
+Kyprianos Prodromou, Michales Christofi, Ioannis Ioakeim, Christrophoros Ignatiou, Nektarios Karayiannis, Soterios Charalambou, Georghios Asiminios and Panayiotis Georghiou.**
 
-**Auxiliary Personnel: Paraschos Anastasiades, Administrator,**
+**Auxiliary Personnel:
+Paraschos Anastasiades, Administrator,**
 
 **Marios Miniades, Legal Adviser,**
 
@@ -29,6 +31,7 @@ MEMBERS Of The New Church Council
 
 [Home](index.md)
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 25 January 2007**

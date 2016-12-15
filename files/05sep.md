@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](sep-int.md) \] \[ [Short Synaxarion](syn-sep01.md) \] \[ [Environment](environm.md) \] \[ [1 September Vespers](sep01e.md) \] \[ [1 September Matins & Liturgy](sep01ml.md) \] \[ 5 September \] \[ [6 September](6_september.md) \] \[ [7 September](07sep.md) \] \[ [13 September](13sep.md) \] \[ [15 September](15_september.md) \] \[ [23 September](23sept.md) \] \[ [24 September](24sept.md) \] \[ [26 September](26_september.md) \]
 
-**Commemoration of the holy Prophet Zachary, father of the Forerunner.**
+**Commemoration of the holy Prophet Zachary,
+father of the Forerunner.**
 
 AT VESPERS
 ----------
@@ -39,7 +40,8 @@ When the sun saw you, O Lord, the Sun of righteousness, hanged upon the tree it 
 
 ****
 
-At the Aposticha, Prosomia. Tone 8. O Marvellous wonder!
+At the Aposticha, Prosomia.
+Tone 8. O Marvellous wonder!
 
 O marvellous wonder! The Archangel, who stands in God’s presence in the highest, brings the good tidings of the conception of the Forerunner in old age from barrenness to Zachary, the godly-minded minister. O your inexpressible providence, Master! Through which, O Christ, save our souls, for you alone are compassionate.
 
@@ -227,7 +229,9 @@ On the 5th of the same month, Commemoration of Zachary the Prophet and Father of
 
 Verses
 
-Slaughtered just like a lamb was Zachary Within the Temple for the Lamb of God; Zachary then on the fifth on the Temple’s pavement was slaughtered.
+Slaughtered just like a lamb was Zachary
+Within the Temple for the Lamb of God;
+Zachary then on the fifth on the Temple’s pavement was slaughtered.
 
 On the same day Saint Abdaios met his end, beaten with rods of thorns.
 
@@ -235,7 +239,8 @@ On the same day Saint Abdaios met his end, beaten with rods of thorns.
 
 Verses
 
-Martyr Abdaios rods of thorn endures, Honours his Master who was crowned with thorns.
+Martyr Abdaios rods of thorn endures,
+Honours his Master who was crowned with thorns.
 
 On the same day Commemoration of the holy Martyrs Medimnos, Urban, Theodore and with them eighty Priests and Levites, that is Deacons.
 
@@ -243,11 +248,14 @@ On the same day Commemoration of the holy Martyrs Medimnos, Urban, Theodore and 
 
 Verses
 
-Passing through fire and water, like the Psalm, Says Medimnos, I go to find repose.
+Passing through fire and water, like the Psalm,
+Says Medimnos, I go to find repose.
 
-With Urban too, great Theodore as well With Medimnos the selfsame contest wins.
+With Urban too, great Theodore as well
+With Medimnos the selfsame contest wins.
 
-Of consecrated ministers eighteen ‘Gainst fire and water steadfastly endure.
+Of consecrated ministers eighteen
+‘Gainst fire and water steadfastly endure.
 
 On the same day Commemoration of Saint Peter of Athira.
 
@@ -331,6 +339,7 @@ Virgin Mother, the things fulfilled in shadow by the former Law and image have p
 
 And the rest as usual, and Dismissal.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

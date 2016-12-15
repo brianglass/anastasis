@@ -63,7 +63,8 @@ Salvation is of the Lord, and your blessing upon your people.
 
 **Verse: Lord, why have those who afflict me been multiplied?**
 
-The Reading is from Genesis. **1:1-13**
+The Reading is from Genesis.
+**1:1-13**
 
 In the beginning God made
 
@@ -387,6 +388,7 @@ It is to be noted that on all Fridays of the holy and great Lent, at Vespers and
 
 Let my prayer, **the 3 after the Entrance of the Holy Gifts, and the 3 at** Blessed be the name of the Lord. **At Compline we sing the Canons of Repose of the current Tone in the Cemetery. The Canons of the Menaion, that is, of the current Saturday and Sunday we sing whenever the Ecclesiarch decides; the one we sing at Compline on Friday, the other at Compline on Sunday. This we do on all Friday evenings of the holy and great Lent.**
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

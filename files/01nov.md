@@ -107,7 +107,8 @@ With hymns I honour the wise Unmercenaries.
 
 ****
 
-A composition of John of Damascus. Ode 1. Tone 1.
+A composition of John of Damascus.
+Ode 1. Tone 1.
 
 \[‘All peoples, let us sing a hymn of victory to him who rescued Israel from the bitter slavery of Pharaoh, and guided them in the depth of the sea dryshod, for he has been glorified’.\]
 
@@ -257,7 +258,9 @@ On the 1st of the same month, Commemoration of the holy and Unmercenary Wonderwo
 
 Verses.
 
-Though they have passed from earth, Unmercenary pair, They fill the earth with wonders now as then. Two healing lights from the earth fly up on the first of November.
+Though they have passed from earth, Unmercenary pair,
+They fill the earth with wonders now as then.
+Two healing lights from the earth fly up on the first of November.
 
 On the same day Commemoration of the holy Martyrs Kyriaina and Juliani.
 
@@ -265,9 +268,11 @@ On the same day Commemoration of the holy Martyrs Kyriaina and Juliani.
 
 Verses.
 
-Kyriaina in fire breathed her last, So honoured the great Lord of all that breathes.
+Kyriaina in fire breathed her last,
+So honoured the great Lord of all that breathes.
 
-Aflame, O Saviour, with her love for you, Juliani that flame from fire now bears.
+Aflame, O Saviour, with her love for you,
+Juliani that flame from fire now bears.
 
 On the same day Commemoration of the holy Martyrs Caesarius, Dasios, and five others.
 
@@ -275,7 +280,8 @@ On the same day Commemoration of the holy Martyrs Caesarius, Dasios, and five ot
 
 Verses.
 
-With five companions, lovers of the truth, Lovers of falsehood slay Caesarius.
+With five companions, lovers of the truth,
+Lovers of falsehood slay Caesarius.
 
 On the same day Commemoration of the holy Priest Martyrs, John the Bishop and James the Presbyter.
 
@@ -283,7 +289,8 @@ On the same day Commemoration of the holy Priest Martyrs, John the Bishop and Ja
 
 Verses.
 
-Along with James, the Priest of Christ, a sword John brought, himself a Priest of Christ.
+Along with James, the Priest of Christ, a sword
+John brought, himself a Priest of Christ.
 
 On the same day Commemoration of the holy Martyr Hermingeld.
 
@@ -291,7 +298,8 @@ On the same day Commemoration of the holy Martyr Hermingeld.
 
 Verse.
 
-Washed of the dye of error Hermingeld, Slaughtered is dyed in purple of his gore.
+Washed of the dye of error Hermingeld,
+Slaughtered is dyed in purple of his gore.
 
 The holy Martyrs Cyprian and Juliani attained perfection by fire.
 
@@ -383,7 +391,8 @@ All-immaculate, you bore God the Word of God, when he in his great wisdom accomp
 
 ****
 
-At Lauds we insert 4 idiomel Stichera. Tone 1. By Anatolios.
+At Lauds we insert 4 idiomel Stichera.
+Tone 1. By Anatolios.
 
 You received the grace of remedies from God and heal the sufferings of our souls and bodies without payment, Unmercenaries for the whole world; therefore through you Christ granting believers the gift of good health, reveals you as unerring beacons for the inhabited world; intercede with him that our souls may be saved.
 
@@ -441,6 +450,7 @@ Or Cross-Theotokion.
 
 I cannot bear to see you, my Child, who give awakening to all, sleeping on the Tree, that you may grant to those, who of old fell into a deadly sleep from the fruit of transgression, you may grant divine and saving awakening, the grieving Virgin, whom we magnify.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

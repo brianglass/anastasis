@@ -1,6 +1,7 @@
 \[ [Home](index.md) \] \[ [Up](holyweek.md) \] \[ [Holy Monday](holyMon.md) \] \[ [Holy Tuesday](holyTues.md) \] \[ Holy Wednesday \] \[ [Holy Thursday](holyThu.md) \] \[ [Holy Friday](holyFri.md) \] \[ [Holy Saturday](holy.md) \]
 
-[Matins](HWWed-M.md) [Vespers](HWWed-V.md)
+[Matins](HWWed-M.md)
+[Vespers](HWWed-V.md)
 
 Among the texts for Holy Wednesday I would like to draw attention to two things.
 
@@ -12,6 +13,7 @@ The woman drowned by sin found you, the harbour of salvation. ‘See, one who em
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

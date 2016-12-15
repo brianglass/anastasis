@@ -14,7 +14,8 @@
 
 [Lectionary](lectionary.md)
 
-[Voice of the Fathers](voiceof.md)
+[Voice of the
+Fathers](voiceof.md)
 
 [Songs of the Fathers](songsof.md)
 
@@ -24,6 +25,7 @@
 
 [Obiter Scripta](obiter_scripta.md)
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -10,7 +10,8 @@ After the Six Psalms we sing
 
 The Lord is God, **with its verses, and the Troparion of the Saint of the day. But in the holy Lent, the** Alleluia **with its verses and the Hymns to the Trinity in Tone 1.**
 
-After the 1st reading from the Psalter we sing the following Kathismata of Compunction. Tone 1.
+After the 1st reading from the Psalter we sing the following
+Kathismata of Compunction. Tone 1.
 
 Conceived in iniquities, I the prodigal dare not raise my gaze to the height of heaven, but confident in your love for humankind I cry: O God be merciful to me and save me.
 
@@ -30,7 +31,8 @@ Immaculate Mother of God, blessed in heaven and glorified on earth, hail, Bride 
 
 ****
 
-After the 2nd reading other Kathismata. The soldiers watching.
+After the 2nd reading other Kathismata.
+The soldiers watching.
 
 Hasten to open to me your fatherly embrace; prodigally I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry: I have sinned against you, save me!
 
@@ -44,7 +46,8 @@ The judgement seat is fearful and the judgement just; my deeds are dreadful, but
 
 ****
 
-After the 3rd Reading, Other Kathismata. The soldiers watching.
+After the 3rd Reading, Other Kathismata.
+The soldiers watching.
 
 Foolishly I have gone far from you, O Most Compassionate, and like the Prodigal squandered my life, a slave each day to the irrational passions. But at the prayers of the Angels, accept me, compassionate Father, like the Prodigal child, and save me I implore.
 
@@ -461,6 +464,7 @@ More holy than all the holy Powers, more honourable than all creation, Mother of
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

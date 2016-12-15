@@ -7,7 +7,8 @@ MONTH OF DECEMBER
 
 <span style="letter-spacing:-.1pt"> 1. Of the Holy Prophet Naum. </span>
 
-**If it is not Alleluia, Apolytikion. Tone 2.**
+**If it is not Alleluia,
+Apolytikion. Tone 2.**
 
 <span style="letter-spacing:-.1pt"> As we celebrate the memory of your Prophet Naum, O Lord, through him we beseech you: save our souls. </span>
 
@@ -189,7 +190,8 @@ Lucy, which means in Greek Photini \[‘Light’\], was from Syracuse in Sicily.
 
 The first three suffered under Decius in 250, the rest under Diocletian in 290.
 
-**If it is not Alleluia, Apolytikion. Tone 4. \[Common\]**
+**If it is not Alleluia,
+Apolytikion. Tone 4. \[Common\]**
 
 <span style="letter-spacing:-.1pt"> Your Martyrs, O Lord, by their struggles obtained  crowns of incorruption from you, our God; for with your might they destroyed tyrants, and shattered the feeble insolence of the demons: at their prayers, O Christ God, save our souls. </span>
 
@@ -213,7 +215,8 @@ But when a most savage persecution was launched against the Christians under Had
 
 He was born in Babylon, at the time of the captivity of the Jews. He began to prophesy in Jerusalem after their return, in the days of Zorobabel, in the second year of Darius Hystaspes, king of the Persians, in about 520 BC. His prophecy, divided into two chapters, is ranked twelfth among the Minor Prophets.
 
-**If it is not Alleluia, then Apolytikion. Tone 2. \[Common\]**
+**If it is not Alleluia, then
+Apolytikion. Tone 2. \[Common\]**
 
 <span style="letter-spacing:-.1pt"> As we celebrate the memory of your Prophet Aggaios, O Lord, through him we beseech you: save our souls. </span>
 
@@ -237,11 +240,13 @@ For these reasons the Church celebrates them and Daniel to-day and on the coming
 
 <span style="letter-spacing:-.1pt">Great are the achievements of faith! In the fountain of flame, as by the water of rest, the three holy Youths rejoiced; and the Prophet Daniel was revealed shepherding lions like sheep. At their intercessions, Christ God, save our souls. </span>
 
-**Another, of the Saint. Tone 1. When the tone had been sealed.**
+**Another, of the Saint.
+Tone 1. When the tone had been sealed.**
 
 <span style="letter-spacing:-.1pt"> Let us believers all honour in harmony Dionysios, the offspring of Zakynthos, Leader of Aegina, guardian of the Monastery of the Strophades, as we cry sincerely to him: Save those who with entreaties celebrate your memory and cry to you: Glory to Christ who glorified you; glory to him who made you wondrous; glory to him who granted you to us, an unsleeping advocate. </span>
 
-**Kontakion of the Prophet, after the 3rd Ode. Tone 3. Today the Virgin.**
+**Kontakion of the Prophet, after the 3rd Ode. Tone 3.
+Today the Virgin.**
 
 <span style="letter-spacing:-.1pt">Your pure heart, purified by the Spirit, has become a vessel of radiant prophecy; for you see things far off as close at hand, while when cast into the den you muzzle lions; and so we honour you, blest Prophet, glorious Daniel. </span>
 
@@ -257,7 +262,8 @@ For these reasons the Church celebrates them and Daniel to-day and on the coming
 
 He was from the city of Milan, a Senator by rank and a zealot for the faith of Christ who turned many to the knowledge of God. When the persecution of the Christians was unleashed in the reign of Diocletian and Maximian, he was arrested and pierced with a mass of arrows and his body was battered with cudgels and cut in pieces. He rendered his soul up to God in 288. With him died others, after enduring divers torments. There names are: Marcellinus and Mark, brothers; Tranquilinus and Marcia, their parents; Nikostratos and his wife Zoe; Tiburtius, Claudius, Castolus and Castor.
 
-**If it is not Alleluia then, Apolytikion. Tone 4. \[Common\]**
+**If it is not Alleluia then,
+Apolytikion. Tone 4. \[Common\]**
 
 <span style="letter-spacing:-.1pt"> Your Martyrs, O Lord, by their struggles obtained  crowns of incorruption from you, our God; for with your might they destroyed tyrants, and shattered the feeble insolence of the demons: at their prayers, O Christ God, save our souls. </span>
 
@@ -267,7 +273,8 @@ He was from the city of Milan, a Senator by rank and a zealot for the faith of C
 
 <span style="letter-spacing:-.1pt"> Sunday before the Nativity of Christ </span>
 
-**Resurrection Apolytikion; then the following of the Fathers. Tone 2.**
+**Resurrection Apolytikion; then the following of the Fathers.
+Tone 2.**
 
 <span style="letter-spacing:-.1pt"> Great are the achievements of faith! In the fountain of flame, as by the water of rest, the holy Martyr Theodore rejoiced; for wholly consumed by fire he was offered to the Trinity like sweet bread. At his intercessions, Christ God, save our souls. </span>
 
@@ -301,7 +308,8 @@ He was a disciple of John the Divine and a successor of the Apostles, becoming t
 
 <span style="letter-spacing:-.1pt"> You shared their way of life and you succeeded to the Apostles’ thrones; you found the practice, O God-inspired, to climb the heights of contemplation; rightly proclaiming the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Ignatios; intercede with Christ God that our souls may be saved. </span>
 
-**After the 3rd Ode. Kontakion of the Forefeast. Tone 3. Model Melody.**
+**After the 3rd Ode. Kontakion of the Forefeast. Tone 3.
+Model Melody.**
 
 <span style="letter-spacing:-.1pt"> Today the Virgin is coming to the cave, to give birth ineffably to the eternal Word. Hearing this, dance, O inhabited world! Glorify, with Angels and with Shepherds, him who willed to be made manifest, a little Child, God before the ages. </span>
 
@@ -345,7 +353,8 @@ They came from different towns and villages of the island of Crete and suffered 
 
 She was from Rome, the daughter of most distinguished and noble parents, Philip and Evgenia. Without their knowledge, she took two of her servants, Protas and Hyacinth, and left the house by night. Wearing a man’s clothing and changing her name to Evgenios, she went away with them and lived as a monk in a man’s monastery. All three died as martyrs in the time of Commodus, who reigned from 180-192.
 
-**Eve of the Nativity of Christ. Apolytikion of the Forefeast. Tone 4.**
+**Eve of the Nativity of Christ.
+Apolytikion of the Forefeast. Tone 4.**
 
 <span style="letter-spacing:-.1pt">Mary once, with aged Joseph, went to be enrolled in Bethlehem, for he was of David’s line; and she bore in her womb fruit unsown; the time for the birth was at hand, and there was no room in the inn; but the Cave proved a fair place for the Queen. Christ is born, to raise up his image that before had fallen. </span>
 
@@ -439,7 +448,8 @@ Be entreated by the sufferings, which the Saints endured for you, O Lord; and he
 
 In you, Father, was preserved unimpaired that which is according to the image, for you took up the cross, and you followed Christ; and by your deeds you have taught us to despise the flesh, for it passes away; but to care for the soul, which is a thing immortal; and therefore your spirit, holy Marcellus., rejoices with the Angels.
 
-**Kontakion of the Saints. Tone 8. \[By St Romanos\] When you had fulfilled.**
+**Kontakion of the Saints. Tone 8. \[By St Romanos\]
+When you had fulfilled.**
 
 When the King was born in Bethlehem, Magi came from the East with gifts, led from above by a star; but Herod is troubled and harvests the Infants like wheat; he is grieved because his might will be swiftly destroyed.
 
@@ -461,6 +471,7 @@ There was another Melanie, granddaughter of the one above, being daughter of her
 
  
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

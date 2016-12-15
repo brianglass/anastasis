@@ -1,6 +1,12 @@
 \[ [Home](index.md) \] \[ Liturgical Texts \] \[ [Voice of the Fathers](voiceof.md) \] \[ [Songs of the Fathers](songsof.md) \] \[ [Obiter Scripta](obiter_scripta.md) \] \[ [Manchester Churches](manchester_churches.md) \] \[ [York and Durham](york_and_durham.md) \]
 
-[Paraklitiki](oktoich.md) [Triodion](triodion.md) [Pentecostarion](pentecos.md) [Menaion](menaion.md) [Horologion](horologion.md) [Euchologion](eucholog.md) [Lectionary](lectionary.md)
+[Paraklitiki](oktoich.md)
+[Triodion](triodion.md)
+[Pentecostarion](pentecos.md)
+[Menaion](menaion.md)
+[Horologion](horologion.md)
+[Euchologion](eucholog.md)
+[Lectionary](lectionary.md)
 
 LITURGICAL TEXTS
 ================
@@ -11,6 +17,7 @@ The translations are, in the main, based on the Greek books published by the Apo
 
 I have also made use of the early printed texts, published in Venice, of which Chetham’s Library in Manchester, the oldest free public library in England, has a particularly fine collection, including the Euchologion of 1602, which formed the basis of Patriarch Nikon’s reform of the Russian service books that resulted in the schism of the Old Believers.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -34,7 +34,8 @@ Mother of God, you are the true vine who gave bud to the fruit of life; interced
 
 ****
 
-At the Aposticha, Prosomia. Tone 4. You have given as a sign.
+At the Aposticha, Prosomia.
+Tone 4. You have given as a sign.
 
 Christ, the lover of mankind, drew you out like a pearl from the abyss of the confusion of the world, Apostle Thomas, and through you he enriched those who were in doubt and involved in the poverty of dread deeds. And so we call you blessed and glorify with songs of praise you festive memorial, as we devoutly honour you.
 
@@ -62,7 +63,8 @@ You gazed on the divine mysteries of Christ, Apostle Thomas, and mystically you 
 
 Both now.
 
-**Theotokion. Having placed all your hope.**
+**Theotokion.
+Having placed all your hope.**
 
 When to mind there comes the thought of the dread judgement seat of your Son, All-pure Virgin, and the universal tribunal, I am in despair, trembling and terrified at the examination of my deeds; for they are all worthless and filled with every kind of shame, and truly worthy of darkness and punishment and rejection. See my distress, and see the abasement of my soul, and deliver me from every constraint and punishment.
 
@@ -202,7 +204,8 @@ I will sacrifice to you with a voice of praise, O Lord, the Church cries to you,
 
 ****
 
-Kontakion. Tone 4. Today you have appeared.
+Kontakion. Tone 4.
+Today you have appeared.
 
 Filled with God’s grace, Christ’s Apostle and true servant cried in repentance, ‘You are my God and Lord!’
 
@@ -364,6 +367,7 @@ Great Doxology and Dismissal.
 
 At the Liturgy, the Typika and rest as usual.
 
-All texts and translations on this page are copyright to Archimandrite Ephrem ©
+All texts and translations on this page are copyright to
+Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**
