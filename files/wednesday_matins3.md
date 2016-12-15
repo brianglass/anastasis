@@ -18,7 +18,7 @@ By your precious blood you have redeemed us from the curse of the law; nailed to
 
 Verse:
 
-** Exalt the Lord our God, and fall down before his footstool, for he is holy. ****
+Exalt the Lord our God, and fall down before his footstool, for he is holy. ****
 
 Model Melody
 
@@ -50,8 +50,7 @@ The Jews nailed you to a Cross, O Saviour, through which you summoned us of old 
 
 Glory. Both now.
 
-**Cross-Theotokion.
-The same.**
+**Cross-Theotokion. The same.**
 
 When your Mother without bridegroom saw you lifted up on the Cross, with bitter grief she cried out thus: What is this new and strange and marvellous wonder? How has a lawless people nailed to the Cross you, the only Giver of life, my sweetest light?
 
@@ -67,7 +66,7 @@ When I had fallen terribly in Paradise by the bitter advice of the slayer of mor
 
 Verse:
 
-** God is wonderful in his Saints, the God of Israel.
+God is wonderful in his Saints, the God of Israel.
 
 Clothed as in purple and fine linen with the blood of your Martyrs throughout the world, your Church cries out to you through them, Christ God: Send down your pity on your people; grant peace to your commonwealth and to our souls your great mercy.
 
@@ -432,9 +431,6 @@ Both now.
 
 When you saw your Son and God willingly hanged on a cross, O Most Pure, you were amazed and weeping you said: How has your beauty set, O Lord, who made the universe beautiful? Why has an ungrateful people repaid you like this for your blessings? Glory, O Word, to your supreme loving kindness.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

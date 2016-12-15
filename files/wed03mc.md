@@ -1,7 +1,5 @@
 ï»¿
 
-[](tone3.md)
-
 \[ [Home](index.md) \] \[ [Up](tone4.md) \] \[ [Saturday Evening](sat4ec.md) \] \[ [Sunday Midnight](sun4nc.md) \] \[ [Sunday Matins and Liturgy](sun4mc.md) \] \[ [Monday Matins](monday_matins2.md) \[ [Tuesday Matins](tuesday_matins3.md) \] \[ Wednesday Matins;\] \[ [Thursday Matins](thursday_matins4.md) \] \[ [Friday Matins](friday_matins1.md) \] \[ [Saturday Matins](saturday_matins.md) \] \[ [Weekday Vespers](weekday_vespers3.md) \]
 
 <span style="font-size:24.0pt font-family:&quot;Palatino Linotype&quot;;
@@ -11,8 +9,8 @@ font-weight:normal">ON WEDNESDAY MORNING</span>
 AT MATINS
 ---------
 
-<span class="style13">After the 1st reading from the Psalter Kathismata of the Cross. Mode 3.</span><span class="style13"></span>
----------------------------------------------------------------------------------------------------------------------------------
+<span class="style13">After the 1st reading from the Psalter Kathismata of the Cross. Mode 3.</span>
+----------------------------------------------------------------------------------------------------
 
 A Cross was fixed on earth and touched the heavens, not that the tree reached the heights, but you, who were on it, filled the universe. Lord, glory to you!
 

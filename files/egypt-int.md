@@ -4,18 +4,14 @@
 
  
 
-DISCOURSES OF EXHORTATION
-TO THE MONKS OF EGYPT
-=========================
+DISCOURSES OF EXHORTATION TO THE MONKS OF EGYPT
+===============================================
 
 Introductory Note
 -----------------
 
 For this series of fifty *Exhortations* see DS iv (1960) col. 812. They were known to St Photios (*Bibliotheca* 196, PG 103:657-660). In Assemani they are in II/72f-186c. In their present form they are certainly not authentic. There is some internal evidence that they are Egyptian in origin. In the notes O = Thwaites’s edition (Oxford 1709), R = Assemani’s (Rome 1743) and T = Phrantzolas’ (Thessaloniki 1990).
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

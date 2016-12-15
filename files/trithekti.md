@@ -8,11 +8,11 @@ About the 3rd hour the lamplighter sounds the iron simandron and we gather in th
 
 Priest:
 
-** Blessed is our God, always, now and for ever, and to the ages of ages. ****
+Blessed is our God, always, now and for ever, and to the ages of ages. ****
 
 Reader
 
-** \[**in Athonite use the Superior**\]: Amen. Glory to you, our God, glory to you.
+\[**in Athonite use the Superior**\]: Amen. Glory to you, our God, glory to you.
 
 Heavenly King, Paraclete, Spirit of truth, present everywhere, filling all things, Treasury of blessings and Giver of life, come and dwell in us, cleanse us from every stain, and, O Good One, save our souls.
 
@@ -20,7 +20,7 @@ Heavenly King, Paraclete, Spirit of truth, present everywhere, filling all thing
 
 Reader:
 
-** Holy God, Holy Strong, Holy Immortal, have mercy on us (**x3**).
+Holy God, Holy Strong, Holy Immortal, have mercy on us (**x3**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -38,11 +38,9 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Reader:
 
-** Amen. Lord, have mercy (**x12**), Glory. Both now.
+Amen. Lord, have mercy (**x12**), Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -122,7 +120,7 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest
 
-: ** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+: For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 Reader:
 
@@ -158,11 +156,11 @@ Lord, have mercy. (
 
 Priest:
 
-** May God take pity… ****
+May God take pity… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
-** All-holy Trinity, Our Father. For yours. Lord, have mercy (***x12***) **and the Superior says the following**
+All-holy Trinity, Our Father. For yours. Lord, have mercy (***x12***) **and the Superior says the following**
 
 Prayer of St Mardarios
 
@@ -174,9 +172,7 @@ The Lamplighter, making the customary bow to the Superior leaves and strikes the
 
 SIXTH HOUR
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us fall down and worship before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us fall down and worship before Christ himself, the King, our God.
 
 ****
 
@@ -258,7 +254,7 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 Reader:
 
@@ -302,11 +298,11 @@ Lord, have mercy. (
 
 Priest:
 
-** May God take pity… ****
+May God take pity… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
-** All-holy Trinity, Our Father. For yours. Lord, have mercy (**x12**) **and the Superior says the following** ****
+All-holy Trinity, Our Father. For yours. Lord, have mercy (**x12**) **and the Superior says the following** ****
 
 Prayer of St Basil the Great
 
@@ -324,9 +320,6 @@ And Dismissal.
 
 It is to be noted that after the Dismissal we leave the Church and go off to our cells with stillness; it is not allowed to have conversations with one another, for they have been forbidden by the holy Fathers, and we ought to observe this after every assembly.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -28,8 +28,7 @@ Come, believers, having gained Mary the Mother of God as an unbreachable wall, l
 
 ****
 
-After the 2nd reading other Kathismata.
-The soldiers watching.
+After the 2nd reading other Kathismata. The soldiers watching.
 
 Hasten to open to me your fatherly embrace; like the Wastrel I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry, ‘I have sinned against you, save me!’
 
@@ -37,21 +36,19 @@ Hasten to open to me your fatherly embrace; like the Wastrel I have squandered m
 
 Verse:
 
-** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
+Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
 The judgment seat is fearful and the judgment just; my deeds are dreadful, but, O Merciful, speedily save me and rescue me from punishment; deliver me, Master, from the portion of the goats, to stand me on your right hand, Judge most just.
 
 Glory. Both now.
 
-**Theotokion.
-Same melody.**
+**Theotokion. Same melody.**
 
 Put away, my soul, the sleep of sloth and light the bright lamp of repentance, and now go out, bidding farewell to the confusion of life, to meet the immortal Bridegroom, saying, ‘Accept and do not reject me, O Word, at the supplications of the one who gave you birth’.
 
 ****
 
-After the 3rd Reading, Other Kathismata.
-The soldiers watching.
+After the 3rd Reading, Other Kathismata. The soldiers watching.
 
 John, who of old baptized in Jordan’s streams the Purification of all the world, draw me out, who am drowned by many offences, and wash me clean of every kind of stain, as you ever entreat the Lover of humankind as an acceptable intercessor.
 
@@ -61,15 +58,13 @@ Verse:
 
 God is wonderful in his Saints, the God of Israel. ****
 
-Of the Martyrs.
-When the stone had been sealed.
+Of the Martyrs. When the stone had been sealed.
 
 As good soldiers, believing with one accord, not trembling before the threats of tyrants, you fervently drew near to Christ, O Saints, having taken up the precious Cross, and having finished your course, you received victory from heaven. Glory to him who gave you strength; glory to him who crowned you; glory to him who through you grants healings to all.
 
 Glory. Both now.
 
-**Theotokion.
-The soldiers watching.**
+**Theotokion. The soldiers watching.**
 
 John, leaping in his mother’s womb, by grace recognised God being carried in your womb, pure Virgin, and faithfully worshipped. But I implore you, O Virgin, with the Forerunner, entreat the Word, to whom you gave a body, that your servant may be saved.
 
@@ -113,8 +108,7 @@ As a throne formed of fire you bear the Creator; as a living bridal chamber and 
 
 ****
 
-Another Canon, to the honoured Forerunner,
-of which the Acrostic is:
+Another Canon, to the honoured Forerunner, of which the Acrostic is:
 
 Listen to the voice of those who cry to you, blest Saint. Joseph. ****
 
@@ -564,16 +558,12 @@ These soldiers of the great King opposed the decrees of tyrants, nobly despised 
 
 Glory. Both now.
 
-**Theotokion.
-All-praised Martyrs.**
+**Theotokion. All-praised Martyrs.**
 
 Virgin all-praised, Moses with prophetic eyes saw the mystery that is in you, the bush that though in flames was unburned. For the fire of the Godhead did not burn up your womb, pure Maiden. And so we ask you, as Mother of our God, to grant peace to the
 
 world.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 25 January 2007**

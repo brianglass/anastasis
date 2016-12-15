@@ -4,9 +4,7 @@
 
 SUNDAY OF ANTIPASCHA
 
-**OR
-** **THE HANDLING
-BY THE HOLY APOSTLE THOMAS**
+**OR** **THE HANDLING BY THE HOLY APOSTLE THOMAS**
 
 AT GREAT VESPERS
 
@@ -16,8 +14,7 @@ After the blessing by the priest,
 
 Christ has risen from the dead **(x3), the Introductory Psalm and the first Kathisma of the Psalter. At** Lord I have cried **we insert 10 stichera and we sing the following 6 Idiomels, doubling the first 4.**
 
-Composed by John the Monk
-Tone 1
+Composed by John the Monk Tone 1
 
 When the doors were shut and the Disciples assembled, you suddenly entered O All powerful One, Jesus, our God. You stood in their midst, gave them peace and filled them with the Holy Spirit. You ordered them to remain and on no account to leave Jerusalem until they had been clothed with power from on high. Therefore we cry to you: Our Illumination, our Resurrection and our Peace, glory to you’. (
 
@@ -53,8 +50,7 @@ Entrance.
 
 O Joyful Light. **Prokeimenon of the day:** The Lord is King**.**
 
-At the Liti, Idiomel Stichera.
-Tone 4.
+At the Liti, Idiomel Stichera. Tone 4.
 
 O Lord, when doors were shut you came in the unbearable blaze of your godhead and standing among your Disciples you bared your side. You showed them the scars of the wounds in your hands and feet, and banishing their dejection you cried out clearly: ‘The way you see me, my friends, I bear, not a spirit’s nature, but the flesh which I assumed’. To the doubting Disciple, ‘you were ready to handle me with dread’, he said, ‘you investigate all things, come then, do not hesitate’. But he, sensing with his hand your double being, with fear cried out in faith: ‘My Lord and my God, glory to you.’
 
@@ -66,15 +62,13 @@ Tone 8.
 
 Glory. Both now.
 
-**Tone 8.
-By Anatolios.**
+**Tone 8. By Anatolios.**
 
 When the doors were shut and the Disciples assembled, the Saviour came where they were gathered; and standing among them he says to Thomas: ‘Come, handle me, and see the marks of the nails; stretch out your hand and touch my side, and be not faithless, but with faith proclaim my Resurrection from the dead.’
 
 ****
 
-At the Aposticha. Idiomel Stichera.
-Tone 4.
+At the Aposticha. Idiomel Stichera. Tone 4.
 
 O amazing wonder! Unbelief has engendered firm faith for Thomas, who said ‘Unless I see, I will not believe’, having handled the side, acknowledged as God incarnate the same Son of God: he recognised that he had suffered in the flesh; he proclaimed the risen God and he cried in shining tones ‘My Lord and my God, glory to you’.
 
@@ -124,15 +118,13 @@ The Six Psalms. At
 
 The Lord is God**, the usual reading from the Psalter. Instead of Psalm 118 the Polyeleos, because of the feast of the Lord.**
 
-Kathisma after the 1st Psalter reading.
-Tone 1. When the stone was sealed.
+Kathisma after the 1st Psalter reading. Tone 1. When the stone was sealed.
 
 When the disciples were in hiding for fear of the Jews, and gathered in Sion, you came to them, O Good One; and you stood in their midst, the doors being shut, and gave them joy. You showed them your hands and the wounds in your immaculate side as you said to the unbelieving Disciple: Bring your hand here and prove that I am he who suffered for you. (
 
 **x2**) ****
 
-Kathisma after the 2nd Psalter reading.
-Tone 1. The soldiers watching.
+Kathisma after the 2nd Psalter reading. Tone 1. The soldiers watching.
 
 Life came to the Disciples when the doors were shut, O Christ, and you showed them your side and hands and feet, giving firm proof of your Rising from the tomb. But Thomas was not there, and so he said: ‘Unless I see him, I will not believe your words’. (
 
@@ -140,41 +132,7 @@ Life came to the Disciples when the doors were shut, O Christ, and you showed th
 
 Selection at the Polyeleos.
 
-He has put on robes of glory. Alleluia.
-The Lord is king and has put on robes of glory.
-The Lord has put on his glory and girded himself with strength.
-He has made the world so firm that it cannot be moved.
-Who can express the mighty acts of the Lord,
-Or fully voice his praise?
-Let the Lord’s redeemed say so:
-Whom he has redeemed from the hand of the enemy.
-Let them thank the Lord for his goodness,
-And for the wonders that he does for the children of men.
-For he satisfies the thirsty,and fills the hungry with good things.
-Those who sit in darkness and the shadow of death.
-Bound fast in affliction and iron.
-They cried to the Lord in their distress.
-And he took them out of their trouble.
-And he brought them out of darkness and the shadow of death.
-For he shattered the doors of bronze,
-And smashed the bars of iron.
-He took them out of their troubles,
-And broke their chains in two.
-Let them exalt him in the assembly of the people,
-And praise him in the council of the elders.
-For the Lord listens to the poor,
-He does not despise his servants in captivity.
-And let them offer a sacrifice of praise, and tell what he has done with shouts of joy.
-The Lord awoke like a man out of sleep,and struck his enemies.
-For the eyes of the Lord are on those that hope in his mercy.
-To hear the groaning of the prisoner,
-To deliver those condemned to die.
-Let God arise and let his enemies be scattered.
-And let those that hate him flee from before his face.
-This is the day which the Lord has made,let us rejoice and be glad in it.
-Arise, Lord my God,let your hand be exalted.
-Do not forget the poor for ever.
-O Lord my God, I will confess you forever.
+He has put on robes of glory. Alleluia. The Lord is king and has put on robes of glory. The Lord has put on his glory and girded himself with strength. He has made the world so firm that it cannot be moved. Who can express the mighty acts of the Lord, Or fully voice his praise? Let the Lord’s redeemed say so: Whom he has redeemed from the hand of the enemy. Let them thank the Lord for his goodness, And for the wonders that he does for the children of men. For he satisfies the thirsty,and fills the hungry with good things. Those who sit in darkness and the shadow of death. Bound fast in affliction and iron. They cried to the Lord in their distress. And he took them out of their trouble. And he brought them out of darkness and the shadow of death. For he shattered the doors of bronze, And smashed the bars of iron. He took them out of their troubles, And broke their chains in two. Let them exalt him in the assembly of the people, And praise him in the council of the elders. For the Lord listens to the poor, He does not despise his servants in captivity. And let them offer a sacrifice of praise, and tell what he has done with shouts of joy. The Lord awoke like a man out of sleep,and struck his enemies. For the eyes of the Lord are on those that hope in his mercy. To hear the groaning of the prisoner, To deliver those condemned to die. Let God arise and let his enemies be scattered. And let those that hate him flee from before his face. This is the day which the Lord has made,let us rejoice and be glad in it. Arise, Lord my God,let your hand be exalted. Do not forget the poor for ever. O Lord my God, I will confess you forever.
 
 ****
 
@@ -198,8 +156,7 @@ Similar Kathisma after the Polyeleos.
 
 **x2**) ****
 
-The Anavathmi.
-The 1st Antiphon of the 4th Tone. Prokeimenon. Tone 4
+The Anavathmi. The 1st Antiphon of the 4th Tone. Prokeimenon. Tone 4
 
 Praise the Lord, O Jerusalem: sing praises to your God O Sion.
 
@@ -235,9 +192,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 ****
 
-Then the Canon. Tone 1. The Irmi twice and the Troparia up to twelve.
-Composition of John the Monk.
-Ode 1. The Irmos.
+Then the Canon. Tone 1. The Irmi twice and the Troparia up to twelve. Composition of John the Monk. Ode 1. The Irmos.
 
 All peoples let us sing a song of victory to him who rescued Israel from the bitter slavery of Pharao, and guided them dryshod in the depths of the sea, for he has been glorified.
 
@@ -375,8 +330,7 @@ The same day, the second Sunday from Pascha, we celebrate the festival of the Re
 
 Verses.
 
-If key of womb or tomb could not prevent
-Your rising Saviour, how a mere door’s key?
+If key of womb or tomb could not prevent Your rising Saviour, how a mere door’s key?
 
 Through the prayers of your Apostle Thomas, O Christ our God, have mercy upon us. Amen.
 
@@ -454,8 +408,7 @@ Holy is the Lord our God (
 
 **x3**) ****
 
-Exapostilaria. Tone 3.
-He who adorned the heaven with stars.
+Exapostilaria. Tone 3. He who adorned the heaven with stars.
 
 Having examined the wounds in my limbs with your hand, Thomas, do not doubt me, who was wounded for you. Be of one mind with the Disciples and proclaim a living God.
 
@@ -649,9 +602,6 @@ After the prayer of the Ambo,
 
 Blessed be the name of the Lord, **as usual.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

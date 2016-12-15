@@ -1,11 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](songsof.md) \] \[ Canons \] \[ [Kontakia](kontakia.md) \]
 
-[John of Damascus](john-dam.md)
-[Joseph the Hymnographer](jo-hym.md)
-[Kosmas](kosmas.md)
-[Andrew of Crete](and-crete.md)
-[Theophanes](theophan.md)
-[Anonymous](anonymou.md)
+[John of Damascus](john-dam.md) [Joseph the Hymnographer](jo-hym.md) [Kosmas](kosmas.md) [Andrew of Crete](and-crete.md) [Theophanes](theophan.md) [Anonymous](anonymou.md)
 
 **CANONS**
 
@@ -25,9 +20,6 @@ With the exception of the Canon of the Little Paraklesis, none of the texts on t
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

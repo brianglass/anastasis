@@ -32,7 +32,7 @@ Both now.
 
 Then the Theotokion in the Tone of the week from the Octoichos, followed by the Entrance,
 
-** O Joyful Light**, and the Prokeimenon of the day,** ** The Lord is King. ****
+O Joyful Light**, and the Prokeimenon of the day,** The Lord is King. ****
 
 Alphabetic Aposticha from the Octoichos.
 
@@ -50,11 +50,8 @@ Virgin without bridegroom, Mother of God the Most High, who ineffably conceived 
 
 The Apolytikion
 
-** Virgin Mother of God, hail, Mary full of grace **(three times), and the rest of the Vigil.**
+Virgin Mother of God, hail, Mary full of grace **(three times), and the rest of the Vigil.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

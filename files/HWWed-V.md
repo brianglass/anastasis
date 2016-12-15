@@ -14,9 +14,7 @@ Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, no
 
 The appointed monk or the Superior reads the Opening Psalm as follows:
 
-Amen. Come let us worship and fall down before the King, our God.
-Come let us worship and fall down before Christ the King, our God.
-Come let us worship and fall down before Christ himself, the King and our God.
+Amen. Come let us worship and fall down before the King, our God. Come let us worship and fall down before Christ the King, our God. Come let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
@@ -28,9 +26,7 @@ And again
 
 The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit.
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God. (
+Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (
 
 **x3**) ****
 
@@ -94,22 +90,19 @@ KATHISMA EIGHTEEN
 
 ****
 
-Psalm 119
-A Song of Ascents.
+Psalm 119 A Song of Ascents.
 
 When I was afflicted I called to the Lord, and he heard me. O Lord, deliver my soul from unjust lips and from a deceitful tongue. What should be given you, what added to you for a treacherous tongue? The sharpened arrows of the powerful, with the coals of desolation. Alas! For my sojourning has been prolonged, I have camped among the encampments of Kedar. My soul has long been a sojourner. With those who hate peace I was peaceable. When I spoke with them, they made war on me for nothing.
 
 ****
 
-Psalm 120
-A Song of Ascents.
+Psalm 120 A Song of Ascents.
 
 I have lifted up my eyes to the mountains. From where will my help come? My help is from the Lord, who made heaven and earth. Do not let your foot waver. May the One who guards you not slumber. See, the One who guards Israel will neither slumber nor sleep. The Lord will guard you; the Lord is protection for you on your right hand. By day the sun will not scorch you, nor the moon by night. The Lord will guard you from every evil, the Lord will guard your soul. The Lord will guard your coming in, and your going out, from now and for ever more.
 
 ****
 
-Psalm 121
-A Song of Ascents.
+Psalm 121 A Song of Ascents.
 
 I rejoiced at those who said to me, ‘We shall go to the house of the Lord’. Our feet were standing in your courts, O Jerusalem. Jerusalem built as a city, shared by all together. For there the tribes went up, the tribes of the Lord, a testimony for Israel, to give thanks to the name of the Lord. For there thrones were set for judgement, thrones over the house of David. Ask then for the things which are for Jerusalem’s peace, and prosperity for those who love you. May there be peace then in your power and prosperity in your citadels. For the sake of my brethren and neighbours, I have spoken peace concerning you. For the sake of the house of the Lord our God, I have sought good things for you.
 
@@ -123,8 +116,7 @@ I have lifted my eyes to you who dwell in heaven. Behold, as the eyes of servant
 
 ****
 
-Psalm 123
-A Song of Ascents.
+Psalm 123 A Song of Ascents.
 
 If the Lord had not been among us, let Israel now say; if the Lord had not been among us when people rose up against us, they would have swallowed us down alive. When their fury raged against us, the water would have drowned us, our soul would have passed through the torrent, our soul would have passed through irresistible water. Blessed is the Lord, who has not given us as a prey to their teeth. Our soul was delivered like a sparrow from the snare of the hunters. The snare was shattered, and we were delivered. Our help is in the name of the Lord, who made heaven and earth.
 
@@ -170,36 +162,31 @@ People:
 
 Amen. ****
 
-Psalm 124
-A Song of Ascents.
+Psalm 124 A Song of Ascents.
 
 Those who trust in the Lord are like Mount Sion. One who dwells in Jerusalem will be shaken for ever. Mountains encircle her, and the Lord encircles his people from now and for ever. For the Lord will not leave the rod of sinners upon the heritage of the just, lest the just stretch out their hands in iniquities. Do good, Lord, to the good and to the upright in heart. But the Lord will drive away with those who work iniquity, those who turn aside to extortions. Peace upon Israel.
 
 ****
 
-Psalm 125
-A Song of Ascents.
+Psalm 125 A Song of Ascents.
 
 When the Lord turned back the captivity of Sion, we became like those who are comforted. Then our mouth was filled with joy, and our tongue with rejoicing. Then they will say among the nations, ‘The Lord has done great things with them’. The Lord has done great things with us, we have become joyful. Turn back our captivity, O Lord, like streams in the south. Those who sow in tears, will reap in joy. They went, and as they went they wept, while they sowed their seed. But when they come, they will come in joy, carrying their sheaves.
 
 ****
 
-Psalm 126
-A Song of Ascents.
+Psalm 126 A Song of Ascents.
 
 If the Lord does not build the house, the builders have toiled for nothing. If the Lord does not guard the city, the guard has kept vigil for nothing. Your getting up at dawn is for nothing, your rising after sitting, you that eat the bread of sorrow, when he gives sleep to those he loves, see, sons are the Lord’s inheritance, the reward of the fruit of the womb. As arrows in the hand of a powerful man, so are the sons of the rejected. Blessed is one who satisfies his desire with them. They will not be shamed when they speak with their enemies in the gates.
 
 ****
 
-Psalm 127
-A Song of Ascents.
+Psalm 127 A Song of Ascents.
 
 Blessed are all who fear the Lord, who walk in his ways. You will eat the toils of your fruits. You are blest, and it will be well with you. Your wife like a luxuriant vine against the sides of your house; your sons like new olive shoots around your table. See, that is how one who fears the Lord will be blessed. The Lord bless you from Sion, and may you see the good things of Jerusalem all the days of your life. And may you see your children’s children. Peace upon Israel.
 
 ****
 
-Psalm 128
-A Song of Ascents.
+Psalm 128 A Song of Ascents.
 
 Many times they have made war on me since my youth, let Israel now say. Many times they have made war on me since my youth, and yet they have not prevailed over me. The sinners have wrought upon my back, they have prolonged their iniquity. The Lord is just, he has broken the sinners’ necks. Let all those who hate Sion be shamed and turned back. Let them become like grass on the housetops, which withers before it is uprooted. The reaper has not filled his hand with it, nor the one who gathers the sheaves his bosom. Nor have the passers-by said, ‘The Lord’s blessing be on you. We have blessed you in the name of the Lord’.
 
@@ -245,36 +232,31 @@ People:
 
 Amen. ****
 
-Psalm 129
-A Song of Ascents
+Psalm 129 A Song of Ascents
 
 Out of the depths I have cried to you, O Lord. Lord, hear my voice. Let your ears be attentive to the voice of my supplication. If you note our iniquities, Lord, Lord, who will survive? Because forgiveness is with you. For your name’s sake I have waited for you, O Lord; my soul has waited for your word, my soul has hoped in the Lord. From the morning watch until night, from the morning watch, let Israel hope in the Lord. Because with the Lord there is mercy and with him abundant redemption; and he will redeem Israel from all his iniquities.
 
 ****
 
-Psalm 130
-A Song of Ascents
+Psalm 130 A Song of Ascents
 
 Lord, my heart has not been exalted, nor have my eyes become lofty, I have neither walked among great affairs, nor among marvels beyond me. If I had not been humble-minded, but exalted my soul, like a weaned child towards its mother, so you will requite my soul. Let Israel hope in the Lord, from now and for ever.
 
 ****
 
-Psalm 131
-A Song of Ascents
+Psalm 131 A Song of Ascents
 
 Lord remember David and all his meekness, how he swore to the Lord, made a vow to the God of Jacob, ‘I shall not enter the shelter of my house, climb into my bed, I shall not give sleep to my eyes, slumber to my eyelids and rest to my temples, until I find a place for the Lord, a shelter for the God of Jacob’. See, we heard of it in Ephrata, we found it in the woodland fields. We shall enter his tabernacles, we shall worship at the place where his feet have stood. Arise, Lord, into your rest, you and the ark of your sanctification. Your priests will clothe themselves with justice, and your holy ones will rejoice. For David, your servant’s sake, do not turn away the face of your Christ. The Lord has sworn truth to David, and he will not annul it, ‘From the fruit of your womb I shall place on your throne. If your sons keep my covenant and these testimonies of mine which I shall teach them, their sons too will sit on your throne for ever. For the Lord has elected Sion, has chosen her as a dwelling for himself. ‘This is my resting-place for age on age. Here I shall dwell, for I have chosen her. Her door I shall bless abundantly, her poor I shall satisfy with bread. Her priests I shall clothe with salvation, and her holy ones will rejoice with great joy. There I shall make the horn of David flourish. I have prepared a lamp for my Christ. I shall clothe his enemies in shame, my sanctification will flower upon him’.
 
 ****
 
-Psalm 132
-A Song of Ascents
+Psalm 132 A Song of Ascents
 
 See how good and pleasant it is for brethren to dwell together; like sweet ointment on the head, which runs down upon the beard, Aaron’s beard, which runs down to the hem of his garment; like the dew from Hermon, which runs down upon the mountains of Sion; for there the Lord has commanded the blessing: life for ever more.
 
 ****
 
-Psalm 133
-A Song of Ascents
+Psalm 133 A Song of Ascents
 
 Come, now bless the Lord, all you servants of the Lord, who stand in the house of the Lord, in the courts of the house of our God. Lift up your hands by night to the Holy Place, and bless the Lord. The Lord bless you from Sion, he who made heaven and earth.
 
@@ -422,8 +404,7 @@ The harlot mixed the sweet myrrh of great price with tears, poured it over your 
 
 ****
 
-Psalm 129
-8.
+Psalm 129 8.
 
 Out of the depths I have cried to you, O Lord: Lord hear my voice.
 
@@ -495,8 +476,7 @@ Rejected because of her life, well-known because of her ways, she approached you
 
 Glory. Both now.
 
-**Tone 8.
-By the Nun Kassiani.**
+**Tone 8. By the Nun Kassiani.**
 
 Lord, the woman who had fallen into many sins, perceiving your divinity, took up the role of myrrh-bearer, and with lamentation brings sweet myrrh to you before your burial. ‘Alas!’, she says, ‘for night is for me a frenzy of lust, a dark and moonless love of sin. Accept the fountains of my tears, you who from the clouds draw out the water of the sea; bow yourself down to the groanings of my heart, you who bowed the heavens by your ineffable self-emptying. I shall kiss your immaculate feet, and wipe them again with the locks of my hair, those feet whose sound Eve heard at dusk in Paradise, and hid herself in fear. Who can search out the multitude of my sins and the depths of your judgements, my Saviour, saviour of souls? Do not despise me, your servant, for you have mercy without measure’
 
@@ -510,8 +490,7 @@ Wisdom. Stand upright! ****
 
 We say
 
-THE THANKSGIVING
-AT THE LIGHTING OF THE LAMPS
+THE THANKSGIVING AT THE LIGHTING OF THE LAMPS
 
 ****
 
@@ -535,7 +514,7 @@ Give thanks to the God of heaven: for his mercy endures for ever.
 
 Verse:
 
-** Give thanks to the God of gods, for his mercy endures for ever. ****
+Give thanks to the God of gods, for his mercy endures for ever. ****
 
 Priest*:*
 
@@ -543,15 +522,11 @@ Wisdom! ****
 
 Reader:
 
-** The reading is from Exodus. ****
+The reading is from Exodus. ****
 
 Priest:
 
-Let us attend.
-
- 
-
-**
+Let us attend.  
 
 \[
 
@@ -569,7 +544,7 @@ Wisdom! ****
 
 Reader:
 
-** Prokeimenon. Tone 4. Psalm 137.
+Prokeimenon. Tone 4. Psalm 137.
 
 Lord, your mercy is for ever: do not scorn the work of your hands.
 
@@ -581,11 +556,11 @@ I will give thanks to you, O Lord, with my whole heart, and I will sing to you i
 
 Reader:
 
-** Command! ****
+Command! ****
 
 Priest:
 
-** Wisdom! Stand upright!
+Wisdom! Stand upright!
 
 The Light of Christ shines for all!
 
@@ -703,7 +678,7 @@ Reader:
 
 Glory to you, Lord, glory to you! ****
 
-<span id="mon23"></span>Priest:
+Priest:
 
 Let us all say, with all our soul and with all our mind, let us say. ****
 
@@ -1059,8 +1034,7 @@ Now and for ever and to the ages of ages. ****
 
 People:
 
-Amen. Amen. Amen. For forgiveness of sins and everlasting life.
-Let our mouth be filled with your praise, O Lord, that we may sing your glory, for you have allowed us to share in your holy mysteries. Keep us in your holiness, as we meditate on your justice all the day long. Alleluia. Alleluia. Alleluia. ****
+Amen. Amen. Amen. For forgiveness of sins and everlasting life. Let our mouth be filled with your praise, O Lord, that we may sing your glory, for you have allowed us to share in your holy mysteries. Keep us in your holiness, as we meditate on your justice all the day long. Alleluia. Alleluia. Alleluia. ****
 
 Priest:
 
@@ -1128,9 +1102,7 @@ After the prayer behind the Ambo:
 
 Blessed be the name of Lord, from this time forth and for evermore. (
 
-**Prostration**)
-Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**)
-Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**)
+**Prostration**) Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**) Blessed be the name of Lord, from this time forth and for evermore. (**Prostration**)
 
 Glory. Both now.
 
@@ -1150,8 +1122,7 @@ I will bless the Lord at all times, his praise shall always be in my mouth. In t
 
 \[
 
-**Psalm 144
-**I will exalt you, my God, my King; and I will bless your name for ever and to age on age. Every day I will bless you; and praise your name for ever and to age on age. The Lord is great and highly to be praised; and there is no limit to his greatness. Generation after generation will praise your works; and will declare your power. They will tell of the majesty of the glory of your holiness; and will recount your wonders. They will speak of the power of your dread deeds; and will recount your greatness. They will proclaim the memory of the multitude of your goodness; and rejoice in your justice. The Lord is compassionate and merciful; long-suffering and full of mercy. The Lord is good to all; and his acts of compassion are for all his works. May all your works confess you, Lord; and all your holy ones bless you. They will speak of the glory of your kingdom; and tell of your power. To make known your power and of the glory the majesty of your kingdom to the children of mankind. Your kingdom is a kingdom for all the ages, and your dominion for every generation. The Lord is faithful in all his words, and holy in all his works. The Lord supports all who are falling, and sets upright all who are broken down. The eyes of all hope in you, and you give them their food in due season. You open your hand, and fill every living thing with your good pleasure. The Lord is just in all his ways, and holy in all his works. The Lord is close to those who call on him, to all who call on him in truth. He will do the will of those who fear him, and hear their supplication and save them. The Lord guards all who love him, and all sinners he will destroy. My mouth will tell the praise of the Lord, and let all flesh bless his holy name for ever and to age on age.\] ****
+**Psalm 144** I will exalt you, my God, my King; and I will bless your name for ever and to age on age. Every day I will bless you; and praise your name for ever and to age on age. The Lord is great and highly to be praised; and there is no limit to his greatness. Generation after generation will praise your works; and will declare your power. They will tell of the majesty of the glory of your holiness; and will recount your wonders. They will speak of the power of your dread deeds; and will recount your greatness. They will proclaim the memory of the multitude of your goodness; and rejoice in your justice. The Lord is compassionate and merciful; long-suffering and full of mercy. The Lord is good to all; and his acts of compassion are for all his works. May all your works confess you, Lord; and all your holy ones bless you. They will speak of the glory of your kingdom; and tell of your power. To make known your power and of the glory the majesty of your kingdom to the children of mankind. Your kingdom is a kingdom for all the ages, and your dominion for every generation. The Lord is faithful in all his words, and holy in all his works. The Lord supports all who are falling, and sets upright all who are broken down. The eyes of all hope in you, and you give them their food in due season. You open your hand, and fill every living thing with your good pleasure. The Lord is just in all his ways, and holy in all his works. The Lord is close to those who call on him, to all who call on him in truth. He will do the will of those who fear him, and hear their supplication and save them. The Lord guards all who love him, and all sinners he will destroy. My mouth will tell the praise of the Lord, and let all flesh bless his holy name for ever and to age on age.\] ****
 
 Priest:
 
@@ -1201,9 +1172,6 @@ Both now.
 
 At the prayers of all your Saints and of the Mother of God, grant us your peace, Lord, and have mercy on us, for you alone love humankind.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

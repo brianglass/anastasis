@@ -6,17 +6,12 @@ At the end of Matins will be found the text of the Polyeleos for the feast, that
 
 We warmly recommend a most valuable collection of patristic material concerning this feast, On the Dormition of Mary. Early Patristic Homilies, translated by Fr Brian Daley, recently published by [St Vladimir’s Seminary Press](http://www.svots.edu/SVS-Press). It contains a dozen homilies never previously fully translated into English, including the sets of three homilies by St Andrew of Crete and St John of Damascus.
 
-------------------------------------------------------------------------
-
 ON THE 15TH OF THE MONTH
 ========================
 
 <span style="font-size: 12.0pt; font-family: Palatino Linotype">C</span><span style="font-family: Palatino Linotype">ommemoration of the Falling Asleep of our Most Holy Lady, the Mother of God and Ever-Virgin Mary.</span><span style="font-size: 12.0pt; font-family: Palatino Linotype"><a href="#_ftn1" id="_ftnref1"><span style="font-size: 12.0pt; font-family: Palatino Linotype">[1]</span></a></span>
 
  
-
-------------------------------------------------------------------------
-
 <a href="#_ftnref1" id="_ftn1"><span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></a><span style="font-family: Palatino Linotype"> The texts of the feast are based, for the most part, on the apocryphal accounts of the Dormition, of which the most important is the Greek account, attributed to St John the Divine. All the texts state clearly that the Mother of God died a natural death, but that her body was subsequently raised to the glory of heaven. In the Greek account after three days, but in the Coptic after some six months. The story of the Apostles’ being brought to Bethlehem on clouds from the ends of the earth is in the Greek account. The account in the Synaxarion also contains elements that are found in the Latin account. The cryptic allusion to the event in Dionysius the Areopagite’s *De Divinis Nominibus* 3 \[PG3 681-3\] has also influenced some texts.</span>
 
  
@@ -28,13 +23,10 @@ AT SMALL VESPERS
 
 **<span lang="EN-US" style="font-family: Palatino Linotype"> Tone 2. Ðïίïéò åὐöçìéῶí óôέììáóé.</span>**
 
-<span style="font-size: 12.0pt; font-family: Palatino Linotype"> With what lips may we, poor and worthless, call the Mother of God blessed**<a href="#_ftn1" id="_ftnref6">[1]</a>**? She is greater in honour than creation and holier than the Cherubim and all the Angels**<a href="#_ftn2" id="_ftnref2">[2]</a>;** the unshakeable**<a href="#_ftn3" id="_ftnref3">[3]</a>** throne of the King; the house in which the Most High made his dwelling**<a href="#_ftn4" id="_ftnref4">[4]</a>;** the salvation of the world; the Sanctuary**<a href="#_ftn5" id="_ftnref5">[5]</a>** of God; on her memorial she richly grants to all the faithful his great mercy. **(Twice)**</span> ** ****
+<span style="font-size: 12.0pt; font-family: Palatino Linotype"> With what lips may we, poor and worthless, call the Mother of God blessed**<a href="#_ftn1" id="_ftnref6">[1]</a>**? She is greater in honour than creation and holier than the Cherubim and all the Angels**<a href="#_ftn2" id="_ftnref2">[2]</a>;** the unshakeable**<a href="#_ftn3" id="_ftnref3">[3]</a>** throne of the King; the house in which the Most High made his dwelling**<a href="#_ftn4" id="_ftnref4">[4]</a>;** the salvation of the world; the Sanctuary**<a href="#_ftn5" id="_ftnref5">[5]</a>** of God; on her memorial she richly grants to all the faithful his great mercy. **(Twice)**</span> ****
 
  
-
-------------------------------------------------------------------------
-
-<a href="#_ftnref1" id="_ftn6"><span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></a><span style="font-family: Palatino Linotype"> </span><span style="font-family: Palatino Linotype"> **Cf. Luke 1:48.**</span>****
+<a href="#_ftnref1" id="_ftn6"><span style="font-size: 10.0pt; font-family: Palatino Linotype">[1]</span></a> <span style="font-family: Palatino Linotype"> **Cf. Luke 1:48.**</span>
 
 ****
 <a href="#_ftnref2" id="_ftn2"><span style="font-family: Palatino Linotype">[2]</span></a><span style="font-family: Palatino Linotype"> These phrases are a deliberate echo of the well-known troparion, ‘Greater in honour than the Cherubim’, which forms the Irmos the ninth ode of St Kosmas’ Canon for Good Friday.</span>
@@ -95,8 +87,6 @@ In giving birth you retained your virginity; in falling asleep, O Mother of God,
 ****
 
 And Dismissal.
-
-------------------------------------------------------------------------
 
 AT GREAT VESPERS
 ----------------
@@ -185,25 +175,21 @@ Entrance,
 
 O Joyful Light. **Prokeimenon of the day and the Readings.**
 
-The Reading is from Genesis.
-\[**28:10-17\]**
+The Reading is from Genesis. \[**28:10-17\]**
 
 Jacob went out from the well of the oath and journeyed towards Harran. And he lighted on a place and slept there, for the sun had set. And he took one of the stones of the place and put it at his head; and he slept in that place, and he dreamed. And behold, a ladder set up on the earth, whose head reached to heaven; and the Angels of God were going up and going down upon it. But the Lord stood above it and said: ‘I am the God of Abraham, your father, and the God of Isaac, do not be afraid. The land on which you are sleeping I shall give to you and to your seed. And your seed will be like the sand of the earth, and it will be spread abroad to the Sea and Liva and North and East; and in you and in your seed all the tribes of the earth will be blessed. And behold, I am with you, guarding you on every road on which you may journey; and I shall bring you back again to this land, because I shall never abandon you until I have done all that I have said to you’. And Jacob arose from his sleep and said: ‘The Lord is in this place, but I did not know it’. And he was afraid, and said: ‘How fearful is this place! This is none other than the house of God, this is the gate of heaven’.
 
-The Reading is from the Prophecy of Ezekiel.
-\[**43:72, 44:1\]**
+The Reading is from the Prophecy of Ezekiel. \[**43:72, 44:1\]**
 
 ‘It shall be from the eighth day and upwards, the Priests shall make your holocausts upon the altar, and those for your salvation; and I shall accept you’, says the Lord. And he turned me back by the way of the outer gate of the Holy Place, which looks towards the east, and it was shut. And the Lord said to me: ‘This gate shall be shut, it shall not be opened, and no one shall pass through it, because the Lord, the God of Israel, will enter through it, and it shall be shut. Therefore this prince shall sit in it to eat bread. By the way of the Elam of the gate he shall enter, and by that way he shall go out’. And he brought me by the way of the gate towards the North, opposite the House; and I saw, and behold the whole house of the Lord was full of glory.
 
-The Reading is from Proverbs.
-\[**9:1-11\]**
+The Reading is from Proverbs. \[**9:1-11\]**
 
 Wisdom has built herself a house. She has slaughtered her beasts and mixed her wine in the mixing bowl, and prepared her table. She her sent out her servants, to invite with a loud proclamation upon the mixing bowl: ‘Whoever is foolish, let him turn to me’. And to those who lack wisdom she said: ‘Come, eat my bread, and drink the wine that I have mixed for you. Abandon folly, and you will live; and seek understanding that you may have life, and set aright your understanding with knowledge. One who corrects the wicked will gain dishonour for himself. One who rebukes the impious will get blame for himself; for to the impious rebukes are blows. Do not rebuke the wicked, lest they hate you. Rebuke a wise man and he will love you. Give instruction to a wise man and he will be wiser; teach a just man and he will increase learning. The beginning of wisdom is the fear of the Lord, and the counsel of Saints, understanding. While to know the law is the part of a good mind. For by this means you will live for a long time, and years will be added to your life’.
 
 ****
 
-At the Liti, Idiomel Stichera.
-Tone 1.
+At the Liti, Idiomel Stichera. Tone 1.
 
 It was fitting for the eye-witnesses and ministers of the Word to see the Falling Asleep of his Mother according to the flesh, the final mystery concerning her, that they might not only see the Ascension of the Saviour from the earth, but also be witnesses to the Translation from earth of her who bore him. Therefore, carried over from all parts by divine power, they came to Sion and escorted her, as she who is higher than the Cherubim hastened towards heaven. With them we worship her as she intercedes for our souls.
 
@@ -275,8 +261,6 @@ In giving birth you retained your virginity; in falling asleep, O Mother of God,
 
 And Dismissal.
 
-------------------------------------------------------------------------
-
 AT MATINS
 ---------
 
@@ -298,12 +282,9 @@ The all-honoured choir of the wise Apostles was wondrously assembled to bury wit
 
 Glory. Both now.
 
-**The same.**
+**The same.  **
 
- 
-
-After the Polyeleos, Kathisma.
-Tone 3.
+After the Polyeleos, Kathisma. Tone 3.
 
 In your giving birth conception was without seed; in your falling asleep death was without corruption. A double wonder ran to meet a wonder, O Mother of God; for how could one who knew not wedlock suckle a babe, while yet remaining pure? How could God’s Mother be carried as a corpse while yet giving off sweet fragrance? And so with the Angel we cry to you: ‘Hail, full of grace!’
 
@@ -339,8 +320,7 @@ Have mercy on me, O God, according to your great mercy; and according to the mul
 
 ****
 
-Then the Sticheron for Psalm 50.
-Tone 6. By Vyzas.
+Then the Sticheron for Psalm 50. Tone 6. By Vyzas.
 
 When the Translation of your immaculate Body was being prepared, the Apostles surrounded your deathbed and looked on you with dread. And as they gazed at your body they were seized with awe, while Peter cried out to you with tears: ‘Immaculate Virgin, I see you, who are the life of all, lying here outstretched, and I am struck with wonder; for in you the Delight of the life to come made his dwelling. But fervently implore your Son and God that your City may be kept safe from harm’.
 
@@ -522,9 +502,7 @@ On the 15th of the month, commemoration of the all-revered Translation of our mo
 
 Verses.
 
-No wonder that the Maiden, world’s salvation, dies,
-When the world’s Fashioner in the flesh had died.
-God’s Mother ever lives, though the fifteenth she died.
+No wonder that the Maiden, world’s salvation, dies, When the world’s Fashioner in the flesh had died. God’s Mother ever lives, though the fifteenth she died.
 
 When Christ our God was well pleased to take to himself his own Mother, three days before he told her through an Angel of her translation from the earth. It is the moment, he said, to take my Mother to myself. Do not then be any way troubled by this, but accept my word with joy, for you are coming to immortal life. And she, in her longing for her translation to her Son, went up the mount of Olives with haste to pray (for it was her custom to go up there to pray). Then there took place a marvel; for the plants on the mount bowed themselves down of their own accord and like living slaves accomplished fitting reverence to their Lady. After her prayer she returned home and at once the whole house was shaken. She prepared many lights and having given thanks to God she invited her relatives and neighbours. She swept the house and prepared the couch and everything needed for the burial. She explained everything which had been told her by the Angel about her translation to heaven and as confirmation of her words showed the reward that had been given her, which was a palm branch \[from Paradise\]. But the women who had been summoned on hearing this poured out lamentations and tears and lamented with cries of grief. When they ceased their lament they begged her not to leave them orphans. She assured them that when she had passed over she would watch over and protect not only them but the whole world. Much of their grief was assuaged by these words of consolation which she spoke to the bystanders. Then she gave instructions about her two tunics, that the two poor widows who were customarily with her and known to her and who received from her what was required for their nourishment should take one each.
 
@@ -671,8 +649,6 @@ Great Doxology.
 Holy oil is also given to the brethren.
 
 At the Liturgy, the Typika, the Beatitudes, and from the Canons of the Feast Odes 3 and 6.
-
-------------------------------------------------------------------------
 
 APPENDIX
 --------
@@ -834,9 +810,6 @@ Both now.
 
 Your people, O Christ, brings your Mother in supplication. At her entreaties grant us your acts of compassion, that we may glorify you, O Good One,  who dawned for us from the tomb.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 07 December 2006**

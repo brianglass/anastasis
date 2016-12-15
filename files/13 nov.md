@@ -104,8 +104,7 @@ You were born for us from a Virgin, and endured crucifixion, loving Lord; by you
 AT MATINS
 ---------
 
-**After the Polyeleos, Kathisma.
-Tone 4. Today you have appeared.**
+**After the Polyeleos, Kathisma. Tone 4. Today you have appeared.**
 
 The Church, watered by you golden words, gives golden streams as drink for all and heals diseases of those who sing your praise, all-blessed Chrysostom.
 
@@ -299,9 +298,7 @@ On the 13th of the month, Commemoration of our Father among the Saints, John Chr
 
 Verses.
 
-Closing his mouth in death, the golden John
-Another mouth has left to us: his books.
-On the thirteenth of the month the lips that were golden fell silent.
+Closing his mouth in death, the golden John Another mouth has left to us: his books. On the thirteenth of the month the lips that were golden fell silent.
 
 Commemoration of the holy new Monk and Martyr Damaskinos of Constantinople, he was martyred in Constantinople in 1681.
 
@@ -419,9 +416,6 @@ Holy oil is given to the Brethren.
 
 At the Liturgy, Typika and Beatitudes from the 3rd and 6th Odes of the Canon of the Saint.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -21,8 +21,7 @@ Let us honour the Maiden, revered and worthy of God, in honour higher than the C
 
 ****
 
-Aposticha. Prosomia of the Mother of God.
-Hail, of ascetic struggles.
+Aposticha. Prosomia of the Mother of God. Hail, of ascetic struggles.
 
 Verse:
 
@@ -146,9 +145,6 @@ Theotokion.
 
 Hail gate of the Lord, though which none may pass; hail wall and protection of those who flee to you; hail haven without storms, and who did not know wedlock, who bore in the flesh your Maker and God, do not cease to intercede for those who praise and worship your Offspring.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

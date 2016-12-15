@@ -25,7 +25,7 @@ Tone 3.
 
 Verse:
 
-** I shall remember your name in every generation and generation.
+I shall remember your name in every generation and generation.
 
 Pure Virgin, we know you to be the spiritual Ark that bears the Tables written by God, for us the Lawgiver and Creator. Intercede with him that our souls may be saved.
 
@@ -33,7 +33,7 @@ Pure Virgin, we know you to be the spiritual Ark that bears the Tables written b
 
 Verse:
 
-** Listen, daughter, and see, and incline your ear; and forget your people and your father’s house.
+Listen, daughter, and see, and incline your ear; and forget your people and your father’s house.
 
 God the Word, by nature beyond contemplation, who dwelt in your womb and took on flesh, revealed you to be Heaven upon earth, pure Virgin. And you, who knew not wedlock, rain down upon all an immortal dew.
 
@@ -107,7 +107,7 @@ The Lord has robed and girded himself with power. ****
 
 Verse 2:
 
-** He has made the world firm; it will not be shaken. ****
+He has made the world firm; it will not be shaken. ****
 
 Then the usual Litany,
 
@@ -131,7 +131,7 @@ racious Lord, your Rising that received life has enlightened the world, and reca
 
 Verse 2:
 
-** He has made the world firm; it will not be shaken. ****
+He has made the world firm; it will not be shaken. ****
 
 H
 
@@ -139,7 +139,7 @@ owbeit that as God you are unchanging, yet by suffering in the flesh you changed
 
 Verse 3:
 
-** Holiness befits your house, O Lord, to length of days. ****
+Holiness befits your house, O Lord, to length of days. ****
 
 I
 
@@ -163,9 +163,6 @@ Theotokion.
 
 Virgin Mother of God, we praise you as the means of the salvation of our race; for your Son and our God, who through the Cross accepted suffering in the flesh he had taken from you, has redeemed us from corruption, for he loves mankind.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

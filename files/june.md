@@ -5,12 +5,8 @@ INTRODUCTORY NOTE
 
 Since most of June will frequently fall during the Apostles’ Fast, a number of days are given in the Book of Hours as ’Alleluia’. This refers to the fact that, according to the strict Typikon, during the Apostles’ fast on Mondays, Wednesdays and Fridays the ’Lenten’ form of the office is used, with ’Alleluia’ rather than ’The Lord is God’ at the start of Matins, the prayer of St Ephrem with the prescribed prostrations and so forth.
 
-------------------------------------------------------------------------
-
 MONTH OF JUNE
 =============
-
-<img src="PP.jpg" alt="P&amp;P.jpg (136338 bytes)" width="335" height="259" />
 
 **It has 30 days. The day has 15 hours and the night 9**
 
@@ -42,7 +38,7 @@ Ascending the throne in 320 he sent his vicar general to the 1st Ecumenical Coun
 
 **Apolytikion. Tone 4. \[Common\]**
 
-The truth of your actions proclaimed you to your flock as a rule of faith, an image of meekness and a teacher of self-control; and so you gained through humility the things on high, through poverty riches, O Father and high priest **** Mitrophanes; intercede with Christ God that our souls may be saved.
+The truth of your actions proclaimed you to your flock as a rule of faith, an image of meekness and a teacher of self-control; and so you gained through humility the things on high, through poverty riches, O Father and high priest Mitrophanes; intercede with Christ God that our souls may be saved.
 
 **Kontakion. Tone 2. Seeking things on high.**
 
@@ -102,8 +98,7 @@ You tore apart the webs of heresies by the power of Christ and enriched the Chur
 
 O holy Apostles, intercede with the merciful God to grant our souls forgiveness of sins.
 
-**Kontakia: of St Bartholomew. Tone 4.
-Today you have appeared.**
+**Kontakia: of St Bartholomew. Tone 4. Today you have appeared.**
 
 You appeared like a great sun to the Church, by the beams of your teachings and awesome wonders guiding to the light all who honour you, Bartholomew, Apostle of the Lord.
 
@@ -323,9 +318,6 @@ O holy Apostles, intercede with the merciful God to grant our souls forgiveness 
 
 To-day Christ the Rock radiantly glorifies the rock of the faith, the chief of the disciples, and with Paul the whole regiment of the twelve. As we faithfully celebrate their memory we glorify him who glorified them.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

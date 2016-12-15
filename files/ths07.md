@@ -8,12 +8,9 @@ The quotation from 1 Timothy 3,16 is one of the key quotations in the liturgical
 
 Apart from the necessary change of person in the verb, the whole clause ‘he descended into the lowest parts of the earth’ is the opening of the Irmos of the 6th Ode of St John of Damascus’s Easter Canon, which St Theodore would have known.
 
-------------------------------------------------------------------------
-
 **CATECHESIS 7**
 
-**On the Assumption of our Saviour Jesus Christ
-and on conducting ourselves in a manner pleasing to God***.*
+**On the Assumption of our Saviour Jesus Christ and on conducting ourselves in a manner pleasing to God***.*
 
 Brethren and fathers, a feast of feasts, the Assumption of our Saviour Jesus Christ, is at our doors, and a great and supernatural mystery; for our nature is being taken up beyond heaven, as it written: *By grace you have been saved; and he has raised us up together and made us sit together in the heavenly places in Christ Jesus,*\[Ephesians 2,5-6\] *who is at the right hand of God*, \[Romans 8,34\] *far above every principality and authority and power and dominion, and every name that is named, not only in this age, but in that which to come. And he has put all things under his feet, and gave him to be head over all things to the Church, which is his body, the fullness of him who fills all in all*. \[Ephesians 1,22-23\]
 
@@ -23,9 +20,6 @@ These then briefly are the events of the holy feast. And as we contemplate them,
 
 But we, brethren, let us hold fast to the confession *in which we stand, and let us boast in the hope of the glory of God*, \[Romans 5,2\] let us keep to the discipline in which the saints disciplined themselves, as indeed did the blessed Pachomius, whom we recently celebrated. Let us see healthily, let us hear healthily, let us touch healthily, using all our members healthily, so that guided by the word and as servants of the word we may become inheritors of eternal life according to the promise, \[Cf. 1 Timothy 4,8\] in Christ Jesus our Lord, to whom be the glory and the might with the Father and the Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

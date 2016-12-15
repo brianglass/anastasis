@@ -32,9 +32,7 @@ You became a pillar of endurance, Venerable Saint, rivalling the forefathers, Jo
 
 Hail full of grace, Virgin Mother of God, harbour and protection of the human race, for from you the Redeemer of the world became incarnate. For you alone are Mother and Virgin, ever blessed and glorified. Intercede with Christ our God to grant the whole world peace.
 
-**Kontakion of the Indiction.
-Composed in the year 1813 by the revered Patriarch of Constantinople Cyril VI.
-Tone 3.**
+**Kontakion of the Indiction. Composed in the year 1813 by the revered Patriarch of Constantinople Cyril VI. Tone 3.**
 
 You created the universe in your ineffable wisdom, and fix the seasons by your authority, grant victories to your Christ-loving people. May you bless our goings and comings of the year, directing our works to your divine will.
 
@@ -70,8 +68,7 @@ Anthimos underwent martyrdom under the tyrant Maximus in 311 \[or Diocletian in 
 
 You shared their way of life and you succeeded to the Apostles’ thrones; you found the practice, O God-inspired, to climb the heights of contemplation; rightly proclaiming the word of truth; and in faith you struggled to shedding of blood, Bishop and Martyr Anthimos; intercede with Christ our God that our souls may be saved.
 
-**Another. A composition by Anthimos IVth, Patriarch of Constantinople.
-Tone 1.**
+**Another. A composition by Anthimos IVth, Patriarch of Constantinople. Tone 1.**
 
 As valiant defender of your flock, inspired Father, you readily shed your blood for it; you were not dismayed by the threats of the hostile, and now you rejoice in heaven, as you stand by the throne of the triple-sunned Godhead. Glory to Christ who gave you strength, glory to your courage, glory, Anthimos, to your martyr’s valour.
 
@@ -449,9 +446,6 @@ With your all-powerful strength you framed all things, both visible and invisibl
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

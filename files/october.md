@@ -7,11 +7,9 @@ MONTH OF OCTOBER
 
 1.
 
-**The Protecting Veil of Our Holy Lady, Mother of God and Ever-Virgin Mary** \[See the Appendix, at the end of the page\]. Of the holy Apostle Ananias, one of the Seventy; and the venerable Deacon Romanos the Singer. ****
+**The Protecting Veil of Our Holy Lady, Mother of God and Ever-Virgin Mary** \[See the Appendix, at the end of the page\]. Of the holy Apostle Ananias, one of the Seventy; and the venerable Deacon Romanos the Singer.
 
 Ananias came from Damascus, where, through a divine revelation, he baptized the Apostle Paul in the year 36. He finished his course as a martyr, being stoned under the governor Lucian.
-
-****
 
 Romanos flourished around 496, in the reign of Anastasios. He came from Emesa in Syria and had been deacon of the church of Beirut. He was the first writer of Kontakia, and the very first which he composed was that for the Nativity of Christ, ‘To-day the Virgin gives birth’.
 
@@ -40,8 +38,6 @@ Of St Romanos. To you, my Champion. \[By Monk Gerasimos\]
 As wisdom’s all melodious harp, expounder of ascents inspired by God, we praise you, Romanos, with holy songs. But as a lyre of gifts beyond our ken, to godly wakefulness rouse us who cry to you, ‘Hail, Father possessed by God!’
 
 2. Of the holy Bishop Martyr Cyprian and the holy Virgin Martyr Justina.
-
-****
 
 Justina was from Damascus and had dedicated her virginity to Christ; **Cyprian** came from Antioch in the region of Coele-Syria and Arabia and was given to magic and was a worshipper of demons. He learned their impotence because having tried all his craft in order to entice Justina to love, he was smitten by the sign of the Cross and acknowledged the truth. He abandoned demonic error and came to Christ; he burned all his magic books, was baptized and later succeeded to the episcopal throne of his native country. He was arrested with Justina by the count of Damascus. They both endured numerous tortures at his hands and were sent finally to Diocletian at Nikomedia, where their heads were cut off in around the year 304.
 
@@ -90,8 +86,6 @@ You were taught goodness and, sober in all things, you vested yourself in a good
 Kontakion. Tone 8. To you, my Champion.
 
 We praise you as Athens’ high priest, as we have been initiated through you into strange and ineffable mysteries; for you were declared to be a hymn writer inspired by God. But all-blest Hierotheos intercede that we may be delivered from every kind of sin, that we may cry: Hail, inspired Father.
-
-****
 
 5. Of the holy martyr Charitini.
 
@@ -157,8 +151,6 @@ You wore out your body with fasts, vigils and prayers as you besought the Creato
 
 The Apostle **James** was one of the Twelve. He preached Christ to many nations and suffered death by crucifixion.
 
-****
-
 Andronikos was from Antioch. He died after a life of asceticism around 500.
 
 ****
@@ -197,11 +189,7 @@ Let us honour the noble Martyrs, brother and sister in the flesh, the wise Evlam
 
 11. Of the holy Apostle Philip, one of the Seventy; and of our venerable father Theophanes the Branded.
 
-****
-
 Philip was from Caesarea in Palestine and had seven daughters, who were prophetesses. He preached in Samaria in 35. He met the eunuch of Candace, queen of the Ethiopians, who was reading the prophet Isaias, and when he had instructed him he baptized him. Later he preached among the Trallians in Asia, where he died.
-
-****
 
 Theophanes was a Palestinian and brother of Theodore the branded. Both were monks of the monastery of St Sabbas. They were called ‘Branded’ because Theophilos, the last of the iconoclast emperors, had inscribed on their foreheads with a red hot iron thirteen lines of iambics and sent them into exile, where Theodore died, probably in 823. Theophanes, however, who was born in 778, outlived the death of Theophilos in 842 and was elected metropolitan of Nicea. He died on the 11th of October in 845. Both wrote numerous Canons and Hymns, which adorn the services of the Church.
 
@@ -273,8 +261,6 @@ The noble soldiers of Christ, the godly Martyrs Probus, Andronikos and Tarachos,
 
 13. Of the holy martyrs Karpos, Papylos, Agathodoros and Agathoniki.
 
-****
-
 Karpos was Bishop of the Church of Thyateira, **Papylos** a deacon, **Agathodoros** their slave, while **Agathoniki** was Papylos’ sister. They suffered under Decius at Sardis in Lydia around 250.
 
 ****
@@ -292,8 +278,6 @@ As a precious treasure and a spring flowing with streams of healings the Master 
 14. Of the holy Martyrs Nazarius, Gervase, Protasius and Celsius; and of our venerable father Kosmas of the Holy City, the poet, Bishop of Maïouma.
 
 All the Martyrs suffered at Milan under Nero in 64.
-
-****
 
 Kosmas was a native of the Holy City, that is Jerusalem. He was a contemporary and the same age as John of Damascus (December 4th), with whom he was brought up, having been adopted because he had been orphaned by the latter’s father Sergius. He was also his fellow student under the same teacher. In about 743 he was consecrated bishop of Maiouma, a coastal city of Palestine, which, having been formerly subject to Gaza, was known as the harbour of the Gazeans. But under Constantine the Great it was completely rebuilt and named Constantia, after his son Constantine (Sozomen, *History of the Church* 5.3). Kosmas became a fine hymn-writer, and is therefore called both ‘poet’ and ‘melodist’
 
@@ -349,11 +333,7 @@ Gladly the Church rejoices at the commemoration to-day of the revered champion, 
 
 17. Of the holy Prophet Osee \[Hosea\]; and of the holy monk-martyr Andrew of Krisis.
 
-****
-
 Andrew came from the island of Crete, where he led the ascetic life. Under the emperor Constantine Copronymous he left for Constantinople and there suffered much for the honour of the holy icons. Finally as he was being dragged through the market place with his feet bound, he was struck with a butcher’s axe by a certain fishmonger, and so gave up his spirit to God in the year 761. He holy remains were laid up in a place called Krisis.
-
-****
 
 Osee was from the tribe of Issachar, or rather that of Ruben, a son of Beiri, and is first in order of the twelve Minor Prophets, and the oldest of them. He prophesied for more than sixty nine years. He lived for more than eighty, between 810 and 720 BC. His prophecy is divided into fourteen chapters.
 
@@ -389,11 +369,7 @@ You became a disciple of the divine Word, and with Paul you led the whole world 
 
 19. Of the holy Prophet Joel; and of the holy Martyr Varus.
 
-****
-
 Varus competed under Maximianus in 304.
-
-****
 
 Joel was of the tribe of Reuben, son of Bathouel, 818-750 BC. His prophecy is divided into 3 chapters and is placed second among the Minor Prophets.
 
@@ -405,11 +381,7 @@ Your Martyr, O Lord, by his struggle obtained the crown of incorruption from you
 
 20. Of the holy great Martyr Artemios; and of our venerable and god-bearing father Gerasimos the new ascetic of the island of Kephallenia.
 
-****
-
 Artemios lived in the reign of Constantine the Great and was appointed by him as governor of Alexandria. He was later honoured with the rank of Patrician. In the reign of Julian the Apostate, who was punishing the Christians, in the year 361 Artemios with outspoken boldness rebuked his apostasy. And so, after suffering many torments, his head was cut off.
-
-****
 
 Gerasimos was a Peloponnesian by birth, son of Demetrios and Kali, by whom he was devoutly brought up and taught the sacred scriptures. He left his native country and after journeying through various places, reached Kephallenia. There he restored an old church and round it built a nunnery, which survives to this day, in a place called Omala. Here he ended the ascetic course of his life in 1579. His holy relics, which have remained incorrupt, are exposed to the faithful for their sanctification.
 
@@ -442,8 +414,6 @@ Kontakion. Tone 3. Today the Virgin.
 As an unsetting beacon of the spiritual Sun, assembled to-day we praise you in hymns; for you shone out for those in the darkness of ignorance, leading all to the heights of God, O Hilarion, as they cried: Hail Father, rampart of Ascetics!
 
 22. Of the holy equal of the Apostles Averkios, Bishop of Hierapolis, the wonder-worker; and of the seven holy youths of Ephesus, Maximilian, Iamblichos, Martinianus, Dionysios, Antony, Exakoustodian and Constantine.
-
-****
 
 Averkios flourished around 186.
 
@@ -585,8 +555,6 @@ Orthodoxy’s guide, teacher of piety and reverence, beacon of the world, fair o
 
 29. Of the holy virgin martyr Anastasia the Roman; and of our venerable father Avramios.
 
-****
-
 Anastasia was arrested while still young and living in a monastery. She confessed Christ with boldness and when she had endured many forms of torture she was beheaded in 256, under Valerian and Gallienus.
 
 Saint **Avramios** died in about 390.
@@ -693,14 +661,10 @@ Taking refuge in your help, O Mother of God, as in a sheltered haven we are save
 
 **In Cyprus and in some other places, on the first Sunday of October the feast of All Saints of Cyprus is celebrated.**
 
-**Apolytikion for the Saints of Cyprus
-Tone 1. Citizen of the desert.**
+**Apolytikion for the Saints of Cyprus Tone 1. Citizen of the desert.**
 
 The Saints of Cyprus, Apostles and Martyrs, High Priests and Ascetics, let us Cypriots, as is fitting, having formed a new choir, honour with spiritual songs, as glorious adornments and defenders of the isle, as we cry, ‘Glory to the One who made you strong! Glory to the One who crowned you! Glory to the One who through you grants us gifts divine!’
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

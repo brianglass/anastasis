@@ -18,9 +18,6 @@ So that this may not happen, let us hold fast to love of him, hating and rightly
 
 And so let us chose the good with all humility and meekness and modesty serving the Lord, knowing that every achievement that is not guarded by humility is worthless. So let those of us whose ideas are puffed up humble ourselves *beneath the mighty hand of God* \[1 Peter 5:6\], lest we run in vain; but let all of us, doing well, press forward, pursue, run on, that we may attain, that we may inherit the kingdom of heaven, in Christ Jesus, our Lord, to whom be glory and might, with the Father and the Holy Spirit, now and ever and to the ages of ages. Amen. 
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

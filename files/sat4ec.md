@@ -17,8 +17,7 @@ You conceived without seed, and ineffably you bore the One who put down the migh
 
 ****
 
-Aposticha. Prosomia of the Mother of God.
-Called from the highest.
+Aposticha. Prosomia of the Mother of God. Called from the highest.
 
 Verse:
 
@@ -89,8 +88,7 @@ Entrance,
 
 O Joyful Light… **and the Prokeimenon of the day.**
 
-Resurrection Stichera of the Aposticha.
-Tone 4.
+Resurrection Stichera of the Aposticha. Tone 4.
 
 Lord, by ascending the Cross you wiped out our ancestral curse, and by descending into Hades you freed those enchained from every age, granting incorruption to the human race; therefore with hymns we glorify your life-giving and saving Rising.
 
@@ -142,9 +140,6 @@ The mystery hidden from all eternity and unknown to Angels, has been revealed to
 
 And the rest of the Office of the Vigil.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

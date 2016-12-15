@@ -10,7 +10,7 @@ AT VESPERS
 
 At
 
-Lord, I have cried ** **the Stichera from the Octoichos and the Menaion.**
+Lord, I have cried **the Stichera from the Octoichos and the Menaion.**
 
 At the Aposticha, the following Idiomel twice, said with the usual verses.
 
@@ -48,9 +48,6 @@ And the rest as on Tuesday.
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

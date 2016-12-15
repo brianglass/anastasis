@@ -194,9 +194,6 @@ Both now*.* **Theotokion.**
 
 You contained within your womb, Virgin Mother, one of the Trinity, Christ the Giver of life, whom all creation hymns, before whom tremble all the thrones above; beseech him, all blessed one, that our souls may be saved.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

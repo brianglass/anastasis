@@ -7,13 +7,10 @@ The canon, which is written to the same set of Irmi as the Resurrection canon in
 
 The canon would seem to be fairly late, since apart from the ‘refrains’ in Odes 7 and 8, allusions to the biblical canticles are almost entirely lacking. There is no reference to the Song of Moses, which is almost *de rigueur*, in Ode 1, none to the Song of Avvakoum in Ode 4, not even to the ancient refrain from the ’sung’, or ’Cathedral’, office ‘Glory to your power, O Lord!’, none to Jonas in Ode 6, while in Ode 9 the word ‘magnify’ does not occur at all. All these allusions are, however, found in the Irmi on which the canon is based.
 
-------------------------------------------------------------------------
-
 **THE CANON**
 =============
 
-*****Its Acrostic is:****
-***I SING THE RANKS OF ALL THE SAINTS WITH MANY NAMES**
+*****Its Acrostic is:***** **I SING THE RANKS OF ALL THE SAINTS WITH MANY NAMES**
 
 *****Ode 1. Tone 8*****
 
@@ -134,13 +131,8 @@ The canon would seem to be fairly late, since apart from the ‘refrains’ in O
 15. **cf. 1 Corinthians 13,12.**
 16. **The allusion is to Hebrews 10,1, but there is a closer parallel in the first Doxastikon for Saturday Vespers in Tone 2, ‘The shadow of the law has passed, now that grace has come’, which in turn suggests John 1,17.**
 
-------------------------------------------------------------------------
-
 This Translation © Archimandrite Ephrem, 1997
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -7,8 +7,7 @@ The following is the text of the Midnight Office for weekdays as it is found in 
 THE LARGE BOOK OF HOURS
 -----------------------
 
-OPENING PRAYER
-OF THE WHOLE DAY AND NIGHT OFFICE
+OPENING PRAYER OF THE WHOLE DAY AND NIGHT OFFICE
 
 ****
 
@@ -56,15 +55,13 @@ Prayer of Thanksgiving with Intercession
 
 Having risen from sleep I thank you, O Holy Trinity; because through your great goodness and patience you have not been angry with me, an idler and a sinner, nor have you destroyed me in my iniquities, but you have shown your customary love for mankind and roused me, as I lay in despair, to rise before dawn and to glorify your might. And now, enlighten the eyes of my mind and open my mouth to meditate on your words, to understand your commandments and to do your will, and to sing to you with confession of heart and to hymn your all-holy name, of Father, Son and Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
-****
-
 Another Prayer
 
 Glory to you, O King, almighty God, because in your divine providence and love for mankind, you have permitted me, sinner and unworthy, to rise from sleep and to gain entrance to your holy house. Accept, too, Lord, the voice of my supplication, as you do that of your holy and spiritual Powers; and be well pleased for praise to be offered you with a pure heart and a spirit of humility from my sordid lips, that I too may become a companion of the wise virgins with the shining lamp of my soul and may glorify you, God the Word, glorified with the Father and the Spirit. Amen.
 
 \[
 
-**Note: In present monastic use these opening hymns and prayers are said after** ** Heavenly King **at the beginning of the Midnight Office. In Greek monastic practice the opening** Glory to you, our God **and** Heavenly King ** **are said by the Superior; in his absence by the senior monk present or, in some monasteries, by the officiating Priest, the Reader beginning at the Trisagion.**\]
+**Note: In present monastic use these opening hymns and prayers are said after** Heavenly King **at the beginning of the Midnight Office. In Greek monastic practice the opening** Glory to you, our God **and** Heavenly King **are said by the Superior; in his absence by the senior monk present or, in some monasteries, by the officiating Priest, the Reader beginning at the Trisagion.**\]
 
 DAILY MIDNIGHT OFFICE
 
@@ -92,9 +89,7 @@ Trisagion. Three Metanias.
 
 Glory. Both now. All-holy Trinity. Our Father. For yours is the kingdom. Lord, have mercy **(x12). Glory. Both now.**
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -120,7 +115,7 @@ And in the Holy Spirit, the Lord, the Giver of life, who proceeds from the Fathe
 
 Trisagion,
 
-** All-holy Trinity **and** ** Our Father **as above.**
+All-holy Trinity **and** Our Father **as above.**
 
 Then these Troparia in Tone 8.
 
@@ -154,10 +149,7 @@ May God take pity on us and bless us and shed us the light of his countenance up
 
 If it is
 
-Alleluia*,* **that is, in the holy and great Lent we make the three great metanias, saying to ourselves at each a line of the Prayer of St Ephrem:**
-Lord and Master of my life, do not give me a spirit of sloth, idle curiosity, love of power and useless chatter. **(Prostration)**
-Rather accord to me, your servant, a spirit of sobriety, humility, patience and love. **(Prostration)**
-Yes, Lord and King, grant me to see my own faults and not to condemn my brother; for you are blessed to the ages of ages. Amen. **(Prostration)**
+Alleluia*,* **that is, in the holy and great Lent we make the three great metanias, saying to ourselves at each a line of the Prayer of St Ephrem:** Lord and Master of my life, do not give me a spirit of sloth, idle curiosity, love of power and useless chatter. **(Prostration)** Rather accord to me, your servant, a spirit of sobriety, humility, patience and love. **(Prostration)** Yes, Lord and King, grant me to see my own faults and not to condemn my brother; for you are blessed to the ages of ages. Amen. **(Prostration)**
 
 Then the 12 small metanias and again a great metania and the last line of the Prayer. Then the Trisagion etc. and after it L
 
@@ -187,8 +179,7 @@ Lord almighty, God of Powers and of all flesh, who dwell on high and look on low
 
 Then the priest raises his hands, saying the following
 
-**
-Prayer of Saint Basil**
+**Prayer of Saint Basil**
 
 We bless you, God most high and Lord of mercy, who ever do with us great and unfathomable things, things glorious and extraordinary without number, who grant us sleep for the refreshment of our weakness and the relaxation of the toils of our much wearied flesh. We thank you because you have not destroyed us in our lawlessness, but have shown us your customary love for mankind and roused us as we lay in despair, to glorify your might. And so we implore your incomparable loving-kindness, enlighten the eyes of our understanding and raise our minds from the heavy sleep of idleness. Open our mouths and fill them with your praise, that we may be able to sing and chant give thanks to you continually, God glorified in all and by all, the Father without beginning, with your only begotten Son and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -196,9 +187,7 @@ We bless you, God most high and Lord of mercy, who ever do with us great and unf
 
 Then:
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -208,9 +197,7 @@ Come, let us worship and fall down before Christ himself, the King, our God.
 
 Psalm 120
 
-I **** have lifted up my eyes to the mountains, from where my help will come. My help is from the Lord, who made heaven and earth. Do not let your foot waver; nor will he who guards you slumber. See, the One who guards Israel will neither slumber nor sleep. May the Lord guard you, may the Lord cover you with his right hand. The sun will not scorch you by day, nor the moon by night. May the Lord guard you from every evil; may the Lord guard your soul. May the Lord guard your coming in and your going out, from now and for ever more.
-
-****
+I have lifted up my eyes to the mountains, from where my help will come. My help is from the Lord, who made heaven and earth. Do not let your foot waver; nor will he who guards you slumber. See, the One who guards Israel will neither slumber nor sleep. May the Lord guard you, may the Lord cover you with his right hand. The sun will not scorch you by day, nor the moon by night. May the Lord guard you from every evil; may the Lord guard your soul. May the Lord guard your coming in and your going out, from now and for ever more.
 
 Psalm 133
 
@@ -222,7 +209,7 @@ Glory. Both now.
 
 Trisagion,
 
-** All-holy Trinity **and** Our Father **as above.**
+All-holy Trinity **and** Our Father **as above.**
 
 And the following Troparia.
 
@@ -253,8 +240,6 @@ A Prayer
 Remember, Lord, our fathers and brethren who have fallen asleep in hope of resurrection to eternal life and all those who have died in piety and faith; and pardon them every offence, willing and unwilling, in word, or deed, or thought, by which they have offended. Settle them in places of light, places of green pasture, places of rest, from which all sorrow, grief and sighing have fled; where the presence of your face gives joy to all your saints from every age. Grant them and us your Kingdom and participation in your ineffable and eternal good things, and the enjoyment of your infinite and blessed life. For you are the life, the resurrection and the repose of your servants who have fallen asleep, Christ our God, and to you we give glory, together with your Father who has no beginning, and your all-holy, good and life giving Spirit, now and for ever, and to the ages of ages. Amen.
 
 Most glorious, ever-virgin, blessed Mother of God, offer our prayer to your Son and our God, and ask that through you he may save our souls.
-
-****
 
 Prayer of Saint Ioannikios
 
@@ -320,7 +305,7 @@ Amen. ****
 
 Priest:
 
-** Glory to you, Christ, God, our hope, glory to you. ****
+Glory to you, Christ, God, our hope, glory to you. ****
 
 Reader:
 
@@ -336,7 +321,7 @@ Let us pray for the peace of the world.
 
 Reader:
 
-Lord, have mercy. ** **After each petition.**
+Lord, have mercy. **After each petition.**
 
 For our Archbishop
 
@@ -394,9 +379,6 @@ Note that the Latin Church has the opposite custom to us and expressly forbids t
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

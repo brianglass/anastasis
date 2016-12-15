@@ -13,7 +13,7 @@ Lord, I have cried **we insert 4 Stichera, and sing the 3 Resurrection Stichera 
 
 Glory.
 
-**** Tone 5.**
+**Tone 5.**
 
 Jesus went up to Jerusalem
 
@@ -35,7 +35,7 @@ Tone 3.
 
 Verse:
 
-** Listen, daughter, and see, and incline your ear; and forget your people and your father’s house.
+Listen, daughter, and see, and incline your ear; and forget your people and your father’s house.
 
 Through the great boon you brought us, O Immaculate, along with the Angels we glorify your Offspring, who deigned to be born of your womb through his deep compassion and to refashion the human race.
 
@@ -43,7 +43,7 @@ Through the great boon you brought us, O Immaculate, along with the Angels we gl
 
 Verse:
 
-** I shall remember your name in every generation and generation.
+I shall remember your name in every generation and generation.
 
 We sinners have all gained you, pure Virgin, as refuge and divine protection in life. Therefore we all implore your compassion. Do not turn from us, we beg, but take pity and save us.
 
@@ -57,7 +57,7 @@ Mother of God, Ever-Virgin, we your servants made from earth, with Gabriel the c
 
 Glory, Both now.
 
-**** Tone 8*.***
+**Tone 8*.***
 
 In Solomon’s porch
 
@@ -109,7 +109,7 @@ An unburied corpse, the Paralytic, when he saw you, cried out, ‘Have mercy on 
 
 Glory.
 
-**** Tone 5.**
+**Tone 5.**
 
 Jesus went up to Jerusalem, to the Sheep Pool, called by the Jews Bethesda, having five porches. For in these lay a great multitude of the sick. For an Angel of God would come at from time to time, stir it up and grant strength to those who approached with faith. And the Lord, seeing a man who had been sick for many years, said to him, ‘Do you want to be made whole?’ The sick man answered, ‘Sir, I have no one to put me into the pool when the water is stirred up. I have spent all my livelihood on physicians, and it has not been granted me to find mercy’. But the physician of souls and bodies said to him, ‘Take up your bed and walk, while proclaiming my power and my great mercy in the ends of the earth.’
 
@@ -121,8 +121,7 @@ How should we not marvel at your Offspring, who is both God and man, all-honoure
 
 ****
 
-At the Liti.
-The Sticheron of the Saint of the Monastery.
+At the Liti. The Sticheron of the Saint of the Monastery.
 
 Glory.
 
@@ -150,7 +149,7 @@ Tone 5.
 
 Verse:
 
-** Let God arise and let his enemies be scattered, and let those that hate him flee before his face.
+Let God arise and let his enemies be scattered, and let those that hate him flee before his face.
 
 A sacred Pascha has been shown forth to us to-day, a new and holy Pascha, a mystic Pascha, an all-venerable Pascha, a Pascha that is Christ the Redeemer, a spotless Pascha, a great Pascha, a Pascha of the faithful, a Pascha that has opened to us the gates of Paradise, a Pascha that hallows all the faithful.
 
@@ -158,7 +157,7 @@ A sacred Pascha has been shown forth to us to-day, a new and holy Pascha, a myst
 
 Verse:
 
-** As smoke vanishes, so let them vanish, as wax melts before the fire.
+As smoke vanishes, so let them vanish, as wax melts before the fire.
 
 Come from the scene, O women bearers of good tidings, and say to Zion: Receive from us the tidings of joy, of the Resurrection of Christ. Exult, dance and be glad, O Jerusalem, for you have seen Christ the King as a bridegroom come forth from the tomb.
 
@@ -166,7 +165,7 @@ Come from the scene, O women bearers of good tidings, and say to Zion: Receive f
 
 Verse:
 
-** So let sinners perish at the presence of God, and let the just be glad.
+So let sinners perish at the presence of God, and let the just be glad.
 
 The Myrrh-bearing women at early dawn came near the tomb of the Giver of life; they found an Angel sitting on the stone, and he, addressing them in this manner, said: Why do you seek the living among the dead? Why do you mourn the Incorruptible amid corruption? Go, proclaim it to his Disciples.
 
@@ -174,7 +173,7 @@ The Myrrh-bearing women at early dawn came near the tomb of the Giver of life; t
 
 Verse:
 
-** This is the day that the Lord has made. Let us be glad and rejoice in it.
+This is the day that the Lord has made. Let us be glad and rejoice in it.
 
 A Pascha of delight, Pascha, the Lord’s Pascha, an all-venerable Pascha has dawned for us, a Pascha on which let us embrace one another with joy. O Pascha, ransom from sorrow! To-day Christ has shone forth from the tomb as from a bridal chamber, and has filled the women with joy, saying: Proclaim it to the Apostles.
 
@@ -206,9 +205,6 @@ Virgin Mother of God, we praise you as the means of the salvation of our race; f
 
 And Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

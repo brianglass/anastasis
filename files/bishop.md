@@ -32,8 +32,7 @@ A sword, as Symeon said, passed through your heart, All-holy Lady, when you saw 
 AT MATINS
 =========
 
-**The Canon. Tone 4.
-Ode 1. Irmos. I will open my mouth.**
+**The Canon. Tone 4. Ode 1. Irmos. I will open my mouth.**
 
 \[I will open my mouth and it will be filled with the Spirit, and I will utter a word to the Queen and Mother, and I shall be seen keeping glad festival, and rejoicing I will sing her wonders.\]
 
@@ -251,12 +250,8 @@ The Lord has shown strength with his arm, he has put down the mighty from their 
 
 ****
 
-At the Liturgy, for the Apostle, Gospel and Communion,
-see November 13th.
+At the Liturgy, for the Apostle, Gospel and Communion, see November 13th.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

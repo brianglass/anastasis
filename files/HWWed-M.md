@@ -27,8 +27,7 @@ The Priest blesses the incense and begins to cense the sanctuary and the whole c
 
 The Reader begins:
 
-**
-**Holy God, Holy Strong, Holy Immortal, have mercy on us (three times)
+Holy God, Holy Strong, Holy Immortal, have mercy on us (three times)
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -52,9 +51,7 @@ Lord, have mercy (
 
 **x12**). Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -164,8 +161,7 @@ Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your ar
 
 And again.
 
-Do not forsake me, Lord; my God do not go far from me.
-Hasten to help me, Lord of my salvation. ****
+Do not forsake me, Lord; my God do not go far from me. Hasten to help me, Lord of my salvation. ****
 
 Psalm 62
 
@@ -173,8 +169,7 @@ O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh h
 
 And again.
 
-Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice.
-My soul clung to you; and your right hand upheld me.
+Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me.
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
@@ -192,8 +187,7 @@ Lord, God of my salvation, I have cried by day, and by night also before you. Le
 
 And again.
 
-Lord, God of my salvation, I have cried by day; and by night also before you.
-Let my prayer come into your presence, and turn your ear to my supplication.
+Lord, God of my salvation, I have cried by day; and by night also before you. Let my prayer come into your presence, and turn your ear to my supplication.
 
 ****
 
@@ -217,12 +211,9 @@ And again.
 
 In your justice hear me, O Lord, and do not enter into judgement with your servant. (
 
-**x2**)
-Your good Spirit will guide me in an upright land.
+**x2**) Your good Spirit will guide me in an upright land.
 
-Glory to the Father and to the Son and to the holy Spirit.
-Both now and for ever, and to the ages of ages.
-Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God (
+Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God (
 
 **x3**). ****
 
@@ -302,8 +293,7 @@ Verse 4.
 
 Bring evils upon them, O Lord, bring evils upon them, the glorious ones of the earth. ****
 
-Then the following Troparion is sung solemnly 3 times.
-Tone 8
+Then the following Troparion is sung solemnly 3 times. Tone 8
 
 Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; by the power of your Cross save us.
 
@@ -467,8 +457,7 @@ Reader:
 
 Amen. ****
 
-After the small litany the Kontakion.
-Tone 4. Lifted up on the Cross
+After the small litany the Kontakion. Tone 4. Lifted up on the Cross
 
 I have transgressed far more than the harlot, O Good One, yet have never brought you showers of tears; but entreating in silence, I fall before you, as I kiss your immaculate feet with love, that as Master you may grant me forgiveness of offences, as I cry out, O Saviour: deliver me from the filth of my works.
 
@@ -488,8 +477,7 @@ On holy and great Wednesday the most godly fathers ordered that the commemoratio
 
 Verses.
 
-A woman casting myrrh upon Christ’s body.
-Anticipates Nikódemos’ anointing.
+A woman casting myrrh upon Christ’s body. Anticipates Nikódemos’ anointing.
 
 But, Christ our God, anointed with the spiritual myrrh, free us from the flowing passions, and have mercy on us, as you alone are good and love mankind. Amen.
 
@@ -573,8 +561,7 @@ Reader:
 
 Amen. ****
 
-After the small litany, the Exapostilarion sung slowly and solemnly:
-Tone 3. Model Melody.
+After the small litany, the Exapostilarion sung slowly and solemnly: Tone 3. Model Melody.
 
 Your bridal chamber, O my Saviour, I see all adorned, but I have no garment so that I may enter it. Make bright the mantle of my soul, O Giver of light, and save me! (**x3**)
 
@@ -708,13 +695,13 @@ O the wretchedness of Judas! He watched the harlot kissing your feet and began p
 
 \[
 
-**A**\] **** Glory. **Tone 2**
+**A**\] Glory. **Tone 2**
 
 The sinful woman ran for the myrrh, to buy myrrh of great price, to anoint with myrrh the Benefactor, and to the myrrh-seller she cried, ‘Give me the myrrh, that I may anoint the One who has wiped away all my sins’.
 
 \[
 
-**B**\] **** Both now. **** Tone 6. [Rejected](holyWed.md).**
+**B**\] Both now. **Tone 6. [Rejected](holyWed.md).**
 
 The woman drowned by sin found you, the harbour of salvation, and emptying out myrrh with tears, she cried out to you, ‘See, the one who has authority to pardon sins. See, the One who waits for the repentance of the sinful. But, Master, save me from the tempest of my sin through your great mercy’.
 
@@ -802,8 +789,7 @@ Reader:
 
 Amen. ****
 
-After the Litany and the Prayer at the Bowing down of heads, the Aposticha:
-Tone 6
+After the Litany and the Prayer at the Bowing down of heads, the Aposticha: Tone 6
 
 Today Christ comes to the house of the Pharisee and a sinful woman draws near and flings herself at his feet, crying, ‘See one who has been drowned by sin, without hope because of her deeds, yet not rejected with loathing from your goodness, and give me, Lord, forgiveness of my evil deeds and save me’.
 
@@ -835,8 +821,7 @@ Rejected because of her life, well-known because of her ways, she approached you
 
 Glory. Both now.
 
-**Tone 8.**
-**By the Nun Kassiani.**
+**Tone 8.** **By the Nun Kassiani.**
 
 Lord, the woman who had fallen into many sins, perceiving your divinity, took up the role of myrrh-bearer, and with lamentation brings sweet myrrh to you before your burial. ‘Alas!’, she says, ‘for night is for me a frenzy of lust, a dark and moonless love of sin. Accept the fountains of my tears, you who from the clouds draw out the water of the sea; bow yourself down to the groanings of my heart, you who bowed the heavens by your ineffable self-emptying. I shall kiss your immaculate feet, and wipe them again with the locks of my hair, those feet whose sound Eve heard at dusk in Paradise, and hid herself in fear. Who can search out the multitude of my sins and the depths of your judgements, my Saviour, saviour of souls? Do not despise me, your servant, for you have mercy without measure’.
 
@@ -912,9 +897,6 @@ Then at once
 
 Come let us worship**, and the First Hour, during which we do not add a Kathisma of the Psalter, nor at the Ninth Hour.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

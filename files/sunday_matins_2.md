@@ -7,9 +7,6 @@ This is the full text of Sunday Matins with a fairly full annotation, many of th
 
 [Sunday Matins](SUN06M%20with%20notes%20colour.pdf)
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

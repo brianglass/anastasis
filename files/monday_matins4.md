@@ -156,8 +156,7 @@ Virgin Mother who gave God a body, accept the voices of those who ever cry to yo
 
 ****
 
-Of the Bodiless Powers.
-Another Irmos.
+Of the Bodiless Powers. Another Irmos.
 
 By a word you gave substance to the dancers of the Powers above, and showed the limitless power of your goodness; at their entreaties establish your Church, O only good and lover of mankind.
 
@@ -197,8 +196,7 @@ The Lord took flesh from your pure blood, O All-praised, by your effective media
 
 ****
 
-Of the Bodiless Powers.
-Another Irmos.
+Of the Bodiless Powers. Another Irmos.
 
 Giving substance to the bright forms of the Angels, in your goodness you made them bright with sacred rays, as you are powerful in strength, fulfilling your word, O Lover of mankind.
 
@@ -240,8 +238,7 @@ Virgin blessed among women, grant your mercies to your people; for you were reve
 
 ****
 
-Of the Bodiless Powers.
-Another Irmos.
+Of the Bodiless Powers. Another Irmos.
 
 As you traverse the ends of the earth, glorious Archangels, you bring believers the kindnesses of the Master and guard them on every side.
 
@@ -319,8 +316,7 @@ Blessed are you, O God, who stole into a Virgin’s womb and saved mankind, high
 
 ****
 
-Of the Bodiless Powers.
-Another Irmos.
+Of the Bodiless Powers. Another Irmos.
 
 Revealing the infinite capacity of his power, Christ gave you being, Chief Captains, and taught you to sing: O God, blessed are you!.
 
@@ -362,8 +358,7 @@ From you God dawned, and made all those who were darkened shine with the knowled
 
 ****
 
-Of the Bodiless Powers.
-Another Irmos.
+Of the Bodiless Powers. Another Irmos.
 
 The inclination of my heart now draw me to hymn with songs the companies of Angels, with whom I sing: Praise the Lord, and highly exalt him to all the ages.
 
@@ -405,8 +400,7 @@ Like a fiery throne you carry him who carries all things by his will, O Virgin, 
 
 ****
 
-Of the Bodiless Powers.
-Another Irmos. Isaias, dance!
+Of the Bodiless Powers. Another Irmos. Isaias, dance!
 
 You are the leaders of the heavenly hosts, most radiant Michael, godlike Gabriel, who became the all-truthful herald of the divine incarnation.
 
@@ -440,9 +434,6 @@ Make an end to the toil of my soul with its many groans, All-holy Virgin-mother,
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

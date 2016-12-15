@@ -100,14 +100,13 @@ Shout with joy to the Lord \* all the earth.
 
 Verse:
 
-** Bless our God you nations, and make the sound of his praise be heard.
+Bless our God you nations, and make the sound of his praise be heard.
 
 The Reading is from the Prophecy of Isaias.
 
 \[
 
-**25,1-9**\]
-\[The Greek of this chapter is more than usually paraphrastic. It is in effect a Targum on the Hebrew\]
+**25,1-9**\] \[The Greek of this chapter is more than usually paraphrastic. It is in effect a Targum on the Hebrew\]
 
 Lord my God, I will glorify you, I will praise your name, for you have done wondrous deeds, an ancient and true counsel. So be it. Because you have made cities a heap, cities strong so that foundations should not fall. Let the city of the ungodly not be built for ever. Therefore the poor people will bless you, and cities of those who have been wronged will bless you; for you have become a helper to every humble city and a protection to those downhearted through want, you will deliver them from evil people, be a protection to the thirsty and a breath for people who have been wronged; as down-hearted people, thirsting in Sion, because of ungodly people, to whom you handed us over. And the Lord Sabaoth will make &lt;a banquet&gt; for all the nations on this Mountain. They will drink joy, they will drink wine, they will anoint themselves with myrrh. On this mountain hand on all these things to the nations, for this Counsel is upon all the nations. Death has been strong and swallowed down, and again the Lord has taken away every tear from every face. The shame of the people he has taken away from all the earth; for the mouth of the Lord has spoken this. And they will say in that day: See, the Lord our God, in whom we hoped and rejoiced, and he will save us. This is the Lord, we waited from him and we shall be glad, and we shall rejoice in his salvation.
 
@@ -273,7 +272,7 @@ God is our King before the ages. \* He has worked salvation in the midst of the 
 
 Verse:
 
-** Why, O God , have you finally rejected us? Why has your anger been enraged against the sheep of your pasture?
+Why, O God , have you finally rejected us? Why has your anger been enraged against the sheep of your pasture?
 
 The Reading is from the Prophecy of Isaias.
 
@@ -293,7 +292,7 @@ But I will rejoice for ever; \* I will chant to the God of Jacob.
 
 Verse:
 
-** We will give you thanks, O God. We will give you thanks and call upon your name, and I will recount all your wonders.
+We will give you thanks, O God. We will give you thanks and call upon your name, and I will recount all your wonders.
 
 AT VESPERS
 
@@ -305,7 +304,7 @@ Make your vows to the Lord, \* and pay them.
 
 Verse:
 
-** God is known in Judea; his great name in Israel.
+God is known in Judea; his great name in Israel.
 
 The Reading is from Genesis.
 
@@ -338,9 +337,6 @@ The desires of the godly delight the soul, but the works of the ungodly are far 
 **14,1**\] Wise women build houses, but the foolish one razes them to the ground with her own hands. One who walks uprightly fears the Lord, but one who is crooked in his ways will be dishonoured. From the mouth of fools comes a rod of pride, but the lips of the wise will guard them. Where there are no oxen, the mangers are clean; but where there is much produce, the strength of the ox is manifest. A faithful witness will not lie, but an unjust witness kindles lies. You will look for wisdom from the wicked and not find it, but from the prudent knowledge is easy. ****
 
 ON FRIDAY OF THE FOURTH WEEK
-
-****
-----
 
 AT THE TRITHEKTI
 
@@ -376,7 +372,7 @@ Help us, O God our Saviour \* for the glory of your name.
 
 Verse:
 
-** O God, the nations have entered your inheritance, defiled your holy temple, made Jerusalem a garden shed. ****
+O God, the nations have entered your inheritance, defiled your holy temple, made Jerusalem a garden shed. ****
 
 Today too the veneration of Cross takes place after the dismissal of the Hours, exactly as on Sunday. Then the Precious Cross is removed.
 
@@ -390,7 +386,7 @@ You who are seated upon the Cherubim, \* manifest yourself.
 
 Verse:
 
-** Shepherd of Israel, attend, you who guide Joseph like a sheep.
+Shepherd of Israel, attend, you who guide Joseph like a sheep.
 
 The Reading is from Genesis.
 
@@ -408,7 +404,7 @@ Rejoice in God our helper; \* shout with joy to the God of Jacob.
 
 Verse:
 
-** Take a psalm and sound the timbrel, a pleasant psaltery with a harp.
+Take a psalm and sound the timbrel, a pleasant psaltery with a harp.
 
 The Reading is from Proverbs.
 
@@ -422,9 +418,6 @@ The simple believes every word, but the prudent goes to repentance. The wise fea
 
 And the rest of the Liturgy of the Presanctified.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -7,9 +7,7 @@ FIRST HOUR
 
 **The First Hour being joined to the Morning Office, as has been said above, begins straight away with:**
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -39,15 +37,11 @@ And as we repeat it he makes a genuflexion to the ground; and the same at the fo
 
 Verse 1:
 
-Give ear to my words, O Lord, understand my cry.
-Hearken to my voice in the morning, my King and my God.
-**Verse 2***:* For to you I shall pray, O Lord. In the morning you will hear my voice.
-Hearken to my voice in the morning, my King and my God.
+Give ear to my words, O Lord, understand my cry. Hearken to my voice in the morning, my King and my God. **Verse 2***:* For to you I shall pray, O Lord. In the morning you will hear my voice. Hearken to my voice in the morning, my King and my God.
 
 \[
 
-**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses:
-**Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\]
+**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses:** Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\]
 
 Glory. Both now.
 
@@ -59,10 +53,7 @@ What shall we call you, O Full of grace? Heaven? For you made the Sun of righteo
 
 Then we chant the following Verses:
 
-Direct my steps according to your word, and let no iniquity lord it over me (**twice**).
-Deliver me from the slander of men, and I shall keep your commandments (**twice).**
-Let your face shine on your servant, and teach me your statutes (**twice).**
-Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour (**three times**). ****
+Direct my steps according to your word, and let no iniquity lord it over me (**twice**). Deliver me from the slander of men, and I shall keep your commandments (**twice).** Let your face shine on your servant, and teach me your statutes (**twice).** Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour (**three times**). ****
 
 Then:
 
@@ -86,22 +77,19 @@ Reader:
 
 Amen. ****
 
-On Monday
-Kontakion. Tone 8.
+On Monday Kontakion. Tone 8.
 
 Jacob lamented the loss of Joseph, and the noble one was seated in a chariot, honoured like a king; for as he had not been slave to the pleasures of the Egyptian woman, he was glorified in return by the one who sees the hearts of men, and bestows an incorruptible crown.
 
 ****
 
-On Tuesday
-Kontakion. Tone 2
+On Tuesday Kontakion. Tone 2
 
 Think, miserable soul, on the hour of the end, and made fearful by the cutting down of the fig tree, work with love of toil at the talent given you, as you watch and cry: May we not be left outside Christ’s bridal chamber!
 
 ****
 
-On Wednesday
-Kontakion. Tone 4. Lifted up on the Cross.
+On Wednesday Kontakion. Tone 4. Lifted up on the Cross.
 
 I have transgressed far more than the harlot, O Good One, yet have never brought you showers of tears; but entreating in silence I fall before you, as I kiss your immaculate feet with love, that as Master you may grant me forgiveness of offences, as I cry out, my Saviour, ‘Deliver me from the filth of my works’.
 
@@ -147,18 +135,11 @@ Christ, the true light, you enlighten and sanctify everyone who comes into the w
 
 \[
 
-**In Athonite use the Reader adds:** ** To you my Champion and Commander I your city saved from disasters dedicate, O Mother of God, hymns of victory and thanksgiving; but as you have unassailable might from every kind of danger now deliver me, that I may cry to you: Hail, Bride without bridegroom!\]
-
-------------------------------------------------------------------------
-
-****
+**In Athonite use the Reader adds:** To you my Champion and Commander I your city saved from disasters dedicate, O Mother of God, hymns of victory and thanksgiving; but as you have unassailable might from every kind of danger now deliver me, that I may cry to you: Hail, Bride without bridegroom!\] ****
 
 On Wednesday we add
 
-CATECHESIS 72
-**On the saving Passion; and teaching on humility and patient endurance.
-Given on the Wednesday of Holy Week.
-By our venerable father Theodore the Studite.**
+CATECHESIS 72 **On the saving Passion; and teaching on humility and patient endurance. Given on the Wednesday of Holy Week. By our venerable father Theodore the Studite.**
 
 Brethren and Fathers, the present day is holy and to be venerated, for from this day the Lord begins to take on himself the sufferings of the Cross for our sake, in accordance with David’s words: *Why did the nations rage and the peoples imagine vain things? The kings of the earth rose up and the rulers assembled together against the Lord and against his Christ* \[
 
@@ -166,9 +147,6 @@ Psalm 2:1-2\]. They assembled together to plot an evil plan against the Master. 
 
 And Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 18 April 2008**

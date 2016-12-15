@@ -5,8 +5,6 @@ INTRODUCTION
 
 These three short discourses belong together and also to two others on *Repentance* and on *The Coming Judgement.* The style of the third is in places reminiscent of that of the *Ladder* of St John of Sinai and in the first there is what looks very like a quotation from the *Theotokion* that follows the *Eothinon* at Lauds on Sundays in the Byzantine office.
 
-------------------------------------------------------------------------
-
 ON LOVE
 =======
 
@@ -72,15 +70,10 @@ Do you not see, brethren, that we toil for nothing when we pray, if we have enmi
 
 See God’s unfathomable love for humankind. See God’s unbounded goodness. Hear instant salvation of your souls.
 
-------------------------------------------------------------------------
-
 <sup>1</sup>Literally ‘freedom to speak’, the privilege of the ancient Athenian democracy and later of those with privileged access to the Emperor, but in Christian theology it was Adam’s before the fall and is restored by Baptism. Cf. Ephesians 3,12; 1 John 3,21; 4,17; 5,14.
 
 <sup>2</sup> Literally *xerophagia*, or ‘dry eating’, that is uncooked food, as prescribed on many fast days and a feature of the more rigorous ascetic life.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

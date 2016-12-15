@@ -433,8 +433,7 @@ What human will ever suffice to sing the praise of Symeon’s blameless life? Ne
 
 Synaxarion.
 
-The Month of September, having 30 days.
-The day has 12 hours and the night 12 hours.
+The Month of September, having 30 days. The day has 12 hours and the night 12 hours.
 
 On the 1st of the month, Beginning of the Indiction, that is of the New Year.
 
@@ -442,8 +441,7 @@ On the 1st of the month, Beginning of the Indiction, that is of the New Year.
 
 Verses.
 
-New year’s Indiction bless for us, we pray,
-O you, both Ancient and, for mankind, New.
+New year’s Indiction bless for us, we pray, O you, both Ancient and, for mankind, New.
 
 Note that the Church of God celebrates the Indiction, having received the tradition from the ancients, for it was thought by the Romans that this Indiction marked the beginning of the year (the word Indiction means for the Romans ‘boundary’). Moreover because on this day Our Lord Jesus Christ entered the Synagogue of the Jews and being handed a book (it was that of the Prophet Isaias), He opened it and found the passage where it is written: ‘The Spirit of the Lord is upon me, therefore He has anointed me; He has sent me to preach the gospel to the poor; to heal the broken hearted; to proclaim forgiveness for prisoners, and sight to the blind; to proclaim an acceptable year of the Lord’ \[Is.61,1-2\]. Then he handed the book to the attendant, sat down and said: ‘To-day this Scripture has been fulfilled in your ears’. When too the crowds marvelled at the words of grace that came from his mouth \[Lk. 4,16-22\]
 
@@ -455,8 +453,7 @@ On the same day we commemorate the marvel which took place through the Holy Moth
 
 Verses.
 
-Strange was the catch that by itself came up
-From harbour’s depth: the Virgin’s honoured image.
+Strange was the catch that by itself came up From harbour’s depth: the Virgin’s honoured image.
 
 The commemoration of the Mother of God of the Miasini is kept because of the wonder-working and holy ikon of the Mother of God which had been thrown into the harbour of Zagouros, of the Monastery of the Miasini, through fear of the iconoclasts, and was, by God’s good pleasure, returned unharmed after many years.
 
@@ -468,9 +465,7 @@ On the same day, commemoration of our venerable Father Symeon the Stylite.
 
 Verses.
 
-His pillared station Symeon left behind,
-And took his stand beside the Word of God.
-High stepping Symeon died on the first of the month of September.
+His pillared station Symeon left behind, And took his stand beside the Word of God. High stepping Symeon died on the first of the month of September.
 
 Symeon the Stylite lived in the reign of Leo the Great and when Martyrios was Bishop of Antioch. He came from the Eparchy of Cilicia, from the village of Sesan. He adopted the monastic life and having ascended a column, he persevered there for forty seven years and having become the worker of many wonders he died in peace.
 
@@ -480,11 +475,9 @@ On the same day, commemoration of the Venerable Martha, mother of the Venerable 
 
 Verses.
 
-On earth of old once Martha welcomed Christ.
-Now Christ in heaven, Martha, welcomes you.
+On earth of old once Martha welcomed Christ. Now Christ in heaven, Martha, welcomes you.
 
-The sun that once he halted left behind,
-Now Jesus contemplates the Sun of glory.
+The sun that once he halted left behind, Now Jesus contemplates the Sun of glory.
 
 This Jesus was the son of Navi and successor of Moses as lawgiver for the Hebrews. He captured Jericho, a city of foreigners and saw the Chief Captain Michael holding a sword. On learning that he was the Chief Captain of the Power of the Lord, he threw away his arms and fell at his feet. Once when fighting a battle against foreigners the sun was about to set, so in his zeal for battle he prayed to God and said: ‘Let the sun stand still’; and at once the sun stopped in its course and did not set until he had mightily routed the foreigners. He was commander of the people and led them from the wilderness and apportioned to them the land of Promise, which is Palestine. He judged the people of Israel for twenty seven years, became the dread of his enemies and, having displayed his courage and virtue in many wars, died and was buried with honour by his own people.
 
@@ -494,11 +487,9 @@ On the same day, commemoration of the forty Holy Women Martyrs, Virgins and Asce
 
 Verses.
 
-For virgins double twenty fire and sword
-Secured as Bridegroom Christ the Son of God.
+For virgins double twenty fire and sword Secured as Bridegroom Christ the Son of God.
 
-A helmet heated in the flames Ammoun received:
-Stripped off his covering of flesh with joy.
+A helmet heated in the flames Ammoun received: Stripped off his covering of flesh with joy.
 
 These Martyrs were from Adrianoupolis in Macedonia, and being Christians they followed Christ, having as their teacher the Deacon Ammoun. Arrested by Vavdos the Governor of Adrianoupolis and fiercely tortured for not worshipping the idols they prayed to God, and the priest of the idols was suspended in mid-air, was punished for many hours then fell and perished. Saint Ammoun was strung up and his sides were burned; then a red-hot helmet was placed on his head. Delivered from this, he was sent with the holy Virgins from Verroi to Heraklion in Thrace, to the tyrant Licinius; and by the latter’s decision ten of them were thrown into the flames, eight with their teacher were beheaded; another ten died by being pierced with swords in face and heart, six were cut to pieces with knives, the rest departed to the Lord having been made to swallow lumps of heated iron.
 
@@ -508,8 +499,7 @@ On the same day, commemoration of the Holy Martyrs, sister and brothers, Evodos,
 
 Verses.
 
-Fairest \[**kalliston**\] indeed the end Kallisti found,
-With her two brothers, likewise fair\[**kalois**\], cut down.
+Fairest \[**kalliston**\] indeed the end Kallisti found, With her two brothers, likewise fair\[**kalois**\], cut down.
 
 These holy martyrs were sister and brothers, born from the same womb and born again spiritually from the divine font, at the times of the preaching. But when they were denounced to the Governor as Christians and the noble courage and unshakeable resolve of their soul was realised, the Governor passed sentence of death by the sword against them; and having thus completed the race of martyrdom, they departed to the Lord
 
@@ -863,8 +853,7 @@ Praise the Lord, for to sing his praise is good: may our praise delight our God.
 
 **Epistle to Timothy. See the 33rd Saturday.**\]
 
-The Reading is from the 2nd Epistle of Paul to Timothy.
-\[
+The Reading is from the 2nd Epistle of Paul to Timothy. \[
 
 **2:11-19**\] ****
 
@@ -874,11 +863,9 @@ hild Timothy, the word is sure: if we have suffered with him, we shall also live
 
 \[A
 
-**nd another Epistle, for the Saint, to the Colossians.
-See the 30th Sunday.**\]
+**nd another Epistle, for the Saint, to the Colossians. See the 30th Sunday.**\]
 
-The Reading is from the Epistle of Paul to the Colossians.
-\[
+The Reading is from the Epistle of Paul to the Colossians. \[
 
 **3:12-16**\] ****
 
@@ -896,8 +883,7 @@ Verse 2:
 
 We shall be filled with the good things of your house: holy is your temple, wonderful in justice.
 
-Gospel according to Luke.
-\[
+Gospel according to Luke. \[
 
 **4:12-16**\]
 
@@ -939,9 +925,6 @@ At the Liturgy, Typika and Beatitudes, with of which 4 Troparia of the Resurrect
 
 \[After the Prayer behind the Ambo at once the Apolytiokion and Kontakion of the Saints are sung with the one to the Mother of God. After the blessing of the Kollyva the Priest enters the sanctuary, while we begin Psalm 142 and the usual Lesser Blessing of water for the 1st of the month is sung.\]
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

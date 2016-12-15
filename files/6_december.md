@@ -30,8 +30,7 @@ Holy Nicolas, sacred herald of Christ, you are a great and fervent helper for th
 
 ****
 
-Other Prosomia. Same Tone.
-With what garlands of praise.
+Other Prosomia. Same Tone. With what garlands of praise.
 
 With what garlands of praise may I bind the brow of the High Priest? In body he was in Myra, in spirit he comes to all who sincerely love him; the comfort of the afflicted, refuge of all in dangers, tower of true religion, champion of the faithful; the one through whom the arrogance of the ill-intentioned was cast down by Christ who has great mercy.
 
@@ -57,22 +56,19 @@ Entrance.
 
 O Joyful Light, **the Prokeimenon of the day and the Readings.**
 
-The Reading is from Proverbs.
-\[
+The Reading is from Proverbs. \[
 
 **10:7; 3:13-16 & selection**\]
 
 The memory of the just is with praises, and the Lord’s blessing of is upon his head. Blessed is the one who finds wisdom, and the mortal who knows understanding. For it is better to trade for her than for treasures of gold or silver. She is more precious than valuable stones; nothing evil can stand against her; she is well known to all who draw near her; nothing precious matches her worth. From her mouth comes justice, she bears law and mercy on her tongue. Therefore listen to me, my children, for I shall speak noble things; and blessed is the one who will keep my ways. For my issues are issues of life, and favour is prepared by the Lord. Therefore I beseech you and utter my voice to the children of mankind. Because I, Wisdom, have prepared counsel and knowledge and I have called upon understanding. Counsel and assurance are mine, understanding is mine, strength is mine. I love those who are my friends, while those who seek me will find grace. And so you simple folk understand subtlety, you untaught lay it to heart. Hearken to me again, for I shall speak noble things, and I shall open my mouth to speak things that are right. Because my throat will meditate truth, but lying lips are abominations before me. All the words of my mouth are with justice; there is nothing twisted in them or crooked. They are all straight to those who understand, and right to those that find knowledge. For I teach you what is true, that your hope may be in the Lord, and you may be filled with Spirit.
 
-The Reading is from Proverbs.
-\[
+The Reading is from Proverbs. \[
 
 **10:31-32 & 11:1-12**\]
 
 The mouth of the just drops wisdom; but the tongue of the unjust will be cut out. The lips of just men know graces; but the mouth of the impious is turned away. A false balance is an abomination before the Lord; but a just weight is acceptable to him. Wherever pride enters, there too dishonour; but the mouth of the humble meditates wisdom. The perfection of the upright will guide them, but the crookedness of the treacherous will carry them off. Possessions do not profit in the day of wrath, but justice will deliver from death. When a just man dies he leaves regret; ready and welcome is the destruction of the ungodly. The justice of the blameless keeps their ways straight, but impiety falls in with injustice. The justice of upright men will deliver them, but transgressors are caught by base counsel. When a just man dies his hope does not perish; but the boast of ungodly people perishes. A just man escapes from the hunt, but the ungodly is given up in his place. In the mouth of the ungodly people is a snare for citizens, but the perception of the just brings prosperity. By the good things of the just a city is successful, and in the loss of the ungodly there is gladness. By the blessing of the upright a city will be exalted, but by the mouth of the ungodly it will be overthrown. One who lacks sense sneer at their fellow citizens, an intelligent man practices stillness.
 
-The Reading is from the Wisdom of Solomon.
-\[
+The Reading is from the Wisdom of Solomon. \[
 
 **4:7-15**\]
 
@@ -80,8 +76,7 @@ The just, though he die early, will be at rest. For old age is not honoured for 
 
 ****
 
-At the Liti we sing Idiomels.
-Tone 1.
+At the Liti we sing Idiomels. Tone 1.
 
 You fixed your gaze unflinchingly on the height of knowledge and inscrutably contemplated the depth of wisdom, Father. Ever beseech Christ for us, Hierarch Nicolas.
 
@@ -155,9 +150,6 @@ And Dismissal.
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

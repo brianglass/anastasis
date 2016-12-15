@@ -39,22 +39,19 @@ Verse:
 
 The Lord shepherds me, and I will lack nothing.
 
-The Reading is from the Prophecy of Micheas.
-\[
+The Reading is from the Prophecy of Micheas. \[
 
 **4:2, 6:2.5.8, 5:4**\]
 
 Thus says the Lord: From Sion will come forth the Law and the Word of the Lord from Jerusalem. And he will judge among many peoples and rebuke mighty nations in a distant land. For all the peoples will walk, each its own way, while we will walk in the name of the Lord our God for ever. Thus says the Lord Almighty: Listen hills and valleys, foundations of the earth, because the Lord has a controversy with his people; for he will dispute with Israel, saying, ‘My people, what have I done to you? Or how have I grieved you? Or how have I troubled you? Answer me. For I brought you up out of the land of Egypt, and rescued you from the house of slavery, and sent Moses and Aaron before your face. My people, what have your enemies planned against you? Was it not told you, O man, what is good? And what does the Lord seek from you, except to execute judgement, and to love mercy and to be ready to walk with the Lord your God?’ Therefore the Lord will be magnified in strength, and will shepherd his flock in peace, to the extremities of the earth.
 
-The Reading is from the Prophecy of Isaias
-\[
+The Reading is from the Prophecy of Isaias \[
 
 **55:1-2, 12:3-4, 55:2-3, 6-13**\]
 
 Thus says the Lord: You who thirst, go to the water; and all who have no money, go, buy and eat and drink wine and fat without money or price. For thus says the Lord Almighty to you: My people, draw water with joy from the springs of salvation. And you will say in that day: Praise the Lord, cry his name aloud, declare his glory among the nations, call to mind that his name has been exalted. My people, hear me, and eat good things, and your soul will delight in good things. Attend with your ears and follow my ways. Listen to me and your soul will live among good things. And I will make an eternal covenant with you, and you will call upon me. And when you draw near me, let the impious abandon his ways, and the lawless man his plans; and turn back to me and I will have mercy on you and forgive your sins. For your plans are not as my plans, says the Lord; but as heaven is distant from the earth, so is my way distant from your ways, and your thoughts from my mind. For as rain or snow would come down from heaven and not return there, until it had soaked the earth, and it bring forth and bud and give seed to the sower, and bread for food, so shall my word be, which once it has come from my mouth will not return there until it has accomplished all that I willed; and I will make my ways and my commands succeed. For you will go out with joy, and be taught with gladness; for the mountains and hills will exult as they receive you with joy; and all the trees of the field will clap with their branches; and instead of the briar shall come up the cypress; instead of the nettle shall come up the myrtle; and the Lord shall be for a name and for an eternal sign, says the Lord God, the Holy One of Israel.
 
-The Reading is from Proverbs
-\[
+The Reading is from Proverbs \[
 
 **9:1-11**\]
 
@@ -62,8 +59,7 @@ Wisdom has built herself a house, and has set up seven pillars; she has slaughte
 
 ****
 
-At the Aposticha, Idiomel Verses. Tone 1.
-By Monk John.
+At the Aposticha, Idiomel Verses. Tone 1. By Monk John.
 
 The mid-point of the Fifty Days is here, when Christ dimly laid bare his divine power by bracing the Paralytic and raising him from his bed with a word. And having worked a marvel in a manner fitting God on a body of clay, he has given us eternal life and his great mercy.
 
@@ -101,9 +97,6 @@ At the mid-point of the Feast, O Saviour, water my thirsty soul with streams of 
 
 Litany and Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

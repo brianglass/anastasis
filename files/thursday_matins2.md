@@ -21,7 +21,7 @@ Wise Fishermen of the whole world, as you have received God’s compassion, now 
 
 Verse:
 
-** Their sound has gone out into all the earth; and their words to the end of the world. ****
+Their sound has gone out into all the earth; and their words to the end of the world. ****
 
 When the stone had been sealed.
 
@@ -45,7 +45,7 @@ Let us the faithful honour with hymns the tuneful trumpets of Christ, the horses
 
 Verse:
 
-** The heavens confess your wonders, Lord; and your truth in the Church of the Saints. ****
+The heavens confess your wonders, Lord; and your truth in the Church of the Saints. ****
 
 Same melody.
 
@@ -55,7 +55,7 @@ The Light which outside time shone from Light, in time appeared in flesh to thos
 
 Verse:
 
-** God is wonderful in his Saints, the God of Israel. ****
+God is wonderful in his Saints, the God of Israel. ****
 
 Of the Martyrs. Same melody.
 
@@ -63,15 +63,13 @@ Let us all beseech Christ’s Martyrs, for they ask for our salvation; and let u
 
 Glory. Both now.
 
-**Theotokion.
-Same melody.**
+**Theotokion. Same melody.**
 
 The godly Disciples and Apostles by their inspired teachings proclaimed your ineffable birth-giving, O Maiden, immaculate Mother of God, teaching that you should be fittingly worshipped; but we beg you: with them ask that those who honour you in faith may be saved.
 
 ****
 
-Canon of the Holy Apostles.
-Ode 1. Irmos.
+Canon of the Holy Apostles. Ode 1. Irmos.
 
 Your triumphant right hand, in a manner fitting God, has been glorified in strength, O Immortal; for in its infinite strength it broke in pieces the enemy, and made a strange new way for the Israelites in the deep.
 
@@ -267,9 +265,6 @@ Joy of the heavenly hosts.
 
 Like the Prophets let us hymn the Virgin as golden jar of the manna, bush unburned, table and throne, golden lampstand that holds the lamp, unhewn mountain, ark of sanctification and gate of God.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

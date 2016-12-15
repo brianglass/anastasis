@@ -184,8 +184,7 @@ It is good to give thanks to the Lord, \* and to sing to your name, O Most High.
 
 Verse:
 
-To declare your love in the morning, and your truth each day.
-\[The LXX in fact has ‘in the night’, but in the liturgical use of this verse ‘night is often replaced by ‘day’ .\]
+To declare your love in the morning, and your truth each day. \[The LXX in fact has ‘in the night’, but in the liturgical use of this verse ‘night is often replaced by ‘day’ .\]
 
 The Reading is from the Prophecy of Isaias.
 
@@ -225,8 +224,7 @@ The Reading is from Genesis.
 
 When Abram was ninety nine years old the Lord appeared to him and said, ‘I am your God; be well-pleasing before me and be blameless, and I will establish my covenant between me and you and I will multiply you greatly.’ And Abram fell on his face and God spoke to him saying, ‘See, my covenant is with you, and you will be the father of many nations. And your name will no longer be called Abram, but your name will be Abraham, because I have made you the father of many nations. And I will increase you greatly and I will make nations from you and kings will come forth from you. And I will set my covenant between you and your seed after you to all generations for an eternal covenant, for me to be your God and that of your seed after you. And I will give you and your seed the land on which you are dwelling, all the land of Canaan for an everlasting possession, and I shall be God for them’. And God said to Abraham, ‘You are to keep my covenant, you and your seed after to all their generations.’
 
-Prokeimenon in the 6th Tone. Psalm 95.
-\[
+Prokeimenon in the 6th Tone. Psalm 95. \[
 
 For some reason Psalm 94 is omitted from the series of Prokeimena.\]
 
@@ -242,15 +240,13 @@ The Reading is from Proverbs.
 
 \[
 
-**15,20-34 & 16,3-9**\]
-\[The reading is in fact continuous, but the arrangement of the verses differs widely between the MT and the LXX at this point.\]
+**15,20-34 & 16,3-9**\] \[The reading is in fact continuous, but the arrangement of the verses differs widely between the MT and the LXX at this point.\]
 
 A wise son gives his father joy, but a foolish son sneers at his mother. The paths of the senseless lack intelligence, but a prudent man walks straight. Those who do not honour councils postpone thoughts, but counsel dwells in the hearts of those who take counsel. The wicked will in no way obey it, nor will he say anything appropriate or for the common good. The thoughts of the wise are ways of life, that turning aside he may be saved from Hell. The Lord pulls down the houses of scorners, but establishes the border of widows. An unjust thought is an abomination to the Lord, but the sayings of the pure are reverenced. One who receives bribes destroys himself, but the person who hates to take bribes will be saved. Sins are purged away by almsgiving and faithful dealings, \[
 
 The pious baronet notes that this most unprotestant verse is not in the Hebrew, ‘nor any such doctrine’! The verse occurs as 16:6 in the Hebrew in a somewhat different form.\] but by fear of the Lord everyone turns from evil. The hearts of the righteous meditate faithfulness, but the mouth of the ungodly gives wicked answers. The ways of just men are acceptable to the Lord, while through them even enemies become friends. God goes far away from the ungodly, but hearkens to prayers of the just. Better a small income with justice than large receipts with injustice. Let the heart of a man consider what is just, that his steps may be set right by God. An eye that sees rightly rejoices the heart, while a good reputation fattens the bones. One who rejects instruction hates himself, but one who guards reproofs loves his own soul. Fear of God is instruction and wisdom, and the beginning of glory will answer it. All the works of the humble are manifest with God, while the ungodly will perish in an evil day. Everyone who is proud hearted is unclean with God, and one who strikes hands with hand will not be held guiltless. The beginning of a good way is to do what is just, it is more acceptable to the Lord than sacrificing sacrifices. One who seeks the Lord will find knowledge with justice, while those who seek him rightly will find peace. All the works of the Lord are done with justice, but the ungodly is kept for an evil day. ****
 
-And the rest of the Office of the Presanctified.
-In the Refectory we take wine. We sing Compline in our cells.
+And the rest of the Office of the Presanctified. In the Refectory we take wine. We sing Compline in our cells.
 
 ****
 
@@ -376,7 +372,7 @@ Prokeimenon in the 4th Tone. Psalm 101.
 
 Lord, hearken to my prayer, \* and let my cry come to you.
 
-******
+****
 
 Verse:
 
@@ -406,7 +402,7 @@ Prokeimenon in the 4th Tone. Psalm 103.
 
 How magnificent are your works, O Lord, \* with wisdom you have made them all.
 
-******
+****
 
 Verse:
 
@@ -424,9 +420,6 @@ Let brothers be useful in time of need, for this they are born. A foolish man cl
 
 And the rest of the Office of the Presanctified. At Compline we sing the Canon for the dead of the prevailing Tone and likewise that of the Saint of the day in the Menaion.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

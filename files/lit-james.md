@@ -195,8 +195,7 @@ Deacon:
 
 Let us attend. ****
 
-The Reader reads the Apostle.
-At the completion of the Apostle, the Priest says:
+The Reader reads the Apostle. At the completion of the Apostle, the Priest says:
 
 Peace to you.
 
@@ -306,8 +305,7 @@ Then the Preacher expounds the word of God.
 
 Then the Deacon, standing in front of the holy Door, facing the People, says:
 
-Let us be devoutly attentive.
-In peace let us pray to the Lord.
+Let us be devoutly attentive. In peace let us pray to the Lord.
 
 ****
 
@@ -1223,9 +1221,6 @@ Priest, aloud:
 
 Blessed is God, who blesses and sanctifies, protects and gives peace, and preserves the life of us all through the communion of his holy, immaculate and life-giving mysteries, which we have been counted worthy to receive, always, now and for ever, and to the ages of ages. Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -1,8 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](egypt-int.md) \]
 
- 
-
- 
+   
 
 1st Exhortation
 ---------------
@@ -75,9 +73,8 @@ Let there then be eagerness by all of us to be delivered from our sins; for if w
 
 About the scandals which occur, we know one who said, *Judge not, and you will not be judged; by the judgement with which you judge, you will be judged; and by the measure with which you measure, it will be measured out to you in turn*. That you may have help in this thought, consider that the just Lot dwelt in Sodom, but was not led away with their pride and licentiousness; and so he was saved, as it is written, *For that just man, living among them day after day, was tormented in his just soul by their lawless deeds*. But he adds something when he says, *The Lord knows how to deliver the godly from trials, and to keep the unjust under punishment until the day of judgement* and so forth. So it is not a question of self-mastery and meekness to-day, and dissoluteness and pride to-morrow. Of stillness, vigil and humility to-day, and temptations, immoderate sleep and disobedience and suchlike things to-morrow. Of renunciation of the world, renunciation of earthly affairs, renunciation of fatherland and friends and parents according to the flesh to-day because of hope in the Lord, and tomorrow let us seek country and fatherland and inheritance, to sink ourselves in many evils. For Lot’s wife turned back and became a pillar of salt. And so the Lord also teaches when he says, *No one who puts his hand to the plough and turns back is fit for the kingdom of heaven*. So always keep in mind that day on which, when you had put everything aside, you left the world for the Lord’s sake, and when you were fired by the fear of God, and fervent in spirit for the Lord. And keep the goal until the end, for the one who endures to the end will be saved, that you may receive the reward of your work with eternal life; because you have approached the true God and despised all things that you may gain Christ, to whom be glory to the ages. Amen.
 
-9th Exhortation. On obedience.
-Another title: On perseverance and endurance
---------------------------------------------
+9th Exhortation. On obedience. Another title: On perseverance and endurance
+---------------------------------------------------------------------------
 
 \[*Thwaites*\]
 
@@ -90,9 +87,6 @@ My brother, do not lose heart at the thoughts which attack you; for it is the be
 
 Do not be a coward then, and do not fear their wickedness; they cannot harm you, who have Christ as your helper. For the Apostle says, *For God did not give a spirit of cowardice, but rather a spirit of power and love and self-discipline*. And again &lt;the&gt; Lord said to his disciples, *I saw Satan as lightning falling from heaven. See, I have given you authority to trample on snakes and scorpions, and upon every power of the foe, and nothing at all will hurt you*. And so, beloved, play the man and be strong in God, for his mercy endures for ever. But if they bring us the memory of our parents according to the flesh, let us say to them, ‘It is written *he lays up treasure, and does not know for whom he will gather it*. And again, *The fool and the senseless will perish together and leave their wealth to strangers*; so offences are for me, money for another. This is no good for me, it is a great evil! And so we have not been taught to amass *treasure on earth, where moth and rust destroy, and thieves dig through and steal. Where your treasure is, there, he says, your heart will be also*. Blessed is God who gives us strength against our invisible foes. To him be glory to the ages of ages. Amen. 
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

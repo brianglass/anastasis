@@ -12,7 +12,7 @@ Tone 4. Come speedily to help.
 
 Armed with the Cross your Champions conquered the devices of the enemy, source of evil, O Christ our God: they shone like beacons, guiding mortals, they grant healings to those who ask in faith. At their intercessions save our souls.
 
-**Verse: ** God is wonderful in his saints, the God of Israel.**
+**Verse: God is wonderful in his saints, the God of Israel.**
 
 Clothed as in purple and fine linen with the blood of your Martyrs throughout the world, your Church cries out to you through them, Christ God: Send down your pity on your people, grant peace to your commonwealth, and to our souls your great mercy.
 
@@ -40,7 +40,7 @@ Today the armies of the Angels are present in memory of the Champions to enlight
 
 Verse:
 
-** Many are the afflictions of the righteous; but the Lord will deliver them from them all. ****
+Many are the afflictions of the righteous; but the Lord will deliver them from them all. ****
 
 Others, of the Dead.
 
@@ -52,7 +52,7 @@ As you are all-powerful and alone immortal, give rest, O Lord, to the souls whic
 
 Verse:
 
-** Blessed are those that you have chosen and taken; they will dwell in your courts.
+Blessed are those that you have chosen and taken; they will dwell in your courts.
 
 Having passed through this temporary life, those who have lived faithfully have crossed over to you, compassionate Lord; set them in the place of pardon, stand them at your right hand on the day of judgement, overlooking the things by which they offended.
 
@@ -472,7 +472,7 @@ Truly most terrible is the mystery of death! How violently the soul is separated
 
 Verse:
 
-** Blessed are those whom you have chosen and taken.
+Blessed are those whom you have chosen and taken.
 
 The death of those who believe has been declared a sleep, for you, the Master of all, were placed in a grave abolished the might of death and destroyed his long-enduring dominion. Therefore we implore you: Establish those who have passed over in the tents of your Saints, in your pure mansions.
 
@@ -480,7 +480,7 @@ The death of those who believe has been declared a sleep, for you, the Master of
 
 Verse:
 
-** Their souls will dwell among good things.
+Their souls will dwell among good things.
 
 You have become for us justice, sanctification and redemption of our souls; for you brought us, justified and redeemed, to the Father, taking on yourself on our behalf the penalty we owed. And now we entreat you: Give rest in joy and radiance, O Saviour and Benefactor, to those who have passed over.
 
@@ -488,7 +488,7 @@ You have become for us justice, sanctification and redemption of our souls; for 
 
 Verse:
 
-** And their memorial is from generation to generation.
+And their memorial is from generation to generation.
 
 The human race has been recalled from corruption to incorruption that cannot be destroyed, washed by the Blood that was emptied from your side, O Saviour, with which you washed away our transgression and that of our forebears. Therefore, O Lover of mankind, now count your servants who have passed from temporary things worthy of the splendour of heaven.
 
@@ -524,18 +524,10 @@ The Word, whom the Father begot before the Morning Star, you conceived in your w
 
 **END OF THE FOURTH TONE.**
 
-A festal and a dancing tone, you bear
-By musical opinion a fourth boast.
-Dancers you welcome, and you form them too,
-To voices give the prize, on cymbals beat.
-You, the fourth Tone, as filled with melodies,
-The serried lines of dancers eulogise.
+A festal and a dancing tone, you bear By musical opinion a fourth boast. Dancers you welcome, and you form them too, To voices give the prize, on cymbals beat. You, the fourth Tone, as filled with melodies, The serried lines of dancers eulogise.
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

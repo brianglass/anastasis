@@ -14,23 +14,19 @@ Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, no
 
 The appointed monk or the Superior reads the Opening Psalm as follows:
 
-Amen. Come let us worship and fall down before the King, our God.
-Come let us worship and fall down before Christ the King, our God.
-Come let us worship and fall down before Christ himself, the King and our God.
+Amen. Come let us worship and fall down before the King, our God. Come let us worship and fall down before Christ the King, our God. Come let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
 Psalm 103
 
-Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heron’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth has been filled with your creation. Also this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. When you open your hand **** all things will be filled with goodness. But when you turn away your face they will be troubled. You will take away their spirit, and they will perish and return to their dust. You will send forth your spirit, and they will be created, and you will renew the face of the earth. May the glory of the Lord endure to the ages. The Lord will rejoice at his works. He looks upon the earth and makes it tremble. He touches the mountains, and they smoke. I will sing to the Lord while I live; I will praise my God while I exist. May my words be pleasing to him. While as for me, I shall rejoice in the Lord. O that sinners might perish from the earth, and the wicked, so that they are no more. Bless the Lord, my soul! ****
+Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heron’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth has been filled with your creation. Also this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. When you open your hand all things will be filled with goodness. But when you turn away your face they will be troubled. You will take away their spirit, and they will perish and return to their dust. You will send forth your spirit, and they will be created, and you will renew the face of the earth. May the glory of the Lord endure to the ages. The Lord will rejoice at his works. He looks upon the earth and makes it tremble. He touches the mountains, and they smoke. I will sing to the Lord while I live; I will praise my God while I exist. May my words be pleasing to him. While as for me, I shall rejoice in the Lord. O that sinners might perish from the earth, and the wicked, so that they are no more. Bless the Lord, my soul! ****
 
 And again
 
 The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit.
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
+Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
 
 ****
 
@@ -242,13 +238,13 @@ Today the Master of creation stands before Pilate, and the Creator of all things
 
 Glory.
 
-**** Tone 6**
+**Tone 6**
 
 Ah! how did the lawless assembly condemn the King of creation to death, without shame as they recalled benefits with which had protected them, as he reminded them, saying, ‘My people, what I have done to you? Have I not filled Judea with marvels? Have I not raised the dead with a word? Have I not healed every sickness and disease? How then have you repaid me? Why have you forgotten me, giving me blows for healings; putting me to death in return for life; hanging your benefactor on a Tree as a malefactor, the lawgiver as a lawbreaker, the King of all as one condemned’. Long-suffering Lord, glory to you!
 
 Both now.
 
-**** Same Tone**
+**Same Tone**
 
 A dread and marvellous mystery is seen to come to pass today. The Invisible is grasped, the One who loosed Adam from the curse is bound, the One who tries hearts and reins is tried; the One who shut the abyss is shut up in prison. He, before whom the Powers of heaven stand in fear, stands before Pilate; the Fashioner is struck by hand of the thing he fashioned; he who judges the living and the dead, is condemned to a Tree; the destroyer of Hell is shut up in a tomb. You bear all things with compassion, and save all from the curse, long-suffering Lord, glory to you!
 
@@ -262,9 +258,7 @@ Wisdom. Stand upright! ****
 
 We say
 
-THE THANKSGIVING
-AT THE LIGHTING OF THE LAMPS
-**An ancient poem, or, as some say, by the martyr Athenogenes.**
+THE THANKSGIVING AT THE LIGHTING OF THE LAMPS **An ancient poem, or, as some say, by the martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life: therefore the world glorifies you.
 
@@ -292,7 +286,7 @@ Wisdom! ****
 
 Reader:
 
-** The Reading is from Exodus.
+The Reading is from Exodus.
 
 \[
 
@@ -304,7 +298,7 @@ Let us attend. ****
 
 Reader:
 
-** Thus the Lord used to speak to Moses face to face, as one speaks to a friend. Then he would return to the camp; but his servant, Jesus son of Nun, would not leave the tent. Moses said to the Lord, ‘See, you have said to me, ‘Bring up this people’; but you have not let me know whom you will send with me. Yet you have said, ‘I know you by name, and you have also found favour in my sight.’ Now if I have found favour in your sight, show me your ways, so that I may know you and find favour in your sight. Consider too that this nation is your people.’ He said, ‘My presence will go with you, and I will give you rest.’ And he said to him, ‘If your presence will not go, do not carry us up from here. For how shall it be known that I have found favour in your sight, I and your people, unless you go with us? In this way, we shall be distinct, I and your people, from every people on the face of the earth.’ The Lord said to Moses, ‘I will do the very thing that you have asked; for you have found favour in my sight, and I know you by name.’ Moses said, ‘Show me your glory, I pray.’ And he said, ‘I will make all my goodness pass before you, and will proclaim before you the name, ‘The Lord’; and I will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy. But,’ he said, ‘you cannot see my face; for no one shall see me and live.’ And the Lord continued, ‘See, there is a place by me where you shall stand on the rock; and while my glory passes by I will put you in a cleft of the rock, and I will cover you with my hand until I have passed by; then I will take away my hand, and you shall see my back; but my face shall not be seen.’ ****
+Thus the Lord used to speak to Moses face to face, as one speaks to a friend. Then he would return to the camp; but his servant, Jesus son of Nun, would not leave the tent. Moses said to the Lord, ‘See, you have said to me, ‘Bring up this people’; but you have not let me know whom you will send with me. Yet you have said, ‘I know you by name, and you have also found favour in my sight.’ Now if I have found favour in your sight, show me your ways, so that I may know you and find favour in your sight. Consider too that this nation is your people.’ He said, ‘My presence will go with you, and I will give you rest.’ And he said to him, ‘If your presence will not go, do not carry us up from here. For how shall it be known that I have found favour in your sight, I and your people, unless you go with us? In this way, we shall be distinct, I and your people, from every people on the face of the earth.’ The Lord said to Moses, ‘I will do the very thing that you have asked; for you have found favour in my sight, and I know you by name.’ Moses said, ‘Show me your glory, I pray.’ And he said, ‘I will make all my goodness pass before you, and will proclaim before you the name, ‘The Lord’; and I will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy. But,’ he said, ‘you cannot see my face; for no one shall see me and live.’ And the Lord continued, ‘See, there is a place by me where you shall stand on the rock; and while my glory passes by I will put you in a cleft of the rock, and I will cover you with my hand until I have passed by; then I will take away my hand, and you shall see my back; but my face shall not be seen.’ ****
 
 After the reading:
 
@@ -330,7 +324,7 @@ Wisdom! ****
 
 Reader:
 
-** The Reading is from Job.
+The Reading is from Job.
 
 \[
 
@@ -342,7 +336,7 @@ Let us attend. ****
 
 Reader:
 
-** The Lord blessed the latter days of Job more than his beginning; and he had fourteen thousand sheep, six thousand camels, a thousand yoke of oxen, and a thousand donkeys. He also had seven sons and three daughters. He named the first Day, the second Cassia, and the third Horn of Amaltheia. In all the land there were no women so beautiful as Job’s daughters; and their father gave them an inheritance along with their brothers. After this Job lived one hundred and forty years, and saw his children, and his children’s children, four generations. And Job died, old and full of days. It is written that he will rise again with those whom the Lord raises. He is described in the Syriac book as dwelling in the land of Ausis, on the borders of Idumea and Arabia. His name before was Jobab and he took an Arabian wife and begot a son named Enon. He himself was the son of his father Zare, one of the sons of Esau. His mother was Bosorra, so that was fifth in descent from Abraham. ****
+The Lord blessed the latter days of Job more than his beginning; and he had fourteen thousand sheep, six thousand camels, a thousand yoke of oxen, and a thousand donkeys. He also had seven sons and three daughters. He named the first Day, the second Cassia, and the third Horn of Amaltheia. In all the land there were no women so beautiful as Job’s daughters; and their father gave them an inheritance along with their brothers. After this Job lived one hundred and forty years, and saw his children, and his children’s children, four generations. And Job died, old and full of days. It is written that he will rise again with those whom the Lord raises. He is described in the Syriac book as dwelling in the land of Ausis, on the borders of Idumea and Arabia. His name before was Jobab and he took an Arabian wife and begot a son named Enon. He himself was the son of his father Zare, one of the sons of Esau. His mother was Bosorra, so that was fifth in descent from Abraham. ****
 
 Priest:
 
@@ -350,7 +344,7 @@ Wisdom! ****
 
 Reader:
 
-** The Reading is from the Prophecy of Isaias.
+The Reading is from the Prophecy of Isaias.
 
 \[
 
@@ -362,7 +356,7 @@ Let us attend. ****
 
 Reader:
 
-** Thus says the Lord: See, my servant will understand; he shall be exalted and glorified exceedingly. Just as there many will be astonished at you, so your appearance will be without glory from men, and your glory from the sons of men. So many nations will marvel at him; kings shall shut their mouths; for that which had not been told them about him they shall see, and that which they had not heard they shall contemplate. Who has believed what we have heard? And to whom has the arm of the Lord been revealed? We brought a report as of a child before him, as a root out of dry ground; he had no form or glory, and we saw him, and he had neither form nor beauty. But his form was without honour and inferior to the children of men. He was a man in suffering and acquainted with bearing weakness, because his face has been away, he was dishonoured and not esteemed. He bears our sins and is in pain for us. We reckoned him to be in toil and in affliction and trouble. But he was wounded for our sins and crushed for our iniquities; upon him was the punishment of our peace, and by his bruises we are healed. All we like sheep have gone astray; every one has gone astray in their own way, and the Lord handed him over for our sins. And he, because of his affliction, does not open his mouth; like a sheep he was led to the slaughter, and like a lamb before its shearer is silent, so he does not open his mouth. In his humiliation his judgement was taken away; who shall declare his generation? for his life is taken away from the earth; because of the iniquities of my people he was led to death. And I will give the evil for his burial and the rich for his death, because he practised no iniquity, nor was there guile in his mouth. And the Lord wishes to cleanse him of his blow. If you give an offering for sin, your soul will seed a long-lived descendence. And the Lord wishes to take away from the toil of his soul, to show him light and to fashion him with understanding, to justify the just one, who serves many well, and he will bear their sins. Therefore he will inherit many and divide the spoils of the strong. Because his soul was handed over to death, and was numbered with the transgressors; and he bore the sin of many, and was handed over because of their iniquities. Rejoice, barren one who do not give birth, break out and cry, you who are not in labour, for the children of the desolate are more than those of her that has a husband. ****
+Thus says the Lord: See, my servant will understand; he shall be exalted and glorified exceedingly. Just as there many will be astonished at you, so your appearance will be without glory from men, and your glory from the sons of men. So many nations will marvel at him; kings shall shut their mouths; for that which had not been told them about him they shall see, and that which they had not heard they shall contemplate. Who has believed what we have heard? And to whom has the arm of the Lord been revealed? We brought a report as of a child before him, as a root out of dry ground; he had no form or glory, and we saw him, and he had neither form nor beauty. But his form was without honour and inferior to the children of men. He was a man in suffering and acquainted with bearing weakness, because his face has been away, he was dishonoured and not esteemed. He bears our sins and is in pain for us. We reckoned him to be in toil and in affliction and trouble. But he was wounded for our sins and crushed for our iniquities; upon him was the punishment of our peace, and by his bruises we are healed. All we like sheep have gone astray; every one has gone astray in their own way, and the Lord handed him over for our sins. And he, because of his affliction, does not open his mouth; like a sheep he was led to the slaughter, and like a lamb before its shearer is silent, so he does not open his mouth. In his humiliation his judgement was taken away; who shall declare his generation? for his life is taken away from the earth; because of the iniquities of my people he was led to death. And I will give the evil for his burial and the rich for his death, because he practised no iniquity, nor was there guile in his mouth. And the Lord wishes to cleanse him of his blow. If you give an offering for sin, your soul will seed a long-lived descendence. And the Lord wishes to take away from the toil of his soul, to show him light and to fashion him with understanding, to justify the just one, who serves many well, and he will bear their sins. Therefore he will inherit many and divide the spoils of the strong. Because his soul was handed over to death, and was numbered with the transgressors; and he bore the sin of many, and was handed over because of their iniquities. Rejoice, barren one who do not give birth, break out and cry, you who are not in labour, for the children of the desolate are more than those of her that has a husband. ****
 
 Priest:
 
@@ -394,11 +388,11 @@ The reading is from the 1st Epistle of Paul to the Corinthians.
 
 Priest
 
-** Let us attend. ****
+Let us attend. ****
 
 Reader:
 
-** Brethren, the message about the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. For it is written, ‘I will destroy the wisdom of the wise, and the discernment of the discerning I will thwart.’ Where is the one who is wise? Where is the scribe? Where is the debater of this age? Has not God made foolish the wisdom of the world? For since, in the wisdom of God, the world did not know God through wisdom, God decided, through the foolishness of our proclamation, to save those who believe. For Jews demand signs and Greeks desire wisdom, but we proclaim Christ crucified, a stumbling block to Jews and foolishness to Gentiles, but to those who are the called, both Jews and Greeks, Christ the power of God and the wisdom of God. For God’s foolishness is wiser than human wisdom, and God’s weakness is stronger than human strength. Consider your own call, brothers and sisters: not many of you were wise by human standards, not many were powerful, not many were of noble birth. But God chose what is foolish in the world to shame the wise; God chose what is weak in the world to shame the strong; God chose what is low and despised in the world, things that are not, to reduce to nothing things that are, so that no one might boast in the presence of God. He is the source of your life in Christ Jesus, who became for us wisdom from God, and righteousness and sanctification and redemption, in order that, as it is written, ‘Let the one who boasts, boast in the Lord.’ When I came to you, brothers and sisters, I did not come proclaiming the mystery of God to you in lofty words or wisdom. For I decided to know nothing among you except Jesus Christ, and him crucified. ****
+Brethren, the message about the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. For it is written, ‘I will destroy the wisdom of the wise, and the discernment of the discerning I will thwart.’ Where is the one who is wise? Where is the scribe? Where is the debater of this age? Has not God made foolish the wisdom of the world? For since, in the wisdom of God, the world did not know God through wisdom, God decided, through the foolishness of our proclamation, to save those who believe. For Jews demand signs and Greeks desire wisdom, but we proclaim Christ crucified, a stumbling block to Jews and foolishness to Gentiles, but to those who are the called, both Jews and Greeks, Christ the power of God and the wisdom of God. For God’s foolishness is wiser than human wisdom, and God’s weakness is stronger than human strength. Consider your own call, brothers and sisters: not many of you were wise by human standards, not many were powerful, not many were of noble birth. But God chose what is foolish in the world to shame the wise; God chose what is weak in the world to shame the strong; God chose what is low and despised in the world, things that are not, to reduce to nothing things that are, so that no one might boast in the presence of God. He is the source of your life in Christ Jesus, who became for us wisdom from God, and righteousness and sanctification and redemption, in order that, as it is written, ‘Let the one who boasts, boast in the Lord.’ When I came to you, brothers and sisters, I did not come proclaiming the mystery of God to you in lofty words or wisdom. For I decided to know nothing among you except Jesus Christ, and him crucified. ****
 
 At the end of the Apostle
 
@@ -450,7 +444,7 @@ Reader:
 
 Glory to you, Lord, glory to you. ****
 
-<span id="mon23"></span>Priest:
+Priest:
 
 Let us all say, with all our soul and with all our mind, let us say. ****
 
@@ -502,12 +496,7 @@ Amen. ****
 
 After the Litany say this prayer.
 
-Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen.
-Let your mercy, Lord be upon us, as we have hoped in you.
-Blessed are you, Lord: teach me your statutes.
-Blessed are you, Master: make me understand your statutes.
-Blessed are you, Holy One: enlighten me with your statutes.
-Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
+Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen. Let your mercy, Lord be upon us, as we have hoped in you. Blessed are you, Lord: teach me your statutes. Blessed are you, Master: make me understand your statutes. Blessed are you, Holy One: enlighten me with your statutes. Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -553,7 +542,7 @@ To you, O Lord. ****
 
 Priest:
 
-** For you, O God, are good and love mankind, and to you we give glory, to the Father and to the Son and to the Holy Spirit, now and for ever, and to the ages of ages. ****
+For you, O God, are good and love mankind, and to you we give glory, to the Father and to the Son and to the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -583,7 +572,7 @@ Lord our God, who bowed the heavens and came down for the salvation of the human
 
 ****
 
-(Aloud) ****
+(Aloud)
 
 Blessed and glorified be the might of your kingdom, of the Father and of the Son and of the holy Spirit, now and for ever, and to the ages of ages. ****
 
@@ -605,7 +594,7 @@ When from the Tree the Arimathean took you down as a dead body, O Christ, who ar
 
 Verse 1:
 
-** The Lord is King, he has robed himself with majesty. The Lord has robed, and girded himself with power.
+The Lord is King, he has robed himself with majesty. The Lord has robed, and girded himself with power.
 
 When in the new tomb you, the Redeemer of all, had been laid for the sake of all, Hell became a laughing stock and, seeing you, quaked with fear; the bars were smashed, the gates were shattered, the graves were opened, the dead arose; then Adam with thanksgiving cried out to you rejoicing, ‘Glory to your condescension, Lover of humankind!’
 
@@ -613,7 +602,7 @@ When in the new tomb you, the Redeemer of all, had been laid for the sake of all
 
 Verse 2:
 
-** He has made the world firm; it will not be shaken.
+He has made the world firm; it will not be shaken.
 
 When in the tomb in the flesh you were enclosed by your own will, O Christ, who by the nature of your godhead are uncircumscribed and unbounded, you unlocked the storehouses of Hell and emptied all his palaces; then too you granted this Sabbath divine blessing and glory and your own splendour.
 
@@ -627,7 +616,7 @@ When the Powers saw you, O Christ, falsely accused by lawless men as a deceiver,
 
 Glory. Both now.
 
-**** Tone 5**
+**Tone 5**
 
 When Joseph with Nikodemos took you, who are clothed with light as a garment, down from the Tree, and saw you a dead body, naked, unburied, he was filled with compassion, and raising a lament he grieved and said, ‘Alas, sweetest Jesu, when a little while ago the sun saw you hanging on the Cross, it wrapped itself in gloom, and the earth quaked with fear, and the veil of the temple was rent in two; but see, I now look on you, who for me have willingly undergone death; how shall I bury you, my God? Or how shall I wrap you in shrouds; with what hands shall I touch your immaculate body? Or what songs shall I sing at your departure? I magnify your sufferings and I hymn your burial, with your resurrection, as I cry: Lord, glory to you!’
 
@@ -663,10 +652,9 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Reader:
 
-** Amen. ****
+Amen. ****
 
-Then the following Apolytikia
-Tone 2.
+Then the following Apolytikia Tone 2.
 
 The noble Joseph, taking down your most pure Body from the Tree, wrapped it in a clean shroud with sweet spices and laid it for burial in a new grave.
 
@@ -692,7 +680,7 @@ Blessed is He Who Is, Christ our true God, always, now and for ever, and to the 
 
 Reader:
 
-** Amen. May the Lord God strengthen the holy and pure faith of devout and orthodox Christians, with his holy Church \[and this sacred Monastery\], unto ages of ages. ****
+Amen. May the Lord God strengthen the holy and pure faith of devout and orthodox Christians, with his holy Church \[and this sacred Monastery\], unto ages of ages. ****
 
 Priest:
 
@@ -700,7 +688,7 @@ Most holy Mother of God, save us. ****
 
 Reader:
 
-**** Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word; truly the Mother of God, we magnify you. ****
+Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word; truly the Mother of God, we magnify you. ****
 
 The Priest, standing in the holy Doors and facing the People, gives the Great Dismissal as follows:
 
@@ -726,11 +714,8 @@ Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy o
 
 People:
 
-****** Amen.
+Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

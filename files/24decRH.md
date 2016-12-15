@@ -13,9 +13,7 @@ FIRST HOUR
 
 **When the Priest has given the Blessing we begin the Trisagion, then:**
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -51,8 +49,7 @@ What shall we call you, O Full of grace? Heaven? For you made the Sun of justice
 
 ****
 
-Then we chant the following Idiomels.
-Tone 8. By Sophronios, Patriarch of Jerusalem.
+Then we chant the following Idiomels. Tone 8. By Sophronios, Patriarch of Jerusalem.
 
 Bethlehem make ready; let the Manger be prepared; let the Cave receive. The truth has come, the shadow has passed away, and God has appeared among men from a Virgin, formed as we are and making divine what he has put on. And so Adam is renewed with Eve as they cry, ‘God’s good pleasure has appeared on earth to save our race’. (
 
@@ -94,22 +91,19 @@ Verse:
 
 Ask of me, and I shall give you the Nations as your inheritance.
 
-The Reading is from the Prophecy of Micheas.
-\[
+The Reading is from the Prophecy of Micheas. \[
 
 **5:1-3**\]
 
 Thus says the Lord: And you Bethlehem, house of Ephratha, are not least among the thousands of Juda; for from you there will come forth for me the one who is to be ruler in Israel, and his goings out are from the beginning, from eternity. Because of this he will give them until the moment that she who bears child shall bring to birth; and the remainder of his brethren will return to the children of Israel. And he will stand and will see, and shepherd his flock in the strength of the Lord, and they will abide in the glory of the name of the Lord his God; for now they will be magnified even to the extremities of the earth.
 
-The Reading is from the Epistle of Paul to the Hebrews.
-\[
+The Reading is from the Epistle of Paul to the Hebrews. \[
 
 **1:1-12**\]
 
 In many and varied ways God spoke of old to our fathers by the prophets; but in these last days he has spoken to us by a Son, whom he appointed the heir of all things, through whom also he created the ages. He is the radiance of his glory and the very imprint of his substance, upholding the universe by the word of his power. When he had made purification for our sins, he sat down at the right hand of the Majesty on high, having become as much superior to angels as the name he has obtained is more excellent than theirs. For to which of the angels did God ever say, ‘You are my Son, today I have begotten you’? Or again, ‘I will be to him a father, and he shall be to me a son’? And again, when he brings the first-born into the world, he says, ‘Let all God’s angels worship him.’ Of the angels he says, ‘Who makes his angels spirits and his ministers flames of fire.’ But to the Son he says, ‘Your throne, O God, is to age on age, the sceptre of justice is the sceptre of your kingdom. You have loved justice and hated iniquity; therefore God, your God, has anointed you with the oil of gladness beyond your comrades.’ And, ‘You, Lord, founded the earth in the beginning, and the heavens are the work of your hands; they will perish, but you remain; they will all grow old like a garment, like a mantle you will roll them up, and they will be changed. But you are the same, and your years will never end.’
 
-The Reading is from the holy Gospel according to Matthew.
-\[
+The Reading is from the holy Gospel according to Matthew. \[
 
 **1:18-25**\]
 
@@ -166,9 +160,7 @@ THIRD HOUR
 
 Trisagion, All-holy Trinity, Our Father, For yours, Lord, have mercy, (**x12**), Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-O Come, let us worship and fall down before Christ, the King, our God.
-O Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. O Come, let us worship and fall down before Christ, the King, our God. O Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -238,8 +230,7 @@ Both now.
 
 **The same again.**
 
-And at once the Prokeimenon of the Prophecy.
-Tone 4.
+And at once the Prokeimenon of the Prophecy. Tone 4.
 
 For a Child has been born for us, \* and a Son has been given to us.
 
@@ -249,22 +240,19 @@ Verse:
 
 Whose government is upon his shoulder.
 
-The Reading is from the Prophecy of Jeremias.
-\[
+The Reading is from the Prophecy of Jeremias. \[
 
 **Baruch 3:36-38. 4:1-4**\]
 
 This is our God, and there shall be none other reckoned in comparison with him. He has found out all the way of knowledge, and given it to Jacob his servant and Israel his beloved. After this he appeared on earth and lived among men. This is the book of the commandments of God, and the law which exists for ever; all those who keep it fast will have life; but those who abandon it will die. Turn back Jacob, and lay hold of it, walk in the presence of its light to be illumined. Do not give your glory to another, and what is profitable to you to a foreign nation.
 
-The Reading is from the Epistle of Paul to the Galatians.
-\[
+The Reading is from the Epistle of Paul to the Galatians. \[
 
 **3:23-29**\]
 
 Brethren, before faith came, we were confined under the law, kept under restraint until faith should be revealed. So that the law was our custodian until Christ came, that we might be justified by faith. But now that faith has come, we are no longer under a custodian; for in Christ Jesus you are all children of God, through faith. For as many of you as have been baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female; for you are all one in Christ Jesus. And if you are Christ’s, then you are Abraham’s offspring, heirs according to promise.
 
-The Reading is from the holy Gospel according to Luke.
-\[
+The Reading is from the holy Gospel according to Luke. \[
 
 **2:1-20**\]
 
@@ -313,9 +301,7 @@ SIXTH HOUR
 
 **We continue with the Sixth Hour, saying at once:**
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ Himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ Himself, the King, our God.
 
 ****
 
@@ -395,22 +381,19 @@ Verse:
 
 The Lord said to my Lord: Sit at my right hand, until I make your enemies a footstool for your feet.
 
-The Reading is from the Prophecy of Isaias.
-\[
+The Reading is from the Prophecy of Isaias. \[
 
 **7:10-16 & 8:1-4, 8-10**\]
 
 Again the Lord spoke to Ahaz, ‘Ask a sign of the Lord your God; in the depth or in the height.’ But Ahaz said, ‘I will not ask, and I will not put the Lord to the test.’ And he \[Isaias\] said, ‘Hear then, O house of David! Is it a little thing for you to contend with men, and how do you contend with the Lord? Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and they shall call his name Emmanuel. He shall eat butter and honey before he knows how to prefer evil or choose good. For before the child knows good or evil, he refuses the evil to choose the good. Then the Lord said to me, ’Take for yourself a large new volume and write upon it in with a man’s pen, Of making a rapid plunder of spoils; for it is at hand. And get me witnesses, reliable men, Urias the priest and Zachary the son of Barachias. And I went to the prophetess, and she conceived and bore a son. Then the Lord said to me, ’Call his name Despoil-quickly-plunder-rapidly; for before the child knows how to cry ‘Father’ or ‘Mother,’ he will take the power of Damascus and the spoil of Samaria before the king of the Assyrians.‘ Know you nations and be worsted; give ear, as far as the extremity of the earth; for if again you have become strong, again you will be worsted. And whatever counsel you take, the Lord will scatter it; and whatever word you speak, it will not remain in you, for God is with us.’
 
-The Reading is from the Epistle of Paul to the Hebrews.
-\[
+The Reading is from the Epistle of Paul to the Hebrews. \[
 
 **1:10-14 & 2:1-3**\]
 
 ‘You, Lord, founded the earth in the beginning, and the heavens are the work of your hands; they will perish, but you remain; they will all grow old like a garment, like a mantle you will roll them up, and they will be changed. But you are the same, and your years will never end.’ But to what angel has he ever said, ‘Sit at my right hand, till I make your enemies a footstool for your feet’? Are they not all ministering spirits sent forth to serve, for the sake of those who are to inherit salvation? Therefore we must pay the closer attention to what we have heard, lest we drift away from it. For if the word spoken by angels was sure and every transgression or disobedience received a just retribution, how shall we escape if we neglect such a great salvation? It was declared at first by the Lord, and it was attested to us by those who heard him.
 
-The Reading is from the holy Gospel according to Matthew.
-\[
+The Reading is from the holy Gospel according to Matthew. \[
 
 **2:1-12**\]
 
@@ -461,8 +444,7 @@ NINTH HOUR
 
 **Trisagion,** All-holy Trinity, Our Father, For yours, Lord, have mercy (**x12**). Come let us worship (**x3**). **3 Metanias. Then the Psalms.**
 
-Psalm 109
-The Lord said to my Lord, ‘Sit at my right hand, until I make your enemies a footstool for your feet. The Lord will send out for you a rod of power from Sion; rule in the midst of your enemies. With you is the rule in the day of your power, in the splendours of your saints. From the womb before the morning star I have begotten you. The Lord has sworn and he will not repent; you are a priest for ever according to the order of Melchisedek. The Lord at your right hand shattered kings in the day of his wrath. He will judge among the nations, he will heap up corpses, he will shatter the heads of many upon the land. He will drink from the torrent in the way, therefore he will lift up his head.
+Psalm 109 The Lord said to my Lord, ‘Sit at my right hand, until I make your enemies a footstool for your feet. The Lord will send out for you a rod of power from Sion; rule in the midst of your enemies. With you is the rule in the day of your power, in the splendours of your saints. From the womb before the morning star I have begotten you. The Lord has sworn and he will not repent; you are a priest for ever according to the order of Melchisedek. The Lord at your right hand shattered kings in the day of his wrath. He will judge among the nations, he will heap up corpses, he will shatter the heads of many upon the land. He will drink from the torrent in the way, therefore he will lift up his head.
 
 ****
 
@@ -492,11 +474,9 @@ O Good One, who was born of a Virgin for our sakes and endured crucifixion; who 
 
 ****
 
-Then we chant the following Idiomels.
-Tone. 7
+Then we chant the following Idiomels. Tone. 7
 
-Herod was struck with amazement when he saw the piety of the Magi, and overcome by wrath he inquired diligently the interval of time. Mothers were left childless and the unripe age of their babes was bitterly harvested. Breasts grew dry and the channels of milk were stopped. Great was the calamity! And so let us, the faithful, devoutly assembled worship Christ’s Nativity.
-(
+Herod was struck with amazement when he saw the piety of the Magi, and overcome by wrath he inquired diligently the interval of time. Mothers were left childless and the unripe age of their babes was bitterly harvested. Breasts grew dry and the channels of milk were stopped. Great was the calamity! And so let us, the faithful, devoutly assembled worship Christ’s Nativity. (
 
 **Twice, without a verse**) ****
 
@@ -518,8 +498,7 @@ The same again.
 
 Then
 
-Glory. Both now.
-**Tone 6.** ****
+Glory. Both now. **Tone 6.** ****
 
 Note that the following Idiomel
 
@@ -527,14 +506,7 @@ Today is born of a Virgin **is first intoned devoutly and solemnly by the Canona
 
 Today is born of a Virgin, he who holds creation in the hollow of his hand (
 
-**x3**).
-As a mortal he is wrapped in swaddling rags, he who in his being cannot be handled.
-God lies in a manger, who of old established the heavens in the beginning.
-He is nourished with milk from the breast, he who rained Manna on the People in the desert.
-He summons Magi, the Bridegroom of the Church.
-He accepts their gifts, the Son of the Virgin.
-We worship your birth, O Christ (**three times).**
-Show us also your divine Epiphany. ****
+**x3**). As a mortal he is wrapped in swaddling rags, he who in his being cannot be handled. God lies in a manger, who of old established the heavens in the beginning. He is nourished with milk from the breast, he who rained Manna on the People in the desert. He summons Magi, the Bridegroom of the Church. He accepts their gifts, the Son of the Virgin. We worship your birth, O Christ (**three times).** Show us also your divine Epiphany. ****
 
 At once the Prokeimenon of the Prophecy. Tone 4.
 
@@ -546,22 +518,19 @@ Verse:
 
 Her foundations are in the holy mountains.
 
-The Reading is from the Prophecy of Isaias.
-\[
+The Reading is from the Prophecy of Isaias. \[
 
 **9:16-7**\]
 
 A child has been born for us, a son has been given to us; whose government is upon his shoulder, and his name will be called ‘Angel of Great Counsel, Wonderful Counsellor, Mighty God, Potentate, Prince of Peace, Father of the age to come.’ For I will bring peace upon princes, peace and health to him. Great his government, and of his peace there is no bound, upon the throne of David, and upon his kingdom, to establish it, and to uphold it with judgement and with justice from henceforth and for evermore. The zeal of the Lord of hosts will do this.
 
-The Reading from the Epistle of Paul to the Hebrews.
-\[
+The Reading from the Epistle of Paul to the Hebrews. \[
 
 **2:11-18**\]
 
 Brethren, the One who sanctifies and those who are sanctified are all from One. For this reason he is not ashamed to call them brethren, saying: I will proclaim your name to my brethren, in the midst of the church I will praise you. And again: I will put my trust in him. And again: Here am I, and children whom God has given me. Since, therefore, the children share flesh and blood, he himself likewise shared the same things, so that through death he might destroy the one who has the power of death, that is the devil, and free those who all their lives were held in slavery by the fear of death. For it is clear he did not take on himself the nature of Angels, but he took on that of the descendants of Abraham. Therefore he had to become like his brethren in every respect, so that he might be a merciful and faithful high priest in the service of God, to make atonement for the sins of the people. For because he himself was tested by what he suffered, he is able to help those who are being tested.
 
-The Reading from the holy Gospel according to Matthew.
-\[
+The Reading from the holy Gospel according to Matthew. \[
 
 **2:13-23**\]
 
@@ -605,9 +574,6 @@ Master, Lord Jesus Christ, our God, who have long endured our transgressions, an
 
 Then the Typika, read, and the Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

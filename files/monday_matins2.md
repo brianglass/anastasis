@@ -7,8 +7,7 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter Kathismata of Compunction.
-Tone 3.
+After the 1st Reading from the Psalter Kathismata of Compunction. Tone 3.
 
 As you sojourn on earth, my soul, repent; dust in tomb does not sing hymns, is not delivered from faults; cry out to Christ God: Knower of hearts, I have sinned; before you condemn me, spare me, O God, and have mercy on me.
 
@@ -16,7 +15,7 @@ As you sojourn on earth, my soul, repent; dust in tomb does not sing hymns, is n
 
 Verse:
 
-** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
+Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
 For how long, my soul, will you remain with your faults? Until when will you delay repentance? Call to mind the judgement to come, cry out to Christ God: Knower of hearts, I have sinned; sinless Lord, have mercy on me!
 
@@ -36,7 +35,7 @@ At the dread assize, without accusers I am convicted, without witnesses I am con
 
 Verse:
 
-** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
+Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
 A dread tribunal awaits me, Lord; for though I remain silent, my deeds cry out; but before that Christ God through repentance seek one who has strayed, and save me.
 
@@ -320,9 +319,6 @@ As truly greater than the Angels in heaven, bring the supplication of humans upo
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

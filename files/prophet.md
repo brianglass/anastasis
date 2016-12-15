@@ -28,9 +28,7 @@ When the Ewe-lamb, your Mother, saw you nailed to the Cross, Lord, she was struc
 AT MATINS
 ---------
 
-**The Canon, of which the Acrostic is:
-**Let the fame of Sophonias give me splendour.
-**By Theophanes.**
+**The Canon, of which the Acrostic is:** Let the fame of Sophonias give me splendour. **By Theophanes.**
 
 Ode 1. Tone 6. Irmos.As Israel marched on foot.
 
@@ -232,9 +230,6 @@ It is impossible for humans to see God, on whom the ranks of Angels dare not gaz
 
 For the Apostle, Gospel and Communion, see July 20th.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

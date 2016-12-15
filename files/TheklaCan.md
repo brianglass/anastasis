@@ -3,15 +3,11 @@
 SEPTEMBER 24
 ============
 
-**CANON TO THE HOLY PROTOMARTYR
-AND EQUAL OF THE APOSTLES THEKLA**
+**CANON TO THE HOLY PROTOMARTYR AND EQUAL OF THE APOSTLES THEKLA**
 
-A Composition by Monk John.
-The Acrostic, without the Theotokia, is
-**First Woman Martys is glorified**.
+A Composition by Monk John. The Acrostic, without the Theotokia, is **First Woman Martys is glorified**.
 
-Ode 1. Tone 8.
-Let us sing to the Lord.
+Ode 1. Tone 8. Let us sing to the Lord.
 
 > **F**irst Woman Martyr’s far-famed struggles tongue’s sound has not the strength to tell; for it is far too weak to raise a worthy hymn.
 >
@@ -115,8 +111,6 @@ Theotokion.
 
 > **S**overeign Lady, slay my sin that still lives, give life to the death of soul by the force of the true Life born from your womb through ineffable compassion for those who devoutly magnify you.
 >
-> ------------------------------------------------------------------------
->
 > NOTE
 >
 > The source for this Canonby St John of Damascus, as for the other texts of the feast, is the Acts of Paul and Thekla. This is an ancient apocryphal text which probably dates from the middle of the second century. It was known to Tertullian and exists in numerous Greek manuscripts and in many versions, Latin, Coptic, Syriac and Armenian. The most recent English version is to be found in J.K. Elliot’s The Apocryphal New Testament \[Oxford 1993\].
@@ -127,9 +121,6 @@ Theotokion.
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

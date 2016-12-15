@@ -86,7 +86,7 @@ Rise up, O Lord my God, according to the decree which you enjoined:\* and an ass
 
 Verse:
 
-** O Lord my God, I have hoped in you. Save me from all who pursue me and deliver me. ****
+O Lord my God, I have hoped in you. Save me from all who pursue me and deliver me. ****
 
 Then the usual order of the Resurrection Gospel \[Eothinon 4\]
 
@@ -98,8 +98,7 @@ hen the Sabbath was over, Mary Magdalen and Mary, the mother of James, and Salom
 
 After Psalm 50, the Canons of Pascha with the Irmi to 4, of the Mother of God to 4 \[2\], and of the Myrrhbearers to 6 \[8\].
 
-Paschal Canon. Tone 1. Ode 1.
-Irmos.
+Paschal Canon. Tone 1. Ode 1. Irmos.
 
 The day of Resurrection, let us be radiant, O peoples. Pascha, the Lord’s Pascha! for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song.
 
@@ -119,7 +118,7 @@ The Acrostic in the first Troparia: **Theophan.** ****
 
 Ode 1. The same Irmos.
 
-<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="49" />he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out today from the tomb, and enlightened the world.
+he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out today from the tomb, and enlightened the world.
 
 Having seen your Son and God risen from the dead, rejoice with the Apostles, O holy and full of grace, and as cause of the joy of all, all-pure mother of God, you first received the greeting ‘Rejoice’.
 
@@ -181,10 +180,6 @@ Yesterday I was buried with you O Christ, today I rise with you as you arise: ye
 
 Of the Mother of God. The same Irmos.
 
-****
-
-<img src="dropcap-h.gif" alt="dropcap-h.gif (995 bytes)" width="29" height="49" />
-
 oly one, today I return to life undefiled, through the goodness of the One born from you and whose brightness shines to all the ends of the earth.
 
 Seeing God, whom your conceived in the flesh, rising from the dead as he said, dance pure Maiden, and magnify him as God, O Immaculate.
@@ -229,7 +224,7 @@ Blessed are you, holy Lady from the root of Jesse. From you according to the fle
 
 Katavasia.
 
-** Come let us drink. ****
+Come let us drink. ****
 
 Kathisma. Tone 2.
 
@@ -237,7 +232,7 @@ Seeking things on high.
 
 Lovingly bringing spices to your tomb, O Saviour, the women rejoiced in soul at the radiance of the Angel. They proclaimed you God of all, and cried out to the Disciples: ‘The Life of all has risen from the tomb indeed.’
 
-Glory. Both now. **** **Same Tone.**
+Glory. Both now. **Same Tone.**
 
 The choir of your disciples rejoices in harmony with the Myrrhbearing women, for they celebrate a common feast with them, to the glory and honour of your Resurrection, and through them we cry to you, ‘O Lord, who love mankind, grant to your people your great mercy’.
 
@@ -260,8 +255,6 @@ God’s forebear David dancing leaped before the Ark, mere shadow; but seeing th
 ********
 
 Of the Mother of God. Same Irmos.
-
-<img src="dropcap-e.gif" alt="dropcap-e.gif (995 bytes)" width="29" height="49" />
 
 ven he who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death he has today destroyed the death that came through him, and shed light on all with the divine beams of his Resurrection.
 
@@ -305,7 +298,7 @@ Holy Virgin-mother, unceasingly implore the One who dwelt in your womb, whom you
 
 Katavasia.
 
-** Let the Prophet. ********
+Let the Prophet. ********
 
 Ode 5. Irmos.
 
@@ -322,8 +315,6 @@ With torches in our hands let us go forth to meet Christ as he comes from the gr
 ********
 
 Of the Mother of God. Same Irmos.
-
-<img src="dropcap-o.gif" alt="dropcap-o.gif (995 bytes)" width="29" height="49" />
 
 immaculate Mother of God, the assembly of the devout is enlightened by the divine and life-giving rays of your Son’s resurrection, and is filled with joy.
 
@@ -369,7 +360,7 @@ We faithful praise you, who gave birth by a conception beyond nature without see
 
 Katavasia.
 
-** Let us rise at dawn. ********
+Let us rise at dawn. ********
 
 Ode 6. Irmos.
 
@@ -385,7 +376,7 @@ O my Saviour, the living, unslain Victim, as God offering yourself willingly to 
 
 **Of the Mother of God. The same Irmos.**
 
-**<img src="dropcap-p.gif" alt="dropcap-p.gif (995 bytes)" width="29" height="49" />**risoner of old of death and corruption, the human race has been brought back through him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
+risoner of old of death and corruption, the human race has been brought back through him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
 
 He who went down into your womb, O pure Maiden, dwelt there and took flesh beyond understanding, went down into the lowest parts of the earth and raised Adam with himself when he rose from the tomb.
 
@@ -419,7 +410,7 @@ Both now. **Theotokion.**
 
 Like a vine, pure Maiden, you conceived unhusbanded in your womb the Grape Cluster of incorruption, from which for us the streams of immortality pour out, like wine, eternal life.
 
-**Katavasia.** **** You went down.
+**Katavasia.** You went down.
 
 ********
 
@@ -439,9 +430,7 @@ Synaxarion from the Menaion, then the following:
 
 On the same day, the third Sunday from Pascha, we celebrate the feast of the Myrrhbearers. We also remember Joseph of Arimatheia, who was a disciple in secret, as well as Nikodemos, the disciple by night.
 
-**Verses** **
-**Women Disciples bring sweet spice to Christ;
-While I to them, like spices, bring my hymn.
+**Verses** Women Disciples bring sweet spice to Christ; While I to them, like spices, bring my hymn.
 
 ********
 
@@ -462,8 +451,6 @@ How truly holy and all-festive is this saving night, how full of light, herald o
 ****
 
 Of the Mother of God. The same Irmos.
-
-<img src="dropcap-h.gif" alt="dropcap-h.gif (995 bytes)" width="29" height="49" />
 
 aving slain death, your Son today, All-blameless one, has given to all mortals life that endures to ages of ages, he the only blessed and highly exalted God of our fathers.
 
@@ -503,7 +490,7 @@ How did you contain as a child in your womb, O Immaculate, him before whom as Go
 
 ****
 
-Katavasia. **
+Katavasia.
 
 The only blessed. ****
 
@@ -524,8 +511,6 @@ Almighty Father, Word and Spirit, nature united in three Persons, beyond all bei
 ****
 
 Of the Mother of God. The same Irmos.
-
-<img src="dropcap-a.gif" alt="dropcap-a.gif (995 bytes)" width="29" height="49" />
 
 s the Creator came into the world through you, Virgin Mother of God, tearing open the belly of Hell, he granted us mortals the Resurrection; therefore we bless him to the ages.
 
@@ -575,7 +560,7 @@ This chosen. ****
 
 Ode 9. Irmos.
 
-Megalynarion: **
+Megalynarion:
 
 Magnify, O my soul, him who suffered willingly, and was buried, and arose from the grave on the third day.
 
@@ -583,7 +568,7 @@ Shine, shine, O New Jerusalem, for the glory of the Lord has risen upon you; dan
 
 ****
 
-Megalynarion: **
+Megalynarion:
 
 Magnify, O my soul, Christ the Giver of life, who arose from the grave on the third day.
 
@@ -591,7 +576,7 @@ Shine, shine, O New Jerusalem, for the glory of the Lord has risen upon you; dan
 
 ****
 
-Megalynarion: **
+Megalynarion:
 
 Christ is the new Passover, the living sacrificial victim, the Lamb of God, who takes away the sin of the world.
 
@@ -599,7 +584,7 @@ O your divine and beloved and sweetest voice; you have truly promised that you w
 
 ****
 
-Megalynarion: **
+Megalynarion:
 
 To-day the whole creation is glad and rejoices, for Christ has risen and Hell has been despoiled.
 
@@ -608,8 +593,6 @@ O great and most sacred Pascha, Christ; O Wisdom and Word and Power of God! Gran
 ****
 
 Of the Mother of God. The same Irmos.
-
-<img src="dropcap-n.gif" alt="dropcap-n.gif (995 bytes)" width="29" height="49" />
 
 ow in harmony, O Virgin, we faithful call you blessed. Hail, gate of the Lord! Hail, living city! Hail, through whom today the light of the Resurrection from the dead of him who was born from you has shone for us!
 
@@ -666,8 +649,7 @@ Having fallen asleep in the flesh as one mortal, O King and Lord, you rose again
 
 ****
 
-Another, of the Myrrhbearers. Model Melody.
-Same Tone.
+Another, of the Myrrhbearers. Model Melody. Same Tone.
 
 Women hear a voice of gladness, ‘Trampling on the tyrant Hell, I have raised the world from corruption. Run, tell my friends the good tidings, for I wish joy to shine on what I fashioned from the source from which came grief’.
 
@@ -707,9 +689,6 @@ It is the day of Resurrection; let us be radiant for the festival, and let us em
 
 ******Great Doxology and Dismissal******
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

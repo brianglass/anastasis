@@ -37,8 +37,7 @@ Rejoice with us, all you choirs of Virgins, for our defence and intercessor, pro
 
 ****
 
-At the Aposticha, Prosomia.
-Tone 1. Joy of the heavenly hosts.
+At the Aposticha, Prosomia. Tone 1. Joy of the heavenly hosts.
 
 As leader of the heavenly hosts and strong defender, guard and deliverer of those on earth we sing your praise with faith, Michael Chief Captain, as we implore you to deliver us from every pain that brings destruction.
 
@@ -80,8 +79,7 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter, Kathisma.
-Tone 4. Lifted up on the Cross.
+After the 1st Reading from the Psalter, Kathisma. Tone 4. Lifted up on the Cross.
 
 As we frequent your revered temple and in it devoutly magnify you as leader of the immaterial hosts, with faith we beseech you, godlike Chief Captain, ‘Rescue us all from the tyranny of enemies, and deliver us from the future threat and from Gehenna by your entreaties’.
 
@@ -93,8 +91,7 @@ May we, the unworthy, never cease to speak of your acts of power, O Mother of Go
 
 ****
 
-After the 2nd Reading from the Psalter, Kathisma.
-Tone 4. Lifted up on the Cross.
+After the 2nd Reading from the Psalter, Kathisma. Tone 4. Lifted up on the Cross.
 
 Chief Captain of the bodiless ministers, you stand in God’s presence and shine with the radiance that comes from there; make bright and sanctify those who faithfully sing your praise, deliver them from every tyranny of the foe and ask for a peaceful life for the Rulers and for all the ends of the earth.
 
@@ -130,8 +127,7 @@ All-blameless Virgin, the glory of the Angels, the help of mankind, help me who 
 
 ****
 
-Another Canon. Same Tone.
-Also by Joseph.
+Another Canon. Same Tone. Also by Joseph.
 
 \[**Acrostic in the 9th Ode:** Joseph.\]
 
@@ -329,10 +325,7 @@ On the 6th of the month the Commemoration of the amazing wonder that took place 
 
 Verses.
 
-New Noë to your church, Michael, you came,
-At Chonae made an end to river’s flood.
-Michael, Chief Captain of the Angel hosts,
-Once on the sixth of the month the flow of the river he funnelled \[chonevse\].
+New Noë to your church, Michael, you came, At Chonae made an end to river’s flood. Michael, Chief Captain of the Angel hosts, Once on the sixth of the month the flow of the river he funnelled \[chonevse\].
 
 Consumed by envy at the marvels which took place in the church of the Chief Captain Michael, certain pagan men planned to divert the river which flowed nearby against the church, so as to flood the church and destroy Archippos, the honoured man who dwelt in it. The divine Archangel simply appeared and, telling Archippos to take courage, struck the rock with a staff, making a passage for the river in it. From that day to this it is visible passing through and hollowing out its passage.
 
@@ -342,8 +335,7 @@ On the same day the Contest of the holy Martyrs Evdoxios, Zeno, Romulus and Maka
 
 Verses.
 
-Zeno, Evdoxios and Romulus were slain,
-So too Makarios: blessed \[makaristoi\] in their end!
+Zeno, Evdoxios and Romulus were slain, So too Makarios: blessed \[makaristoi\] in their end!
 
 On the same day one thousand one hundred and four holy soldiers and Saint Kalodoti met their end by the sword.
 
@@ -351,11 +343,9 @@ On the same day one thousand one hundred and four holy soldiers and Saint Kalodo
 
 Verses.
 
-Martyrs one thousand, ten times ten and four,
-A single end accomplished by the sword.
+Martyrs one thousand, ten times ten and four, A single end accomplished by the sword.
 
-Her head by sword struck off, Kalodoti
-Before you stands, O Word, giver of good \[
+Her head by sword struck off, Kalodoti Before you stands, O Word, giver of good \[
 
 kalon dotiri\]
 
@@ -365,31 +355,25 @@ On the same day the Saints Faustus the presbyter, Makarios, Andrew and the monk 
 
 Verses.
 
-Faustus, when through a sword he left the earth,
-Was raised to brightness \[phavsis\] of a home on high.
+Faustus, when through a sword he left the earth, Was raised to brightness \[phavsis\] of a home on high.
 
-When Andrew and Makarios died by sword
-Both made a journey by a blessed \[
+When Andrew and Makarios died by sword Both made a journey by a blessed \[
 
 makarios\] path.
 
 The crown of virtue Vivos is denied
 
-The crown of martyrdom had he not won.
-With Dionysios a sword has slain
+The crown of martyrdom had he not won. With Dionysios a sword has slain
 
-Two who with Dionysios were of one mind.
-How bravely \[
+Two who with Dionysios were of one mind. How bravely \[
 
 andriki\] Andropelagia went
 
 To execution, as did Thekla too.
 
-Seaman Theoktistos, his head struck off,
-Steers his soul’s vessel to the vault above.
+Seaman Theoktistos, his head struck off, Steers his soul’s vessel to the vault above.
 
-Kyriakos a commoner, but by the sword
-A fellow banqueter of Martyrs’ choir.
+Kyriakos a commoner, but by the sword A fellow banqueter of Martyrs’ choir.
 
 On the same day there coincided the dedication of the most holy Mother of God at the Second in the house of St Irene.
 
@@ -517,8 +501,7 @@ Alas, wretch that I am, through my incontinence of old I was thrust from the gre
 
 ****
 
-At Lauds we insert 4 Stichera, and sing Prosomia.
-Tone 1. Joy of the heavenly hosts.
+At Lauds we insert 4 Stichera, and sing Prosomia. Tone 1. Joy of the heavenly hosts.
 
 As we in the world keep festival like the Angels, let us cry aloud to God, who is borne on a throne of glory, the hymn: Holy are you, Father in heaven; co-eternal Word, holy are you; and the All-holy Spirit. (
 
@@ -544,9 +527,6 @@ We faithful call you blessed, Virgin Mother of God, and we glorify you as is fit
 
 Great Doxology and Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

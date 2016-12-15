@@ -21,8 +21,7 @@ Of your own will, O Saviour, you endured the Cross, and mortals laid in a new to
 
 Glory. Both now.
 
-**Theotokion.
-Model Melody. \[By Romanos\]**
+**Theotokion. Model Melody. \[By Romanos\]**
 
 At your conceiving without seed, O Mother of God, Joseph was struck with wonder as he contemplated what was beyond nature, and he brought to mind the dew on the fleece, the bush unburned by fire, Aaron’s rod which blossomed; and your Betrothed and guardian bore witness and cried to the priests: A Virgin bears a child, and after child-birth remains still a virgin.
 
@@ -502,8 +501,6 @@ Women longed to see your Resurrection, Christ God; Mary Magdalen came in anticip
 
 Where is Jesus, whom you thought to guard? say, O Jews. Where is he whom you placed in the grave, then sealed the stone? Give back the dead, you who denied life; give back the buried or believe in the Risen One. Though you keep silent about the Lord’s Rising, the stones will cry out, above all the one that was rolled away from the grave. Great is your mercy! Great the mystery of your dispensation! Our Saviour, glory to you!
 
-------------------------------------------------------------------------
-
 AT THE LITURGY
 --------------
 
@@ -547,9 +544,6 @@ Kontakion. 4th Tone. You have appeared to-day.
 
 My Saviour and Deliverer, from the tomb as God raised from their bonds those born of earth and smashed the gates of Hell, and as Master arose on the third day.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

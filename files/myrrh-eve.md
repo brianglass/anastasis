@@ -1,7 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](myrrh-sun.md) \] \[ Vespers \] \[ [Matins](myrrh-mat.md) \]
 
-**SUNDAY
-OF THE MYRHH-BEARING WOMEN**
+**SUNDAY OF THE MYRHH-BEARING WOMEN**
 
 ON SATURDAY EVENING
 
@@ -83,8 +82,7 @@ As we sing the hymn of salvation, let this song rise from our lips, ‘Come all 
 
 ****
 
-Then 3 Idiomel Stichera of the Myrrhbearers.
-Tone 2. By Anatolios.
+Then 3 Idiomel Stichera of the Myrrhbearers. Tone 2. By Anatolios.
 
 The Myrrhbearing women at deep dawn took spices and came to the Lords tomb. But finding what they had not hoped for, they began devoutly discussing the removal of the stone, and said to one another, ‘Where are the seals of the grave? Where is Pilates watch, and the strict security?’ But a dazzling Angel became the informer of the baffled women saying to them, ‘Why with lamentations do you seek the living, the one who gives life to the race of mortals? Christ our God has risen from the dead as all powerful, granting us incorruption and life, enlightenment and his great mercy’.
 
@@ -176,9 +174,6 @@ The Angel standing by the grave cried to the women bearing myrrh, ‘Myrrh is fi
 
 And Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -379,9 +379,6 @@ O Lord, save your people, and bless your inheritance; granting your faithful peo
 
 Your honoured memory has assembled us to-day at the godly casket of your sacred relics; all then who approach and venerate keep far from them evil harm of demons and are swiftly delivered from divers diseases, blessed Evdokimos.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

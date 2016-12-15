@@ -1,7 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](john-dam.md) \] \[ [Antipascha](thomcan.md) \] \[ [First Canon for the Assumption](asccan01.md) \] \[ [Second Canon for Pentecost](pentcan2.md) \] \[ [Prophet Elias](20julcan.md) \] \[ [Symeon Stylites](symeon.md) \] \[ [Protomartyr Thekla](TheklaCan.md) \] \[ Pascha \] \[ [Paschal Canon with Notes](paschal_canon_with_notes.md) \]
 
-**CANON FOR PASCHA
-A Composition by Monk John**
+**CANON FOR PASCHA** **A Composition by Monk John**
 
 ****
 
@@ -161,7 +160,7 @@ O divine! O beloved! O sweetest voice! You have truly promised that you will be 
 
 Megalynarion:
 
-** You awoke and wakened the dead from every age, as the Lion of Juda, roaring like a king.
+You awoke and wakened the dead from every age, as the Lion of Juda, roaring like a king.
 
 O great and most sacred Pascha, Christ! O Wisdom and Word and Power of God! Grant that we may partake of you fully in the day that has no evening of your Kingdom.
 
@@ -209,9 +208,6 @@ Rejoice, O Virgin, rejoice! Rejoice, Blessed One! Rejoice, Glorified One. your S
 
 O great and most sacred Pascha, Christ! O Wisdom and Word and Power of God! Grant that we may partake of you fully in the day that has no evening of your Kingdom.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

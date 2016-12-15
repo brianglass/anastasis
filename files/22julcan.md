@@ -2,9 +2,7 @@
 
  
 
-**Canon by Theophanes
-of which the acrostic is:**
-With love I sing Mary Magdalen.
+**Canon by Theophanes** **of which the acrostic is:** With love I sing Mary Magdalen.
 
 **Ode 1. Tone 8. On crossing the water.**
 
@@ -104,9 +102,6 @@ As Mother of the one who suffered the Passion for our sake, save me from soul-de
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

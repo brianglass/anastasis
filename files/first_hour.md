@@ -7,9 +7,7 @@ FIRST HOUR
 
 Note that on the Mondays of holy Lent we do not add a Kathisma of the Psalter at the First Hour. On the other days we do, and we make 3 prostrations at each Antiphon. The First Hour being joined to the Morning Office, as has been said above, begins straight away with:
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -163,15 +161,12 @@ Christ, the true light, you enlighten and hallow everyone who comes into the wor
 
 Reader:
 
-** To you my Champion and Commander I your city saved from disasters dedicate, O Mother of God, hymns of victory and thanksgiving; but as you have unassailable might from every kind of danger now deliver me, that I may cry to you: Hail, Bride without bridegroom! ****
+To you my Champion and Commander I your city saved from disasters dedicate, O Mother of God, hymns of victory and thanksgiving; but as you have unassailable might from every kind of danger now deliver me, that I may cry to you: Hail, Bride without bridegroom! ****
 
 And Dismissal. And we process into the Narthex, where the customary prayers are said, and the Catecheses of our venerable Father Theodore the Studite, by the Superior or the Ecclesiarch, as mentioned previously; that is to say on Wednesday and Friday. Then the conclusion and the Dismissal.
 
 This is the arrangement for Matins and the First Hour for the whole of holy Lent.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

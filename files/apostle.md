@@ -13,7 +13,7 @@ Glorious Apostle, who saw God, your feet were made beautiful as they trod the wa
 
 Glory. Both now.
 
-**** Theotokion.**
+**Theotokion.**
 
 Those who were granted to see in bodily form the dignity of the Father and his Godhead, proclaimed you, Maiden, as Bride and Virgin, Mother of the Word and God, and dwelling of the Holy Spirit; for in you the Godhead dwelt entirely in bodily form, the fullness of fullest grace.
 
@@ -26,8 +26,7 @@ When the Ewe-lamb who bore you saw you nailed to the Tree, Lord, she tore at her
 AT MATINS
 =========
 
-**Canon. Tone 8.
-Ode 1. Irmos. Let us sing to the Lord.**
+**Canon. Tone 8. Ode 1. Irmos. Let us sing to the Lord.**
 
 \[Let us sing to the Lord, who led his people in the Red Sea, for he alone has been greatly glorified.\]
 
@@ -247,9 +246,6 @@ We who have been saved through you, pure Virgin, confess you to be truly Mother 
 
 At the Liturgy, see the Apostle and Gospel for the 18th of October; likewise for the Communion.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

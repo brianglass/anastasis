@@ -7,8 +7,7 @@ AT MATINS
 
 ****
 
-After the 1st Psalter Reading, Kathismata of Compunction.
-Tone 8.
+After the 1st Psalter Reading, Kathismata of Compunction. Tone 8.
 
 With your compassionate eye, O Lord, see my humiliation, for little by little my life is being squandered, and there is no salvation for me from works; therefore I ask this: with your compassionate eye, Lord, see my humiliation and save me.
 
@@ -24,8 +23,7 @@ Reflecting on that dread day, my soul, watch, lighting your lamp and shining wit
 
 Glory. Both now.
 
-**Theotokion.**
-**To the same melody.**
+**Theotokion.** **To the same melody.**
 
 The Master and Maker of all things, taking flesh from your immaculate womb, made you guardian of humankind, O All-unblemished; therefore we all take refuge in you, Sovereign Lady, asking forgiveness of offences, and we beg that we may be redeemed from eternal torture and from every punishment in the other world, that with faith we may cry out to you: Intercede with Christ God, O Maiden, that to all who come to your protection in faith may be granted forgiveness.
 
@@ -45,15 +43,13 @@ As the harlot I fall down before you that I may receive forgiveness, and instead
 
 Glory. Both now.
 
-**Theotokion.
-Taking knowledge.**
+**Theotokion. Taking knowledge.**
 
 O pure and blessed, filled with God’s grace, together with the Powers on high, the Archangels and all the Bodiless ones, implore without ceasing him who through the compassion of his pity was born from you to grant us before the end amendment, pardon of sins and correction of life, that we may find mercy.
 
 ****
 
-After the 3rd reading other Kathismata.
-The Wisdom and Word.
+After the 3rd reading other Kathismata. The Wisdom and Word.
 
 Just how long, my soul, will you live in heedlessness? Just how long will spend your time in idleness? Arise from the sleep of idleness, O wretch; when you consider your deeds, groan and shudder at the sentence of the righteous Judge; what defence will you have in that hour? Or how can you be delivered from the burning to come, set as you are in incorrigibility. Cry out before the end to the Judge: Saviour, grant me forgiveness of offences; for you alone are long-suffering.
 
@@ -69,8 +65,7 @@ This tabernacle to-day is flooded with heavenly light; for in it the armies of A
 
 Glory. Both now.
 
-**Theotokion.**
-\[**Model melody. By Romanos**\]
+**Theotokion.** \[**Model melody. By Romanos**\]
 
 Taking knowledge of the secret command, the bodiless Archangel came with haste to Joseph’s dwelling, and said to her who knew not wedlock, ‘He who in his self-abasement bowed the heavens is housed wholly and unchanged in you. As I see him take the form of a servant in your womb I am amazed and cry to you: Hail, Bride without bridegroom!’
 
@@ -450,9 +445,6 @@ Glory. Both now.
 
 The heavenly beings hymn, Full of grace, Mother without bridegroom, and we glorify your unfathomable child-bearing; Mother of God, intercede that our souls may be saved.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

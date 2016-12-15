@@ -44,7 +44,7 @@ Grace was poured out on your lips in a fiery tongue, Apostle Luke, and you were 
 
 Verse:
 
-** His sound has gone out into all the earth; and his words to the ends of the world.
+His sound has gone out into all the earth; and his words to the ends of the world.
 
 From your words we have come to know, as you said, the sureness of the words which you set forth, inspired Initiate, since you undertook to write for us about the things of which you had been informed and as they had handed on to you, those who before had been the eye-witnesses. Whose equal you became and a servant of the incarnation of the Word, whom you saw after the resurrection at Emmaus, and ate with him with heart aflame along with Cleopas. Fill too with his divine fervour the souls of us who honour you.
 
@@ -86,7 +86,7 @@ Apolytikion. Tone 3.
 
 Holy Apostle and Evangelist Luke, intercede with the merciful God to grant our souls forgiveness of sins.
 
-Glory. Both now. **
+Glory. Both now.
 
 **Theotokion.**
 
@@ -230,9 +230,7 @@ On the 18th day of the month, Commemoration of the holy Apostle and Evangelist L
 
 Verses.
 
-Though at Emmaus I was held from sight
-Of you says Luke now, Christ, I see you plain.
-On the eighteenth of the month, the Evangelist Luke reached his life’s end.
+Though at Emmaus I was held from sight Of you says Luke now, Christ, I see you plain. On the eighteenth of the month, the Evangelist Luke reached his life’s end.
 
 Luke, the great Evangelist, was from Antioch the Great in Syria, a doctor by profession and outstandingly skilled in the art of painting. While living and practising medicine at Thebes in Boeotia, he encountered the holy Apostle Paul; and having come to believe in Christ he abandoned his ancestral error. He then gave up the cure of bodies and took up that of souls. At the suggestion of the holy Apostle Paul he composed the Gospel according to him for one Theophilos, a Governor, who had come to believe in Christ. After Paul had departed he taught all Greece and, so they say, when he was eighty years old he went to his rest in peace at Thebes in Boeotia. His body was laid to rest there, God glorifying his own servant and worker by raining down little round loaves or capsules upon his grave as a symbol of his skill. And therefore his tomb became well known to all.
 
@@ -246,8 +244,7 @@ On the same day, Commemoration of the holy Martyr Marinos the elder.
 
 Verses.
 
-Old error old Marinos now refutes,
-By daring young, and meets his end by sword.
+Old error old Marinos now refutes, By daring young, and meets his end by sword.
 
 On the same day, Commemoration of our Venerable Father Julian of the Euphrates.
 
@@ -255,8 +252,7 @@ On the same day, Commemoration of our Venerable Father Julian of the Euphrates.
 
 Verses.
 
-Now from the life which runs by like a dream
-With ready gladness Julian runs by.
+Now from the life which runs by like a dream With ready gladness Julian runs by.
 
 Our father among the Saints Julian abandoned the world and went away to the banks of the river Euphrates. There he found a cave in which he lived the solitary life. Many enthusiasts flocked to his tiny cave and setting up huts round about to the number of a hundred, nourished by their proximity to the teacher. This wondrous man slew a dragon and made water gush up in waterless land. He also went to mount Sinai and built a church on the rock on which Moses the lawgiver had seen God, as far it was possible to see him. This church is still standing today. But when many people were fearing the return of the impious and apostate Julian from the Persians, they asked his help, knowing him to be a true servant of God. He prolonged his holy prayer until the tenth day and then heard the words: ‘Not only for your sake, but because of the night-long entreaties and supplications of many others, the foul and impious Julian is being slain’.
 
@@ -392,9 +388,6 @@ Communion.
 
 His sound has gone out into all the earth; and his words to the ends of the world. Alleluia.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

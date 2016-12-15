@@ -10,7 +10,7 @@ AT VESPERS
 
 At
 
-** Lord, I have cried ** **the Stichera from the Octoichos and the Menaion.**
+Lord, I have cried **the Stichera from the Octoichos and the Menaion.**
 
 At the Aposticha, the following Idiomel twice, said with the usual verses, as yesterday.
 
@@ -48,9 +48,6 @@ After the
 
 Now Master **and the Trisagion Prayers, the Apolytikion** Virgin Mother of God **and the others, with prostrations at each.** Lord, have mercy **40 times.** Glory. Both now**.** Greater in honour **and Dismissal.** \[**See Weekday Vespers in Great Lent**\]  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

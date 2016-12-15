@@ -11,7 +11,7 @@ AT VESPERS
 
 After the Opening Psalm, we recite
 
-** Blessed is the man. **At** Lord, I have cried **we insert 10 Stichera and we sing 3 of the Resurrection, 1 by Anatolios and 6 Prosomia of the Holy Fathers.**
+Blessed is the man. **At** Lord, I have cried **we insert 10 Stichera and we sing 3 of the Resurrection, 1 by Anatolios and 6 Prosomia of the Holy Fathers.**
 
 Tone 6
 
@@ -41,22 +41,19 @@ Entrance,
 
 O Joyful Light, **the Prokeimenon of the day, and the Readings.**
 
-The Reading is from Genesis.
-\[
+The Reading is from Genesis. \[
 
 **14,14-20**\]
 
 Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants three hundred and eighteen, and pursued the enemy as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologomor and the kings with him, to the valley of Sabi; this was the plain of Kings. And Melchizedek, king of Salem, brought out bread and wine; he was Priest of the Most High. And he blessed Abram and said: Blessed is Abram by the most high God, who created the heaven and the earth. And blessed is the most high God, who has delivered your enemies into your hand.
 
-The Reading from Deuteronomy.
-\[
+The Reading from Deuteronomy. \[
 
 **1,8-11 & 15-17<sup>b</sup>**\]
 
 Moses said to the sons of Israel: See, I have delivered the land before you; go in and inherit the land which I swore to your fathers, to Abraham and to Isaac and to Jacob, to give it to them and to their seed after them. And I spoke to you at that time saying: I alone shall not be able to bear you. The Lord your God has multiplied you, and behold, you are to-day as the stars of heaven in multitude. May the Lord the God of our fathers multiply you a thousand times more than you are, and bless you as he has spoken to you. And I took from you wise and understanding and prudent men, and I set them to rule over you, captains of thousands and hundreds and fifties and tens and recorders for your judges. And I commanded your judges at that time, saying: Hear cases between your brethren, and judge rightly between a man and his brother and the stranger who is with him. You shall not have respect to persons in judging. You shall hear the small as well as the great. You shall not shrink before any man’s person; for the judgement is God’s.
 
-The Reading from Deuteronomy.
-\[**10,14-18 & 20-21\]**
+The Reading from Deuteronomy. \[**10,14-18 & 20-21\]**
 
 Moses said to the sons of Israel: Behold the heaven and the highest heaven belong to the Lord your God, the earth and all that is in it. the Lord preferred your fathers, to love them: and he chose their seed after them, you above all nations, as it is at this day. So circumcise the hardness of your heart and stiffen your neck no longer. For the Lord your God is God of Gods and the Lord of Lords, the great God, mighty and awesome, who shows no partiality, who takes no bribe. He executes judgement for the stranger, the orphan and the widow; and loves the stranger, giving him food and clothing. You shall fear the Lord your God and serve him, and to him you shall hold fast, and take oaths in his name. He is your boast, he your God, who has done for you the great and wonderful things which your eyes have seen.
 
@@ -128,33 +125,33 @@ A composition of Theophanes.
 
 Ode 1. Tone 8.
 
-<img src="http://default/anastasis/dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />mpart to me, Lord, who now desire to sing the Seventh Council, the assembly of the seven gifts of the Paraclete, who made it wise with tongues of fire and silenced all blasphemous prattling.
+mpart to me, Lord, who now desire to sing the Seventh Council, the assembly of the seven gifts of the Paraclete, who made it wise with tongues of fire and silenced all blasphemous prattling.
 
-<img src="http://default/anastasis/dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ince the beginning the seventh is the best of numbers; for the complete rest from God’s creative work took place originally on the seventh day; and now the cessation of all heresies at the Seventh Council.
+ince the beginning the seventh is the best of numbers; for the complete rest from God’s creative work took place originally on the seventh day; and now the cessation of all heresies at the Seventh Council.
 
-<img src="http://default/anastasis/dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />n Nicea of old the choir of the Fathers, having vanquished Arius, enemy of God, with their shepherd’s rod, strengthened the Church with orthodox doctrines; and now in this same city their united ranks have put the iconoclasts to shame.
+n Nicea of old the choir of the Fathers, having vanquished Arius, enemy of God, with their shepherd’s rod, strengthened the Church with orthodox doctrines; and now in this same city their united ranks have put the iconoclasts to shame.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ow as the Fathers devoutly taught, we faithfully confess a virgin womb, which bore without pangs the fleshless in flesh; and we depict and worship his likeness, and greet it with honour.
+ow as the Fathers devoutly taught, we faithfully confess a virgin womb, which bore without pangs the fleshless in flesh; and we depict and worship his likeness, and greet it with honour.
 
 ****
 
 Ode 3.
 
-<img src="http://default/anastasis/dropcap-g.gif" alt="dropcap-g.gif (1071 bytes)" width="36" height="44" />uided by Christ the godly Chief Shepherds, lest his Church, which cannot be broken, might be shaken, shook to their foundations as partners of Antichrist those who wished to shake the Church to its foundations.
+uided by Christ the godly Chief Shepherds, lest his Church, which cannot be broken, might be shaken, shook to their foundations as partners of Antichrist those who wished to shake the Church to its foundations.
 
-<img src="http://default/anastasis/dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he assembly of the Fathers cleans up foul and muddy torrents by drawing water from the springs of salvation, and quenches the thirst of Christ’s thirsty people with the streams of their teachings.
+he assembly of the Fathers cleans up foul and muddy torrents by drawing water from the springs of salvation, and quenches the thirst of Christ’s thirsty people with the streams of their teachings.
 
-<img src="http://default/anastasis/dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />ere in the shining city of Nicea the seventh assembly of lovers of Christ took place against those who truly hated him, the Christians’ accusers; its advocates the Sovereigns Irene and Constantine.
+ere in the shining city of Nicea the seventh assembly of lovers of Christ took place against those who truly hated him, the Christians’ accusers; its advocates the Sovereigns Irene and Constantine.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />very impious man, who does not honour the holy image of the Mother of God, and does not proclaim that she bore Christ as God and man, let him go hence and be sent to burn unceasingly in the fire.
+very impious man, who does not honour the holy image of the Mother of God, and does not proclaim that she bore Christ as God and man, let him go hence and be sent to burn unceasingly in the fire.
 
 ****
 
@@ -176,25 +173,25 @@ Come speedily to help us, pure Virgin Mother; deliver us from enemies who blasph
 
 Ode 4.
 
-<img src="http://default/anastasis/dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />word and arrow, God’s word, in hand, the godlike Fathers utterly slaughtered all those ill disposed to the sign of the cross and who likewise do not honour the images of Christ, the Mother of God and all the Saints.
+word and arrow, God’s word, in hand, the godlike Fathers utterly slaughtered all those ill disposed to the sign of the cross and who likewise do not honour the images of Christ, the Mother of God and all the Saints.
 
-<img src="http://default/anastasis/dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as seven trumpets on the seventh circuit threw down the walls of Jericho; so the seven Councils brought down to chaos the whole band that had risen up against God, at the seventh assembly of the well-tuned trumpets of the Spirit.
+ven as seven trumpets on the seventh circuit threw down the walls of Jericho; so the seven Councils brought down to chaos the whole band that had risen up against God, at the seventh assembly of the well-tuned trumpets of the Spirit.
 
-<img src="dropcap-v.gif" alt="dropcap-v.gif (1054 bytes)" width="34" height="42" />aunting a youthful brashness, and burning with God’s zeal, the assembled Fathers, like Elias, put to death the priests of shame; therefore with boldness they firmly taught the worship of Christ’s image.
+aunting a youthful brashness, and burning with God’s zeal, the assembled Fathers, like Elias, put to death the priests of shame; therefore with boldness they firmly taught the worship of Christ’s image.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ver pure, you are my hope, and you are my song, you are my harbour and you are my pilotage, you who without union bore God incarnate, the Word of the Father; therefore without doubting, empowered with your strength, I venerate your image.
+ver pure, you are my hope, and you are my song, you are my harbour and you are my pilotage, you who without union bore God incarnate, the Word of the Father; therefore without doubting, empowered with your strength, I venerate your image.
 
 ****
 
 Ode 5.
 
-<img src="http://default/anastasis/dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ow the revered Fathers, having deliberated together with lofty thought, have condemned the Iconoclasts as thinkers of strange thoughts; and decreed, as is fitting, that honour be paid to Christ’s image.
+ow the revered Fathers, having deliberated together with lofty thought, have condemned the Iconoclasts as thinkers of strange thoughts; and decreed, as is fitting, that honour be paid to Christ’s image.
 
-<img src="http://default/anastasis/dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he time of joy is now, the day of salvation has newly appeared; let us therefore rejoice and joyfully cry out to Christ: Give us your peace, at the prayers of the Fathers of the Seventh Council, O Lover of mankind.
+he time of joy is now, the day of salvation has newly appeared; let us therefore rejoice and joyfully cry out to Christ: Give us your peace, at the prayers of the Fathers of the Seventh Council, O Lover of mankind.
 
 ****
 
@@ -202,21 +199,21 @@ Theotokion
 
 *.*
 
-<img src="http://default/anastasis/dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />e, the Son of God, through his merciful compassion, was born from the Virgin without change, bearing as his own what was alien; and willingly He appears circumscribed by its form, He who in his essence is uncircumscribed.
+e, the Son of God, through his merciful compassion, was born from the Virgin without change, bearing as his own what was alien; and willingly He appears circumscribed by its form, He who in his essence is uncircumscribed.
 
 ****
 
 Ode 6.
 
-<img src="http://default/anastasis/dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />weetness and rejoicing the mountains have rained down; for the multitude of heretics has been scattered, which exuded bitter poison: the rejection of the holy images.
+weetness and rejoicing the mountains have rained down; for the multitude of heretics has been scattered, which exuded bitter poison: the rejection of the holy images.
 
-<img src="http://default/anastasis/dropcap-y.gif" alt="dropcap-y.gif (1057 bytes)" width="46" height="50" />ea, let heaven and earth in harmony celebrate the greatness of the daughter of God; for she is magnified and casts down those who belittle her.
+ea, let heaven and earth in harmony celebrate the greatness of the daughter of God; for she is magnified and casts down those who belittle her.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ew birth He gave me, the Son, of old of the Father without mother, and divinely born of a Mother without father; therefore making an image I greet the one who gave birth together with the One who was born.
+ew birth He gave me, the Son, of old of the Father without mother, and divinely born of a Mother without father; therefore making an image I greet the one who gave birth together with the One who was born.
 
 ****
 
@@ -240,8 +237,7 @@ On the same day we celebrate the memory of the Holy and blest Fathers, who assem
 
 Verses
 
-The Champions with the weapons of your words,
-O Word, the foes of honoured icons trounced.
+The Champions with the weapons of your words, O Word, the foes of honoured icons trounced.
 
 This holy, seventh Ecumenical Council took place in Nicea a second time, in the reign of the Emperor Constantine and his mother Irene, when Hadrian was Pope of Rome, Tarasios Patriarch of Constantinople, Politianos of Alexandria, Theodoret of Antioch and Elias of Jerusalem. Three hundred and sixty five Holy Fathers were assembled. They all assembled against the Iconoclasts, and they condemned in writing every heresy, the leaders of the heresies and then all the Iconoclasts; placing on record and decreeing that anyone who does not venerate the holy images is a stranger to the Orthodox faith; that the honour given to the image passes to its prototype; and that whoever worships and honours the image, worships the person of the one depicted therein. And so when they had thus decreed and had strengthened the Orthodox faith, each one returned to his own See.
 
@@ -251,49 +247,49 @@ Through the prayers of the Holy Fathers, O God, have mercy upon us.
 
 Ode 7.
 
-<img src="http://default/anastasis/dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />verthrown are the leaders of heresy by the teachings of the inspired men, who rightly transfer the honour given to the types to their archetypes, as Basil the Great said: Blessed is the God of our Fathers.
+verthrown are the leaders of heresy by the teachings of the inspired men, who rightly transfer the honour given to the types to their archetypes, as Basil the Great said: Blessed is the God of our Fathers.
 
-<img src="dropcap-d.gif" alt="dropcap-d.gif (1089 bytes)" width="43" height="43" />ecorated now with shining images the churches are made beautiful; and so the world, through the churches, sings to the beauty far above all mortals, together with those who sing: Blessed is the God of our Fathers.
+ecorated now with shining images the churches are made beautiful; and so the world, through the churches, sings to the beauty far above all mortals, together with those who sing: Blessed is the God of our Fathers.
 
-<img src="http://default/anastasis/dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />ut of the way you impious, the light has dawned, the darkness is far off; and so all things filled with light sing the praise of Christ in good heart and say: Blessed is the God of our Fathers.
+ut of the way you impious, the light has dawned, the darkness is far off; and so all things filled with light sing the praise of Christ in good heart and say: Blessed is the God of our Fathers.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-f.gif" alt="dropcap-f.gif (1036 bytes)" width="36" height="44" />or all the only hope of salvation, the all-pure Sovereign Lady, who awe-inspiringly gave birth to Christ the King of kings, bearing him as an infant in her arms, is venerated together with him in painting, as the Fathers say.
+or all the only hope of salvation, the all-pure Sovereign Lady, who awe-inspiringly gave birth to Christ the King of kings, bearing him as an infant in her arms, is venerated together with him in painting, as the Fathers say.
 
 ****
 
 Ode 8.
 
-<img src="http://default/anastasis/dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he assembly of the Fathers excellently decreed, for those who honour God, a relative worship and the re-erection of the sacred image of Christ; but we lovers of true religion, as obedient children, celebrate their yearly memorial, and with longing we kiss Christ’s image.
+he assembly of the Fathers excellently decreed, for those who honour God, a relative worship and the re-erection of the sacred image of Christ; but we lovers of true religion, as obedient children, celebrate their yearly memorial, and with longing we kiss Christ’s image.
 
-<img src="http://default/anastasis/dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />ow fiercely the arrogant bowed the humble down, and repulsed the attacks of the lovers of virtue, because they opposed their inspired deeds; but the Fathers of the Seventh Council, assembled in Nicea, at once brought down their pride far more fiercely.
+ow fiercely the arrogant bowed the humble down, and repulsed the attacks of the lovers of virtue, because they opposed their inspired deeds; but the Fathers of the Seventh Council, assembled in Nicea, at once brought down their pride far more fiercely.
 
-<img src="http://default/anastasis/dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as the Psalmist said, the blows and lashes of those who think like infants become infants’ arrows for those who think like the old; and by God’s power many tongues of those who speak blasphemies against the Highest become feeble; and each one acknowledges the Father, the Son and the Spirit, one God, only cause of all things.
+ven as the Psalmist said, the blows and lashes of those who think like infants become infants’ arrows for those who think like the old; and by God’s power many tongues of those who speak blasphemies against the Highest become feeble; and each one acknowledges the Father, the Son and the Spirit, one God, only cause of all things.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-b.gif" alt="dropcap-b.gif (1094 bytes)" width="46" height="50" />y his mercy the Creator is willingly created as an infant from your pure blood, guarding you wholly purified after child-birth, O Pure one, and purifying his polluted image; therefore in images he is depicted with you, having become mortal by nature, who is God by nature.
+y his mercy the Creator is willingly created as an infant from your pure blood, guarding you wholly purified after child-birth, O Pure one, and purifying his polluted image; therefore in images he is depicted with you, having become mortal by nature, who is God by nature.
 
 ****
 
 Ode 9.
 
-<img src="http://default/anastasis/dropcap-l.gif" alt="dropcap-l.gif (1018 bytes)" width="46" height="50" />ord most mighty and King of all, great in might and counsel, who hold the universe in being, incomprehensible, alone God, strengthen the Church, protecting her by your orthodoxy, at the entreaties of the all-glorious Fathers, who have condemned false doctrine.
+ord most mighty and King of all, great in might and counsel, who hold the universe in being, incomprehensible, alone God, strengthen the Church, protecting her by your orthodoxy, at the entreaties of the all-glorious Fathers, who have condemned false doctrine.
 
-<img src="http://default/anastasis/dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven on earth, O Saints, whose minds were in heaven, you were found worthy of great honours, for you gave Christ’s image a relative honour; and now having laid aside the shadow and the covering of the flesh, you see him in person face to face, and are found worthy of yet greater things.
+ven on earth, O Saints, whose minds were in heaven, you were found worthy of great honours, for you gave Christ’s image a relative honour; and now having laid aside the shadow and the covering of the flesh, you see him in person face to face, and are found worthy of yet greater things.
 
-<img src="http://default/anastasis/dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />o that we might be chastened you provoked an assault by barbaric cavalry with all their host, do you shatter it yourself and their violence against us; and fight with the King who has shown his trust in you, who achieve all things, at the confident prayers of the Fathers whose memory we celebrate.
+o that we might be chastened you provoked an assault by barbaric cavalry with all their host, do you shatter it yourself and their violence against us; and fight with the King who has shown his trust in you, who achieve all things, at the confident prayers of the Fathers whose memory we celebrate.
 
 ****
 
 Theotokion.
 
-<img src="http://default/anastasis/dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he mystery of your awe-inspiring child-bearing no mortal mind can fathom; but no more than can the lofty mind of Angels that above nature you gave birth to God incarnate; therefore, acknowledging you as Mother of God and depicting you with him, we magnify you.
+he mystery of your awe-inspiring child-bearing no mortal mind can fathom; but no more than can the lofty mind of Angels that above nature you gave birth to God incarnate; therefore, acknowledging you as Mother of God and depicting you with him, we magnify you.
 
 ****
 
@@ -349,9 +345,6 @@ Communion.
 
 The just will be held in eternal memory.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -23,16 +23,13 @@ font-family:&quot;Book Antiqua&quot;">Now let the heavenly gate<a href="02feb.md
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 font-style:normal">Glory. Both now.<span style="color:red;mso-bidi-font-style:
-italic"> Tone 4.</span></span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;">
-</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+italic"> Tone 4.</span></span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;color:red;font-style:normal;mso-bidi-font-style:italic">By Andrew of Crete</span><a href="02feb.md" id="_ftnref3"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-special-character:footnote">[3]</span></span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">.</span>
 
 Today the holy Mother, who is higher than the Holy Place, has come to the Holy Place, revealing to the world the Maker of the world and the Giver of the law. Symeon the Elder took him in his arms and cried with veneration, ‘Now you release your servant. For I have seen you, the Saviour of our souls’.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">At the Aposticha. Prosomia.
-Tone 2. O House of Ephratha.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">At the Aposticha. Prosomia. Tone 2. O House of Ephratha.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Today the Saviour was brought as a babe into the temple of the Lord, and the Elder receives him with aged arms.</span>
@@ -44,8 +41,7 @@ font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse
 font-family:&quot;Book Antiqua&quot;">Christ, the burning coal foreseen by godly Isaias, in the hands of the Mother of God, as in a pair of tongs, is now given to the Elder.<a href="02feb.md" id="_ftnref5"><span style="mso-special-character:footnote">[5]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"> </span>*<span style="font-size:14.0pt;
+font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse:</span> <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">A light to bring revelation to the nations, and the glory of your people Israel.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -54,7 +50,7 @@ font-family:&quot;Book Antiqua&quot;">As Symeon held the Master in his arms with
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 font-style:normal">Glory. Both now</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Theotokion.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The All-Pure cried, ‘Symeon, receive as a babe in your arms the Lord of glory<a href="02feb.md" id="_ftnref6"><span style="mso-special-character:footnote">[6]</span></a> and the salvation of the world’.</span>
@@ -77,21 +73,20 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso
 footnote">[10]</span></span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Say, Symeon, whom do your carry in your arms, as you rejoice in the temple? To whom do you cry and shout aloud, ‘Now I have been set free. For I have seen my Saviour’? ‘This is he who was born from a Virgin. This is the Word, God from God, incarnate for our sake and who saves mankind. Let us worship him’.<span style="mso-tab-count:1">        </span>(<span style="color:red;mso-bidi-font-style:italic">Three times</span>)</span>
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Say, Symeon, whom do your carry in your arms, as you rejoice in the temple? To whom do you cry and shout aloud, ‘Now I have been set free. For I have seen my Saviour’? ‘This is he who was born from a Virgin. This is the Word, God from God, incarnate for our sake and who saves mankind. Let us worship him’.        (<span style="color:red;mso-bidi-font-style:italic">Three times</span>)</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Receive, Symeon, the One whom Moses in the dark cloud saw of old giving the Law on Sinai,<a href="02feb.md" id="_ftnref11"><span style="mso-special-character:footnote">[11]</span></a> now become a babe and subject to the Law. This is he who spoke through the Law. This is he who was told of in the Prophets,<a href="02feb.md" id="_ftnref12"><span style="mso-special-character:footnote">[12]</span></a> incarnate for our sake and who saves mankind. Let us worship him. <span style="mso-tab-count:1">       </span>(<span style="color:red;mso-bidi-font-style:
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Receive, Symeon, the One whom Moses in the dark cloud saw of old giving the Law on Sinai,<a href="02feb.md" id="_ftnref11"><span style="mso-special-character:footnote">[11]</span></a> now become a babe and subject to the Law. This is he who spoke through the Law. This is he who was told of in the Prophets,<a href="02feb.md" id="_ftnref12"><span style="mso-special-character:footnote">[12]</span></a> incarnate for our sake and who saves mankind. Let us worship him.        (<span style="color:red;mso-bidi-font-style:
 italic">Three times</span>)</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Come, let us too, with songs inspired, go to meet Christ. Let us receive him, whose salvation Symeon saw. This is he whom David proclaimed, and who spoke through the Prophets, was incarnate for our sake and who proclaims by the Law. Let us worship him.<span style="mso-tab-count:1">                                                  </span><span style="mso-tab-count:
-1">                   </span><span style="mso-tab-count:1">                       </span>(<span style="color:red;mso-bidi-font-style:
+mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Come, let us too, with songs inspired, go to meet Christ. Let us receive him, whose salvation Symeon saw. This is he whom David proclaimed, and who spoke through the Prophets, was incarnate for our sake and who proclaims by the Law. Let us worship him.                                                                                            (<span style="color:red;mso-bidi-font-style:
 italic">Twice</span><span style="mso-bidi-font-style:italic">)</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 font-style:normal">Glory. Both now</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Tone 6. By Monk John.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Tone 6. By Monk John.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Let heaven’s gate be opened today. For he who is without beginning, the Word of the Father, taking a beginning in time, yet not abandoning his godhead, is being willingly brought into the temple of the law as a babe of forty days by a Virgin Mother, and the Elder receives him in his arms. The servant cries to the Master, ‘Release me, for my eyes have seen your salvation’. You have come into the world to save the human race. Lord, glory to you!</span>
@@ -102,8 +97,7 @@ italic">Entrance, Prokeimenon and the Readings.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 font-style:normal">The Reading is from Exodus</span><span style="font-size:
-14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">.
-</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;font-style:normal">\[<span style="color:red;mso-bidi-font-style:
 italic">12,51- 13,16 and selection</span>\]<a href="02feb.md" id="_ftnref13"><span style="mso-special-character:footnote">[13]</span></a></span>
 
@@ -112,8 +106,7 @@ font-family:&quot;Book Antiqua&quot;">The Lord spoke to Moses on the day on whic
 italic">Numbers</span>\] Because these have been offered to me as an offering out of all the children of Israel. And I have taken them and sanctified them for myself in place of the first-born of the Egyptians, on the day when I smote every first-born in the land of Egypt from human to beast of burden,’ said God the Most High, the Holy One of Israel.’<a href="02feb.md" id="_ftnref15"><span style="mso-special-character:footnote">[15]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal">The Reading is from the Prophecy of Isaias</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">.
-</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+font-style:normal">The Reading is from the Prophecy of Isaias</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;font-style:normal">\[<span style="color:red;mso-bidi-font-style:
 italic">6,1-12</span>\]</span>
 
@@ -121,15 +114,13 @@ italic">6,1-12</span>\]</span>
 font-family:&quot;Book Antiqua&quot;">In the year that King Ozias died, I saw the Lord, seated on a high and exalted throne. And the house was full of his glory. And Seraphim stood around him, the one having six wings and the other having six wings, and with two they covered their faces and with two the feet and with two they flew. And one cried to other and they said, ‘Holy, Holy, Holy, Lord Sabaoth. The whole earth is full of his glory.’ The threshold was lifted up at the voice with which they cried, and the house was filled with smoke. And I said, ‘Woe is me! For I am pricked to the heart, because I, a human being, and with unclean lips dwell among a people with unclean lips, and with my eyes I have seen the King, the Lord Sabaoth.’ And one of the Seraphim was sent to me, and in his hand he held a burning coal, which he had taken with tongs from the altar. And touched my mouth and said, ‘See, this has touched your lips and it will take away your iniquities and cleanse your sins.’ And I heard the voice of the Lord saying, ‘Whom shall I send? And who will go to this people?’ And I said, ‘See, here am I. Send me.’ And he said, ‘Go, and say to this people, ‘You will hear and not understand, and seeing, you will see and not perceive.’ For the heart of this people has grown fat, and they have heard with heavy ears and they have shut their eyes, lest perhaps they perceive with their eyes and hear with their ears and understand with their heart and turn back, and I will heal them.’ And I said, ‘Until when, Lord?’ And he said, ‘Until the cities are deserted from being inhabited and the houses from there being no people, and the land will be abandoned as desert. And after this God will remove the people far away, and those who are left behind will be multiplied on the land’.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal">The Reading is from the Prophecy of Isaias.
-\[<span style="color:red;mso-bidi-font-style:italic">19,1.3-5.12.16.19-21</span>\]</span>
+font-style:normal">The Reading is from the Prophecy of Isaias. \[<span style="color:red;mso-bidi-font-style:italic">19,1.3-5.12.16.19-21</span>\]</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">See, the Lord will be seated on a light cloud and will come to Egypt and the idols of Egypt will be shaken at his presence and their heart will be worsted within them. ‘And their spirit will be troubled within them, and I will frustrate their counsel and hand Egypt over into the hands of harsh lords,’ says the Lord Sabaoth. And the Egyptians will drink water that is beside the sea, while the river will fail and be dried up. Thus says the Lord, ‘Where now are your wise men? And let them declare to you and let them say, ‘What has the Lord Sabaoth planned against Egypt?’ On that day the Egyptians will be like women, in fear and trembling in the presence of the hand of the Lord Sabaoth, which he will bring against them. And there will be an Altar to the Lord in the country of the Egyptians and a pillar to Lord at its border. And it will be for a sign for ever to the Lord in the country of Egypt, because they will cry to the Lord and he will send them a man who will save them. And the Lord will be known to the Egyptians. And the Egyptians will know the Lord in that day, and they will offer sacrifice and gift, and they will vow vows to the Lord and pay them.<a href="02feb.md" id="_ftnref16"><span style="mso-special-character:footnote">[16]</span></a></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">At the Liti, Idiomel Stichera.
-Tone 1. By Anatolios.</span><a href="02feb.md" id="_ftnref17"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-special-character:footnote">[17]</span></span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">At the Liti, Idiomel Stichera. Tone 1. By Anatolios.</span><a href="02feb.md" id="_ftnref17"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-special-character:footnote">[17]</span></span></a>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The Ancient of Days,<a href="02feb.md" id="_ftnref18"><span style="mso-special-character:footnote">[18]</span></a> who also gave the Law to Moses on Sinai, today appears as a babe. And according to the Law, as Maker of the Law, fulfilling the Law, he is brought to the temple and given to the Elder. The righteous Symeon, having received him and seen the accomplishment of the decrees completed, cried out with joy, ‘My eyes have seen the Mystery hidden from eternity, made manifest in these last times:<a href="02feb.md" id="_ftnref19"><span style="mso-special-character:footnote">[19]</span></a> a light that dispels the dark folly of the unbelieving nations and the glory of the newly chosen Israel. Therefore, release your servant from the bonds of this flesh for the wondrous life that is ageless and unceasing, O you who grant the world your great mercy.’</span>
@@ -137,7 +128,7 @@ font-family:&quot;Book Antiqua&quot;">The Ancient of Days,<a href="02feb.md" id=
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Monk John.</span><a href="02feb.md" id="_ftnref20"><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"><span style="mso-special-character:
-footnote">[20]</span></span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+footnote">[20]</span></span></a>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Today he who of old gave the Law to Moses on Sinai bows to the ordinances of the Law, having become for us like us in his compassion. Now God, who is pure, having opened a pure womb as a holy child, as God is being offered to himself, freeing us from the curse of the Law<a href="02feb.md" id="_ftnref21"><span style="mso-special-character:footnote">[21]</span></a> and enlightening our souls.</span>
@@ -155,8 +146,7 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Germanos.<
 font-family:&quot;Book Antiqua&quot;">Today Symeon receives in his embrace the Lord of glory, whom Moses saw of old in darkness giving him the Tables of the Law on Sinai. This is he who speaks in the Prophets and is the Maker of the Law. This is he whom David proclaimed, he who is fearful to all, he who has great and rich mercy.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Germanos.
-According to others, by Monk John.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Germanos. According to others, by Monk John.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The sacred Virgin offered the Sacred One in the Sacred Place to the Sacred Minister. Clasping him in his arms, Symeon received him with joy and cried out, ‘Now, Master, you release your servant, according to you word, in peace, O Lord.’</span>
@@ -168,8 +158,7 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By the same.<
 font-family:&quot;Book Antiqua&quot;">The Creator of heaven and earth was carried today by Symeon the Elder in his arms, for in the Holy Spirit he said, ‘Now I have been set free, for I have seen my Saviour.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Anatolios.
-According to others, Andrew of Jerusalem.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Anatolios. According to others, Andrew of Jerusalem.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Today Symeon the Elder enters the Temple, rejoicing in Spirit to receive in his arms the One who gave the Law to Moses and who fulfils the Law. For Moses was counted worthy to see God through darkness and a faint voice,<a href="02feb.md" id="_ftnref22"><span style="mso-special-character:
@@ -183,28 +172,23 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Tone 4. By Andrew of Cre
 font-family:&quot;Book Antiqua&quot;">Today the holy Mother, and more exalted than the Holy Place, has come to the Holy Place, revealing to the world the Maker of the world and the Giver of the Law. The Elder Symeon received him in his arms and in worship he cried, ‘Now you release your servant, because I have seen you, the Saviour of our souls.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal">Glory.</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:14.0pt;
+font-style:normal">Glory.</span> <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;font-style:normal;
-mso-bidi-font-style:italic">Tone 5. By the same.</span><span style="font-size:
-14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+mso-bidi-font-style:italic">Tone 5. By the same.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Search the Scriptures,<a href="02feb.md" id="_ftnref24"><span style="mso-special-character:footnote">[24]</span></a> as Christ our God said in the Gospels, for in them we find him brought to birth and wrapped in swaddling clothes, nursed and given suck, accepting circumcision and carried by Symeon, not in imagination, but in truth appearing to the world. To him let us cry, ‘God before the ages, glory to you!’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal;mso-bidi-font-style:italic">Both now.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Germanos.
-According to others, Anatolios.</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+font-style:normal;mso-bidi-font-style:italic">Both now.</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red;font-style:normal;mso-bidi-font-style:italic">Same Tone. By Germanos. According to others, Anatolios.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">The Ancient of Days, become an infant in the flesh, is being brought to the Temple by a Virgin Mother, as he fulfils the ordinance of his own Law. Symeon received him and said, ‘Now you release your servant according to your word in peace. For my eyes, O Lord, have seen your salvation.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">At the Aposticha, Idiomels.
-Tone 7. By Monk Kosmas.</span><a href="02feb.md" id="_ftnref25"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal"><span style="mso-special-character:footnote">[25]</span></span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">At the Aposticha, Idiomels. Tone 7. By Monk Kosmas.</span><a href="02feb.md" id="_ftnref25"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+font-style:normal"><span style="mso-special-character:footnote">[25]</span></span></a>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Adorn your bridal chamber, O Sion, and receive Christ the King. Greet Mary, the gate of heaven, for she is shown to be the Cherubim Throne.<a href="02feb.md" id="_ftnref26"><span style="mso-special-character:
@@ -226,9 +210,7 @@ font-family:&quot;Book Antiqua&quot;">Mary the Mother of God, carrying in her ar
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 font-style:normal">Glory. Both now</span><span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic"> Tone 8.
-By Andrew of Crete.</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic"> Tone 8. By Andrew of Crete.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">He who rides on the Cherubim and is hymned by the Seraphim is being brought today into God’s Temple according to the Law and enthroned on aged arms. By Joseph he receives gifts befitting God, as a pair of turtle doves the unblemished Church and the newly chosen people of the nations; as Author of the Old and New Covenants, two young pigeons. Symeon, having received the fulfilment of the oracle concerning him, blessed Mary, the Virgin Mother of God, and foretold the symbols of the Passion of the One born from her. From him he asks for his release, crying out, ‘Now you release me, Master, as you promised me; for I have seen you, the pre-eternal light, Saviour and Lord of the people that bears Christ’s name.’</span>
@@ -242,20 +224,16 @@ font-family:&quot;Book Antiqua&quot;">Hail, full of grace, Virgin Mother of God,
 AT MATINS
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">After the 1st reading from the Psalter, Kathisma.
-Tone 1. Model Melody.</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;">
-</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+color:red;font-style:normal;mso-bidi-font-style:italic">After the 1st reading from the Psalter, Kathisma. Tone 1. Model Melody.</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;font-style:normal">\[<span style="color:red;mso-bidi-font-style:
-italic">By St Romanos</span>\]<a href="02feb.md" id="_ftnref30"><span style="mso-special-character:footnote">[30]</span></a></span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+italic">By St Romanos</span>\]<a href="02feb.md" id="_ftnref30"><span style="mso-special-character:footnote">[30]</span></a></span>
 
 Let the angelic choir be amazed at the wonder, and let us mortals with our voices shout aloud a hymn of praise, as we see the ineffable condescension of God; for the One at whom the powers of heaven tremble aged hands now cradle, the only Lover of mankind.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Glory. Both now. <span style="color:red;mso-bidi-font-style:italic">The same again.</span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">After the 2nd reading from the Psalter, Kathisma.
-Tone 1. Same melody.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">After the 2nd reading from the Psalter, Kathisma. Tone 1. Same melody.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">He who is with the Father on a holy throne, coming to earth, was born from a Virgin; and he who is uncircumscribed by time became a babe. Symeon received him in his arms and said with joy, ‘Now you release me, O Compassionate, for you have made your servant glad.’</span>
@@ -264,51 +242,14 @@ font-family:&quot;Book Antiqua&quot;">He who is with the Father on a holy throne
 
 <span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red">The Selection for the Polyeleos </span><span style="font-size:14.0pt;
-mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">\[<span style="color:red">Psalm 44</span>\]<span style="color:red">
-</span>A good word. Alleluia.</span>
+mso-bidi-font-size:12.0pt;font-family:&quot;Book Antiqua&quot;">\[<span style="color:red">Psalm 44</span>\] A good word. Alleluia.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">My heart has uttered a good word.
-I tell my works to the king.
-My tongue is the pen of a swiftly writing scribe.
-You are fair in beauty beyond the sons of men.
-Grace has been poured out on your lips.
-Therefore God has blessed you for ever.
-Gird your sword on your thigh, O mighty one.
-In your beauty and<span style="mso-spacerun: yes">  </span>loveliness.
-And draw your sword, go forward and reign.
-For the sake of truth and meekness and justice.
-Your arrows have been sharpened, O mighty one.
-Peoples will fall beneath you.
-In the heart of the king’s enemies.
-Your throne, O God, is to age on age.
-A staff of uprightness is the staff of your kingdom.
-You have loved justice and hated iniquity.
-Therefore God, your God, has anointed you with oil of gladness beyond your fellows.
-Myrrh and sweet oil and cassia from your garments.
-From ivory palaces, from which they have gladdened you.
-Daughters of kings in your honour.
-The queen stood at your right hand.
-Robed in a garment of gold, in many colours.
-</span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:
-&quot;Book Antiqua&quot;">Listen, O daughter, and see, and incline your ear, and forget your people and your father’s house.
-And the king will desire your beauty.
-Because he is your Lord, and you will worship him.
-The wealthy of the people will entreat your face.
-All the glory of the king’s daughter is within.
-Robed in garments fringed with gold, in many colours.
-The Lord is in his holy temple. The Lord, his throne is in heaven.
-Holiness and majesty in your hallowing.
-Your paths, O God, have been seen.
-The paths of my God, the King who is in the holy place.
-Holy your temple, wonderful in righteousness.
-Holiness becomes your house, O Lord, for length of days.
-I will remember your name in every generation and generation.
-Thus I will sing to your name to the ages, that it is good in the sight of your holy ones.</span>
+font-family:&quot;Book Antiqua&quot;">My heart has uttered a good word. I tell my works to the king. My tongue is the pen of a swiftly writing scribe. You are fair in beauty beyond the sons of men. Grace has been poured out on your lips. Therefore God has blessed you for ever. Gird your sword on your thigh, O mighty one. In your beauty and  loveliness. And draw your sword, go forward and reign. For the sake of truth and meekness and justice. Your arrows have been sharpened, O mighty one. Peoples will fall beneath you. In the heart of the king’s enemies. Your throne, O God, is to age on age. A staff of uprightness is the staff of your kingdom. You have loved justice and hated iniquity. Therefore God, your God, has anointed you with oil of gladness beyond your fellows. Myrrh and sweet oil and cassia from your garments. From ivory palaces, from which they have gladdened you. Daughters of kings in your honour. The queen stood at your right hand. Robed in a garment of gold, in many colours. </span><span style="font-size:14.0pt;mso-bidi-font-size:12.0pt;font-family:
+&quot;Book Antiqua&quot;">Listen, O daughter, and see, and incline your ear, and forget your people and your father’s house. And the king will desire your beauty. Because he is your Lord, and you will worship him. The wealthy of the people will entreat your face. All the glory of the king’s daughter is within. Robed in garments fringed with gold, in many colours. The Lord is in his holy temple. The Lord, his throne is in heaven. Holiness and majesty in your hallowing. Your paths, O God, have been seen. The paths of my God, the King who is in the holy place. Holy your temple, wonderful in righteousness. Holiness becomes your house, O Lord, for length of days. I will remember your name in every generation and generation. Thus I will sing to your name to the ages, that it is good in the sight of your holy ones.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">After the Polyeleos. Kathisma.
-Tone 4. Joseph was amazed.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">After the Polyeleos. Kathisma. Tone 4. Joseph was amazed.</span>
 
 The Ancient of Days becomes an infant for my sake. God, who is most pure, shares in purifications that he may confirm my flesh, which he took from a Virgin. And Symeon, initiated into the mystery, acknowledged him as God who had appeared in flesh and greeted him as Life. As an old man with joy he cried, ‘Release me, for I have seen you, the Life of all.’
 
@@ -333,19 +274,17 @@ font-style:normal">Glory</span><span style="font-size:14.0pt;mso-bidi-font-size:
 font-family:&quot;Book Antiqua&quot;">By the Holy Spirit every soul is given life, by cleansing it is exalted, it is made bright by the threefold Unity in a sacred mystery.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal">Both now.</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+font-style:normal">Both now.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">By the Holy Spirit every soul is given life, by cleansing it is exalted, it is made bright by the threefold Unity in a sacred mystery.**</span>
+font-family:&quot;Book Antiqua&quot;">By the Holy Spirit every soul is given life, by cleansing it is exalted, it is made bright by the threefold Unity in a sacred mystery.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Prokeimenon. Tone 4.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal">\[<span style="color:red;mso-bidi-font-style:italic">Psalm 44</span>\]</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Prokeimenon. Tone 4.</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+font-style:normal">\[<span style="color:red;mso-bidi-font-style:italic">Psalm 44</span>\]</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">I will remember your name throughout all generations.</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">I will remember your name throughout all generations.</span>
 
 <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;color:red;letter-spacing:
@@ -358,8 +297,7 @@ font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Then,
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Gospel according to Luke </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Book Antiqua&quot;;font-style:normal">\[<span style="color:red;mso-bidi-font-style:
-italic">2,25-32</span>\].</span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+italic">2,25-32</span>\].</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Psalm 50.</span>
@@ -380,23 +318,20 @@ font-family:&quot;Book Antiqua&quot;">Through the prayers of the Mother of God, 
 &quot;Book Antiqua&quot;">Have mercy on me, O God, according to your great mercy. According to the fullness of your compassion blot out my offences.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Then the following Idiomel.
-Tone 6. By Monk John.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Then the following Idiomel. Tone 6. By Monk John.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Let heaven’s gate be opened today. For he who is without beginning, the Word of the Father, taking a beginning in time, yet not abandoning his godhead, is being willingly brought into the temple of the law as a babe of forty days by a Virgin Mother, and the Elder receives him in his arms. The servant cries to the Master, ‘Release me, for my eyes have seen your salvation’. You have come into the world to save the human race. Lord, glory to you!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">The Canon, of which the Acrostic is:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;font-style:normal;mso-bidi-font-style:italic">
-An Elder, rejoicing, holds Christ in his arms.</span>
+font-family:&quot;Book Antiqua&quot;;font-style:normal;mso-bidi-font-style:italic"> An Elder, rejoicing, holds Christ in his arms.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">The Irmi are used as Katavasias.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">A Composition by Monk Kosmas.
-Ode 1. Tone 3. The Irmos.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">A Composition by Monk Kosmas. Ode 1. Tone 3. The Irmos.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">‘The sun once shone on dry land, mother of the deep.<a href="02feb.md" id="_ftnref31"><span style="mso-special-character:footnote">[31]</span></a> For the water was fixed fast like a wall on either side for the people as they marched on foot<a href="02feb.md" id="_ftnref32"><span style="mso-special-character:
@@ -483,27 +418,14 @@ font-family:&quot;Book Antiqua&quot;">‘I have worshipped you, Son of the Most 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Kontakion. Tone 1. By Romanos.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">You sanctified a virgin womb by your birth,
-And fittingly blessed Symeon’s hands;
-You have come now too and saved us, O Christ God.
-But give peace to your commonwealth in times of war,
-And strengthen its Rulers, whose friend you are,
-Only Lover of mankind.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">You sanctified a virgin womb by your birth, And fittingly blessed Symeon’s hands; You have come now too and saved us, O Christ God. But give peace to your commonwealth in times of war, And strengthen its Rulers, whose friend you are, Only Lover of mankind.</span>
 
  
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Ikos</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Let us run to the Mother of God if we wish to see her Son
-Being brought to Symeon.
-From heaven the Bodiless Ones are amazed as they look on him and say,
-‘Wondrous and marvellous<a href="02feb.md" id="_ftnref59"><span style="mso-special-character:footnote">[59]</span></a>, incomprehensible, ineffable are the things we now see,
-For the One who created Adam is being carried<a href="02feb.md" id="_ftnref60"><span style="mso-special-character:footnote">[60]</span></a> as a babe;
-The uncontainable is contained in the arms of the elder;<a href="02feb.md" id="_ftnref61"><span style="mso-special-character:footnote">[61]</span></a>
-He who is in the uncircumscribed bosom of his Father<a href="02feb.md" id="_ftnref62"><span style="mso-special-character:footnote">[62]</span></a>
-Is willingly circumscribed in flesh, but not in godhead,
-The only Lover of mankind’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Let us run to the Mother of God if we wish to see her Son Being brought to Symeon. From heaven the Bodiless Ones are amazed as they look on him and say, ‘Wondrous and marvellous<a href="02feb.md" id="_ftnref59"><span style="mso-special-character:footnote">[59]</span></a>, incomprehensible, ineffable are the things we now see, For the One who created Adam is being carried<a href="02feb.md" id="_ftnref60"><span style="mso-special-character:footnote">[60]</span></a> as a babe; The uncontainable is contained in the arms of the elder;<a href="02feb.md" id="_ftnref61"><span style="mso-special-character:footnote">[61]</span></a> He who is in the uncircumscribed bosom of his Father<a href="02feb.md" id="_ftnref62"><span style="mso-special-character:footnote">[62]</span></a> Is willingly circumscribed in flesh, but not in godhead, The only Lover of mankind’.</span>
 
  
 
@@ -513,10 +435,8 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Synaxarion.</span>
 On the 2nd of the month, the Meeting of our Lord, Jesus Christ, when the righteous Symeon received him into his arms.
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal">Verses.
-</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;;font-style:normal">The hands of Symeon that carry you
-The Father’s bosom typify, my Christ.</span>
+color:red;font-style:normal">Verses. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+&quot;Book Antiqua&quot;;font-style:normal">The hands of Symeon that carry you The Father’s bosom typify, my Christ.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Forty days having passed since the incarnation of the Lord’s salvation, the nativity from the Ever-Virgin without husband, our Lord Jesus Christ was brought on this most honoured day into the temple by his all-pure Mother and the just Joseph, in accordance with the shadowy letter of the Law. When the aged Symeon, the Elder, to whom it had been revealed by the Holy Spirit that he would not see death until he had seen the Lord’s Christ, had received him in his arms and given thanks and glory to God, he cried out, ‘Now, Master, you release your servant according to your word’. And after his great joys he departed from life here, having received heavenly and unending in exchange for those of earth. This assembly is held in the revered house of our immaculate Lady, Mother of God and Ever-Virgin Mary, which is in Vlachernae.</span>
@@ -525,10 +445,8 @@ font-family:&quot;Book Antiqua&quot;">Forty days having passed since the incarna
 font-family:&quot;Book Antiqua&quot;">On the same day, Commemoration of the holy Martyr, Agathodoros.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Verses.
-</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;;font-style:normal;mso-bidi-font-style:italic">To Agathódoros, a gift \[<span style="color:red">doron</span>\] to God
-Through blood, I give \[<span style="color:red">doro</span>\] a gift out of my words.</span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Verses. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
+&quot;Book Antiqua&quot;;font-style:normal;mso-bidi-font-style:italic">To Agathódoros, a gift \[<span style="color:red">doron</span>\] to God Through blood, I give \[<span style="color:red">doro</span>\] a gift out of my words.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">As a young man he was brought before the Governor of Tyana, and because of his confession of Christ, he was flogged. Then he was placed on a burning brazier. His tongue was cut out with a knife. His teeth were pulled out with forceps. The skin of his face was removed with a razor. His thighs and legs were smashed. His sides were pierced through with a pole. The membrane of his brain<a href="02feb.md" id="_ftnref63"><span style="mso-special-character:footnote">[63]</span></a> received red hot skewers. And so he yielded his spirit to God.</span>
@@ -569,9 +487,8 @@ footnote">[73]</span></a> for he is God and a little child.’ To him let us sin
 font-family:&quot;Book Antiqua&quot;">He that is life, God the Word become a babe, will be the fall of the disobedient, but resurrection for those who sing with faith,<a href="02feb.md" id="_ftnref74"><span style="mso-special-character:footnote">[74]</span></a> ‘Bless the Lord, all you works of the Lord, and praise and exalt him to all the ages.’</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Ode 9.
-Megalynaria sung with this Ode.</span><a href="02feb.md" id="_ftnref75"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-font-style:normal"><span style="mso-special-character:footnote">[75]</span></span></a><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Ode 9. Megalynaria sung with this Ode.</span><a href="02feb.md" id="_ftnref75"><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+font-style:normal"><span style="mso-special-character:footnote">[75]</span></span></a>
 
 That which is fulfilled in you is beyond the understanding both of Angels and of mortals, O pure Virgin Mother.
 
@@ -653,8 +570,7 @@ font-family:&quot;Book Antiqua&quot;">Coming to the Temple by the Spirit, the El
 font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">At Lauds we insert 4 Stichera and sing three Prosomia, doubling the first.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Tone 4. You have given as a sign.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Tone 4. You have given as a sign.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;">Fulfilling the written Law, the Lover of mankind is now being brought into the Temple. And Symeon the Elder receives him in aged arms, crying, ‘Now you release me to the blessedness of the other world, for today I have seen you, clothed in mortal flesh, the Lord of life and Master of death.’</span>
@@ -685,7 +601,7 @@ color:red;font-style:normal;mso-bidi-font-style:italic">Typika and from the 3rd 
 color:red;font-style:normal;mso-bidi-font-style:italic">Or the following Antiphons.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">Antiphon 1.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+color:red;font-style:normal;mso-bidi-font-style:italic">Antiphon 1.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;letter-spacing:-.1pt;mso-bidi-font-style:italic">Verse 1: </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -703,8 +619,7 @@ color:red;mso-bidi-font-style:italic">Verse 2: </span><span style="font-size:
 letter-spacing:-.1pt">At the prayers of the Mother of God…</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;mso-bidi-font-style:italic">Verse 3:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:
-&quot;Book Antiqua&quot;"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:
+color:red;mso-bidi-font-style:italic">Verse 3:</span> <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">Grace was poured from your lips.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
@@ -722,8 +637,7 @@ font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">Therefore God has ble
 color:red;font-style:normal;mso-bidi-font-style:italic">Antiphon 2.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse 1:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"> </span>*<span style="font-size:14.0pt;
+font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse 1:</span> <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">Gird your sword on your thigh, mighty warrior, in your splendour and beauty.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -731,8 +645,7 @@ font-family:&quot;Book Antiqua&quot;">Son of God, carried in the arms of righteo
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red;letter-spacing:-.1pt;mso-bidi-font-style:
-italic">Verse 2:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-letter-spacing:-.1pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:
+italic">Verse 2:</span> <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">Draw your bow and prosper, and reign.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -747,8 +660,7 @@ font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">Your arrows have been
 font-family:&quot;Book Antiqua&quot;">Son of God, carried in the arms of righteous Symeon, save us who sing to you. Alleluia!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;letter-spacing:-.1pt;mso-bidi-font-style:italic">Verse 4:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red;letter-spacing:-.1pt;mso-bidi-font-style:italic">Verse 4:</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 letter-spacing:-.1pt">The sceptre of your Kingdom is a rod of justice.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -761,8 +673,7 @@ letter-spacing:-.1pt">Only-begotten Son…</span>
 color:red;font-style:normal;mso-bidi-font-style:italic">Antiphon 3.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse 1:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;font-family:&quot;Book Antiqua&quot;"> </span>*<span style="font-size:14.0pt;
+font-family:&quot;Book Antiqua&quot;;color:red;mso-bidi-font-style:italic">Verse 1:</span> <span style="font-size:14.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">Listen my daughter and see, and incline your ear.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -773,12 +684,11 @@ font-family:&quot;Book Antiqua&quot;;color:red;letter-spacing:-.1pt;mso-bidi-fon
 italic">Verse 2:</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt"> The richest of the people will entreat your favour.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Hail, full of grace, Virgin Mother of God…<span style="letter-spacing:-.1pt"></span></span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Hail, full of grace, Virgin Mother of God…</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Book Antiqua&quot;;color:red;letter-spacing:-.1pt;mso-bidi-font-style:
-italic">Verse 3:</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-letter-spacing:-.1pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:
+italic">Verse 3:</span> <span style="font-size:14.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;;letter-spacing:-.1pt">I will remember your name throughout all generations.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Hail, full of grace, Virgin Mother of God…</span>
@@ -787,11 +697,10 @@ letter-spacing:-.1pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:
 color:red;font-style:normal;mso-bidi-font-style:italic">Entrance.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;">The Lord has made known his salvation before all the nations.
-Son of God, carried in the arms of righteous Symeon, save us who sing to you. Alleluia!</span>
+font-family:&quot;Book Antiqua&quot;">The Lord has made known his salvation before all the nations. Son of God, carried in the arms of righteous Symeon, save us who sing to you. Alleluia!</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
-color:red;font-style:normal;mso-bidi-font-style:italic">At,</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
+color:red;font-style:normal;mso-bidi-font-style:italic">At,</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 font-style:normal">It is truly right.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
@@ -803,12 +712,10 @@ font-family:&quot;Book Antiqua&quot;">In the shadow and letter of the Law, Let u
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;
 color:red;font-style:normal;mso-bidi-font-style:italic">Communion.</span>
 
-I will take the cup of salvation, and call upon the name of the Lord. Alleluia.<span style="letter-spacing:-.1pt"></span>
-
-------------------------------------------------------------------------
+I will take the cup of salvation, and call upon the name of the Lord. Alleluia.
 
 <a href="02feb.md" id="_ftn1"><span style="mso-special-character:
-footnote">[1]</span></a> Luke 2,29. Further references to the frequent quotations from the *Nunc Dimittis* will not be given. The Greek word<span style="mso-spacerun: yes">  </span>means more than ‘let depart’, as does the Latin ‘dimitto’. It means to ‘release’, ‘loose’, set free’. It may have financial, military, legal or social connotations; ‘discharge a debt’, ‘disband or discharge troops’, ‘acquit’ or even ‘divorce’, as at Matthew 1,19. It is also used in the LXX euphemistically of ‘dying’, e.g. Gen. 15,2; Numbers 20,29; Tobit 3,6.13. ‘Dismiss’ is perhaps too dismissive, so I tentatively propose ‘release’. The word also occurs at Matthew 15,23, where the Disciples say to Jesus of the Phoenician woman, ‘Let her go‘ (implying ‘with her request granted‘). Nearly all Enlgish versions have ‘Send her away‘. This is far too harsh and distorts the true meaning of the passage.
+footnote">[1]</span></a> Luke 2,29. Further references to the frequent quotations from the *Nunc Dimittis* will not be given. The Greek word  means more than ‘let depart’, as does the Latin ‘dimitto’. It means to ‘release’, ‘loose’, set free’. It may have financial, military, legal or social connotations; ‘discharge a debt’, ‘disband or discharge troops’, ‘acquit’ or even ‘divorce’, as at Matthew 1,19. It is also used in the LXX euphemistically of ‘dying’, e.g. Gen. 15,2; Numbers 20,29; Tobit 3,6.13. ‘Dismiss’ is perhaps too dismissive, so I tentatively propose ‘release’. The word also occurs at Matthew 15,23, where the Disciples say to Jesus of the Phoenician woman, ‘Let her go‘ (implying ‘with her request granted‘). Nearly all Enlgish versions have ‘Send her away‘. This is far too harsh and distorts the true meaning of the passage.
 
 <a href="02feb.md" id="_ftn2"><span style="mso-special-character:
 footnote">[2]</span></a> <span style="vertical-align:baseline;vertical-align:baseline">Cf. Gen. 28,17.</span>
@@ -841,7 +748,7 @@ footnote">[10]</span></a> 645-740. Patriarch of Constantinople 715-730, deposed 
 footnote">[11]</span></a> Exod. 20,21.
 
 <a href="02feb.md" id="_ftn12"><span style="mso-special-character:
-footnote">[12]</span></a> I take the aorist participle here to be a true passive. The *Festal Menaion* <span style="mso-spacerun: yes"> </span>takes it as active.
+footnote">[12]</span></a> I take the aorist participle here to be a true passive. The *Festal Menaion*  takes it as active.
 
 <a href="02feb.md" id="_ftn13"><span style="mso-special-character:
 footnote">[13]</span></a> This reading is a selection from Exodus 12,51-13,16 together with 22,29 and passages from Leviticus 12 and Numbers 8. The reference to the purification of the mother in Leviticus is made to refer to the child. This may be influenced by Luke 2,22, which has ‘their’, not ‘her’, or, according to the Western text, ‘his’. The text in *The Festal Menaion* is misleading, being translated from the Hebrew, not the Greek of the Menaion, which differs noticeably from the LXX.
@@ -1055,9 +962,6 @@ footnote">[82]</span></a> In Greek *Theodochos*.
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

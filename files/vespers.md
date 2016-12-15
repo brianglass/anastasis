@@ -18,8 +18,6 @@ In an Appendix we note the differences for the celebration of Daily Vespers, sin
 
 The text of the Litanies and other hymns and prayers which occur in the Divine Liturgy are taken from the bilingual edition of the Liturgy published with the blessing of the Archbishop of Thyateira and Great Britain.
 
-------------------------------------------------------------------------
-
 **VESPERS**
 
 FOR SUNDAYS AND FEASTS
@@ -35,18 +33,13 @@ Blessed is our God, always, now and for ever, and to the ages of ages.
 
 Then the Superior, or the appointed person, reads the Opening Psalm, one of the ‘Gerontika’, as follows:
 
-Amen.
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King and our God. ****
+Amen. Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King and our God. ****
 
 Psalm 103
 
 Bless the Lord, my soul! O Lord my God, you have been greatly magnified. You have clothed yourself with thanksgiving and majesty, wrapping yourself in light as in a cloak, stretching out the heavens like a curtain, roofing his upper chambers with waters, placing clouds as his mount, walking on the wings of the wind, making spirits his Angels and a flame of fire his Ministers, establishing the earth on its sure base; it will not be moved to age on age. The deep, like a cloak, is its mantle; waters will stand upon the mountains. At your rebuke they will flee; they will quail at the voice of your thunder. The mountains will rise and the plains descend to the place which you established for them. You fixed a limit that they will not pass, nor will they return to cover the earth. You send out springs into the valleys; waters will run between the mountains. They will give drink to all the beasts of the field; the wild asses will await them to quench their thirst. Beside them the birds of the air will make their dwelling: and sing among the rocks. He waters the mountains from his upper chambers; the earth will be filled from the fruit of your works. He makes grass spring up for the cattle, and green herb for the service of mankind; to bring food out of the earth, and wine makes glad the human heart; to make the face cheerful with oil, and bread strengthens the human heart. The trees of the plain will be satisfied, the cedars of Lebanon that you planted. There the sparrows will build their nests; the heron’s dwelling is at their head. The high mountains are for the deer; rocks a refuge for hares. He made the moon to mark the seasons; the sun knew the hour of its setting. You appointed darkness, and it was night, in which all the beasts of the forest will prowl; young lions roaring to plunder and to seek their food from God. The sun rose and they were gathered together and they will lie down in their dens. Man will go out to his labour; and to his labouring until evening. How your works have been magnified, O Lord. With wisdom you have made them all, and the earth was filled with your creation. See, this great, wide sea; there there are creeping things without number, living creatures small and great. There ships go to and fro; this dragon which you fashioned to sport in it. All things look to you to give them their food in due season. When you give it them, they will gather it. ****
 
 If the Anixantaria are to be sung, the Reader only reads as far as this.
-
-****
 
 When you open your hand all things will be filled with goodness. But when you turn away your face they will be troubled. You will take away their spirit, and they will perish and return to their dust. You will send forth your spirit, and they will be created, and you will renew the face of the earth. May the glory of the Lord endure to the ages. The Lord will rejoice at his works. He looks upon the earth and makes it tremble. He touches the mountains, and they smoke. I will sing to the Lord while I live; I will praise my God while I exist. May my words be pleasing to him. While as for me, I shall rejoice in the Lord. O that sinners might perish from the earth, and the wicked, so that they are no more. Bless the Lord, my soul!
 
@@ -63,8 +56,6 @@ Both now and for ever, and to the ages of ages. Amen.
 Alleluia, Alleluia, Alleluia. Glory to you, O God.
 
 **(x3)**
-
-------------------------------------------------------------------------
 
 While the Opening Psalm is being read the Priest, bareheaded and standing in front of the Holy Table, says quietly the following Prayers at the Lighting of the Lamps, having first blessed the Deacon’s Sticharion and Orarion as usual.
 
@@ -110,7 +101,7 @@ By the mercy and love for mankind of your Only-begotten Son, with whom you are b
 
 6th Prayer
 
-O **** God, great and wonderful, who order the universe with inexpressible loving-kindness and rich providence; who have granted us also the blessings of this world and brought us near to the promised Kingdom through the blessings that have been bestowed on us already; who have made us turn aside from every evil during that part of the present day which is now over, grant us also to complete what remains without blame in the presence of your holy glory, as we sing your praise, who alone are our God, good and the Lover of mankind.
+O God, great and wonderful, who order the universe with inexpressible loving-kindness and rich providence; who have granted us also the blessings of this world and brought us near to the promised Kingdom through the blessings that have been bestowed on us already; who have made us turn aside from every evil during that part of the present day which is now over, grant us also to complete what remains without blame in the presence of your holy glory, as we sing your praise, who alone are our God, good and the Lover of mankind.
 
 For you are our God, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -121,8 +112,6 @@ For you are our God, and to you we give glory, to the Father, the Son and the Ho
 Great and most high God, who alone possess immortality, who dwell in unapproachable light, who fashioned all creation with wisdom, who made the separation between the light and the darkness and who placed the sun to have authority over the day and the moon and the stars to have authority over the night, who have counted us sinners worthy even at this present hour to come into your presence with confession and thanksgiving and to offer you our evening hymn of glory; do you, O Lord who love mankind, direct our prayer like incense before you and accept it as a savour of sweet fragrance. Grant us that the present evening and the coming night may be peaceful, clothe us with weapons of light, deliver us from every night-time fear and from every deed that walks in darkness. And give us sleep, which you have bestowed on us for our rest in our weakness, freed from every fantasy of the devil. Yes, Master of all things, giver of blessings, may we also be filled with compunction on our beds and call to mind your Name in the night, and enlightened by meditation on your commandments may we rise with gladness of soul to give glory to your loving-kindness, as we bring to your compassion supplications and entreaties on behalf of our own sins and those of all your people. At the prayers of the holy Mother of God visit them with mercy.
 
 For you, O God, are good and love mankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. Amen.
-
-------------------------------------------------------------------------
 
 ****
 
@@ -176,7 +165,7 @@ To you, O Lord. ****
 
 Priest:
 
-** For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -187,27 +176,19 @@ After the Litany, except on the Feasts of the Lord, the appointed Kathisma of th
 First Kathisma
 --------------
 
-**Psalm 1
-Of David. Untitled in the Hebrew.**
+**Psalm 1 Of David. Untitled in the Hebrew.**
 
 Blessed is the man who has not walked in the council of the ungodly, nor stood in the way of sinners, nor sat on the seat of the pestilent. But his will is in the law of the Lord, and on his law he will meditate day and night. He will be like a tree that has been planted beside streams of water, which will give its fruit in its season, and its leaves will not fall; and whatever he does will prosper. Not so the ungodly, not so: but like the chaff that the wind blows away from the face of the earth. Therefore the ungodly will not rise in judgement, nor sinners in the council of the just. Because the Lord knows the way of the just, but the way of the ungodly will perish.
 
 ****
 
-Psalm 2
-A Psalm of David.
-
-****
+Psalm 2 A Psalm of David.
 
 Why were the nations insolent and why did the peoples meditate vain things? The kings of the earth stood up and the rulers were assembled together against the Lord and against his Christ. ‘Let us break through their bonds and cast away their yoke from us.’ He that dwells in heaven will laugh them to scorn and the Lord will mock them. Then he will speak to them in his anger and panic them in his fury. But I was established as king by him, on Sion his holy mountain announcing the Lord’s decree: The Lord said to me, ‘You are my Son. Today I have begotten you. Ask me, and I shall give you nations as your inheritance, and the ends of the earth as your possession. You will shepherd them with an iron rod; like a potter’s vessels you will smash them.’ And now, kings, understand; be corrected, all who judge the earth. Serve the Lord in fear and rejoice in him with trembling. Accept correction, lest the Lord be angry, and you perish from the right way whenever his fury is suddenly kindled. Blessed are all who have put their trust in him.
 
 ****
 
-Psalm 3
-A Psalm of David,
-when he fled from his son Absalom in the wilderness.
-
-****
+Psalm 3 A Psalm of David, when he fled from his son Absalom in the wilderness.
 
 Lord, why have those who afflict me been multiplied? Many rise up against me. Many say to my soul, ‘There is no salvation for him in his God.’ But you, Lord, are my protector, my glory, and the one who lifts up my head. I cried to the Lord with my voice and he heard me from his holy mountain. I lay down and slept; I have been roused, because the Lord will protect me. I shall not be afraid of tens of thousands of people who attack me from every side. Arise, Lord; save me, my God, because you have struck all who are vainly my foes, you have smashed the teeth of sinners. Salvation is the Lord’s, and your blessing is upon your people.
 
@@ -217,10 +198,7 @@ Glory to the Father and to the Son and to the Holy Spirit.
 
 The following should be read by another reader:
 
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God*.* **(x3)**
-Lord, have mercy, Lord, have mercy, Lord, have mercy.
-Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God*.* **(x3)** Lord, have mercy, Lord, have mercy, Lord, have mercy. Glory to the Father and to the Son and to the Holy Spirit.
 
 ****
 
@@ -230,28 +208,19 @@ Both now and for ever, and to the ages of ages. Amen.
 
 ****
 
-Psalm 4
-To the end. In hymns. A Psalm of David.
-
-****
+Psalm 4 To the end. In hymns. A Psalm of David.
 
 When I called you heard me, God of my justice, when I was in trouble you set me at large; have pity on me and hear my prayer. Children of men, how long will you be heavy-hearted? Why do you love vanity and seek falsehood? Know too that the Lord has made his Holy One wonderful. The Lord will hear me when I cry to him. Be angry, and do not sin; for what you say in your hearts, feel compunction on your beds. Sacrifice a sacrifice of righteousness and hope in the Lord. Many say: Who will show us good things? The light of your countenance has been signed upon us, O Lord. You have given joy to my heart; from the fruit of their wheat, wine and oil they have been filled. I shall lie down in peace and sleep at once; because you alone, Lord, have made me dwell in hope.
 
 ****
 
-Psalm 5
-To the end: for her that inherits: a Psalm of David.
-
-****
+Psalm 5 To the end: for her that inherits: a Psalm of David.
 
 Give ear to my words, O Lord, understand my cry. Attend to the voice of my supplication, my King and my God; for to you I shall pray, O Lord. In the morning you will hear my voice, in the morning I shall stand before you and you will watch over me, because you are not a God who wills iniquity. One who does evil will not dwell with you, nor will the lawless remain before your eyes. You have hated all who work iniquity; you will destroy all who speak falsehood. The Lord abhors a man of bloodshed and deceit. But I in the multitude of your mercy will enter your house, I will bow down towards your holy temple in fear of you. Lord, guide me in your justice because of my foes, make my way straight before you. Because truth is not in their mouth; their heart is vain. Their throat is a opened tomb, they have deceived with their tongues: judge them, O God. Let them fall through their counsels, cast them out in accordance with the multitude of their impious deeds, because they have provoked you, O Lord. And let all who hope on you be glad in you; they will rejoice forever, and you will dwell in them, and all those who love your name will boast in you, because you will bless the just. O Lord, as with a shield of good pleasure you have crowned us.
 
 ****
 
-Psalm 6
-To the end. In hymns, for the eighth. A Psalm of David.
-
-****
+Psalm 6 To the end. In hymns, for the eighth. A Psalm of David.
 
 O Lord, do not rebuke me in your anger, nor chastise me in your wrath. Have mercy on me, Lord, for I am weak; heal me for my bones have been troubled and my soul exceedingly troubled; but you, Lord, how long? Turn back, O Lord, deliver my soul; save me for your mercy’s sake. For in death no one remembers you, and in Hell who will confess you? I have toiled in my groaning, every night I shall wash my bed and drench my couch with my tears. My eye has been troubled through anger, I have grown old among all my foes. Depart from me all you evil doers, for the Lord has heard the voice of my weeping. The Lord has heard my supplication, the Lord has accepted my prayer. Let all my enemies be ashamed and greatly troubled, let them be turned back and speedily be utterly ashamed.
 
@@ -261,10 +230,7 @@ Glory to the Father and to the Son and to the Holy Spirit.
 
 The following should be read by another reader:
 
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God*.* **(x3)**
-Lord, have mercy, Lord, have mercy, Lord, have mercy.
-Glory to the Father and to the Son and to the Holy Spirit.
+Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God*.* **(x3)** Lord, have mercy, Lord, have mercy, Lord, have mercy. Glory to the Father and to the Son and to the Holy Spirit.
 
 ****
 
@@ -274,25 +240,17 @@ Both now and for ever, and to the ages of ages. Amen.
 
 ****
 
-Psalm 7
-A Psalm of David, which he sang to the Lord about the words of Chusi the son of Jemeni.
-
-****
+Psalm 7 A Psalm of David, which he sang to the Lord about the words of Chusi the son of Jemeni.
 
 O Lord my God I have hoped in you; save me from all those who persecute me and deliver me. Lest he ever seize me soul like a lion, when there is none to deliver me or save me. O Lord my God, if I have done this, if there is injustice in my hands; if I have repaid with evils those who repaid me, let me fall empty before my foes. Let the foe pursue my soul and seize it, trample down my life and make my glory dwell down there in the dust. Arise, Lord, in your anger, be exalted in the furthest boundaries of your foes. Rise up, O Lord my God, by the decree which you commanded, and an assembly of peoples will surround you, and for this return on high. The Lord will judge peoples. Judge me, Lord, according to my justice and according to the innocence that is in me. Let the evil of sinners be brought to an end and you will keep the just straight, O God the searcher of hearts and reins. Just my help from God, who saves the upright of heart. God is a judge, just and strong and patient, not producing anger every day. If you do not return he will burnish his sword, he has drawn and prepared his bow. And on it he has prepared the instruments of death, he has made ready his arrows for those who are burning. Behold he has been in labour with injustice, he has conceived toil and given birth to iniquity. He has dug a pit and scooped it out, and he will fall into the hole which he has made. His toil will return upon his own head and his injustice will come down upon his crown. I will give thanks to the Lord in accordance with his justice and I will sing to the name of the Lord Most High.
 
 ****
 
-Psalm 8
-To the end; for the wine vats; a Psalm of David.
-
-****
+Psalm 8 To the end; for the wine vats; a Psalm of David.
 
 O Lord, our Lord, how wonderful is your name in all the earth! For your majesty is raised up above the heavens. From the mouth of babes and sucklings you have perfected praise, because of your enemies, to destroy the enemy and the avenger. For I will look at the heavens the works of your fingers, the moon and the stars which you fixed. What is man that you remember him? Or a son of man that you visit him? You have made him a little less than the Angels; you have crowned him with glory and honour, and set him over the works of your hands. You have subjected all things under his feet, sheep and all cattle and even all the beasts of the field the birds of the air and the fish of the sea, all that pass through the paths of the sea. O Lord, our Lord, how wonderful is your name in all the earth!
 
-Glory to the Father and to the Son and to the Holy Spirit.
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God*.*
+Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God*.*
 
 **(x3)**
 
@@ -312,7 +270,7 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Help us, save us, have mercy on us, and keep us, O God, by your grace. ****
+Help us, save us, have mercy on us, and keep us, O God, by your grace. ****
 
 People:
 
@@ -320,7 +278,7 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 People:
 
@@ -328,7 +286,7 @@ To you, O Lord. ****
 
 Priest:
 
-** For yours is the might, and yours the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the might, and yours the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People**:**
 
@@ -430,7 +388,7 @@ For 10 Verses, or Stichera
 
 10.
 
-**** Bring my soul out of prison, that I may confess your name.
+Bring my soul out of prison, that I may confess your name.
 
 **9.** The just will await me, until you reward me.
 
@@ -440,24 +398,21 @@ For 8 Verses
 
 \[**Always at a full Vigil**\]**.**
 
-Psalm 129
-8.
+Psalm 129 8.
 
-**Out of the depths** I have cried to you, O Lord. Lord hear my voice.
+**Out of the depths** I have cried to you, O Lord. Lord hear my voice.  
 
- 
-
-**7. ****** Let your ears be attentive, to the voice of my supplication.
+**7.** Let your ears be attentive, to the voice of my supplication.
 
 ****
 
 For 6 Verses.
 
-**6.** **** If you, Lord, should mark iniquities, Lord, who will stand? But there is forgiveness with you.
+**6.** If you, Lord, should mark iniquities, Lord, who will stand? But there is forgiveness with you.
 
  
 
-**5.** **** For your name’s sake I have waited for you, O Lord. My soul has waited on your word. My soul has hoped in the Lord.
+**5.** For your name’s sake I have waited for you, O Lord. My soul has waited on your word. My soul has hoped in the Lord.
 
 ****
 
@@ -467,17 +422,15 @@ For 4 Verses.
 
  
 
-**3.** **** For with the Lord there is mercy, and with him plentiful redemption, and he will redeem Israel from all his iniquities.
+**3.** For with the Lord there is mercy, and with him plentiful redemption, and he will redeem Israel from all his iniquities.
 
 ****
 
 Psalm 116
 
-**2.** **Praise the Lord**, all you nations. Praise him all you peoples.
+**2.** **Praise the Lord**, all you nations. Praise him all you peoples.  
 
- 
-
-**1.** **** For his mercy has been mighty towards us, and the truth of the Lord endures to the ages.
+**1.** For his mercy has been mighty towards us, and the truth of the Lord endures to the ages.
 
 Glory… Both now…
 
@@ -523,9 +476,7 @@ Wisdom. Stand upright.
 
 And they enter the sanctuary through the Holy Doors, the one with the censer censing the holy Table.
 
-And we sing
-Thanksgiving at the Lighting of the Lamps
-An ancient poem, or, as some say, by the martyr Athenogenes.
+And we sing Thanksgiving at the Lighting of the Lamps An ancient poem, or, as some say, by the martyr Athenogenes.
 
 O joyful Light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life. Therefore the world glorifies you.
 
@@ -535,10 +486,9 @@ In Athonite use this hymn is always read as one of the Gerontika, except when a 
 
 Deacon (facing the People):
 
-** Prokeimenon of the evening. ****
+Prokeimenon of the evening. ****
 
-On Saturday evening.
-Tone 6.
+On Saturday evening. Tone 6.
 
 The Lord is King: he has clothed himself with glory.
 
@@ -554,16 +504,13 @@ The Lord is King: he has clothed himself with glory.
 
 Verse 2:
 
-** He has established the world, which will not be shaken.
+He has established the world, which will not be shaken.
 
 The Lord is King: \* he has clothed himself with glory.
 
-------------------------------------------------------------------------
-
 ****
 
-On Sunday evening.
-Tone 8.
+On Sunday evening. Tone 8.
 
 Come, bless the Lord: all you servants of the Lord.
 
@@ -577,8 +524,7 @@ Come, bless the Lord: \* all you servants of the Lord.
 
 ****
 
-On Monday evening.
-Tone 4.
+On Monday evening. Tone 4.
 
 When I call to the Lord: \* he will hear me.
 
@@ -588,8 +534,7 @@ Verse:
 
 Answer me when I call, O God of my justice. ****
 
-On Tuesday evening.
-Tone 1.
+On Tuesday evening. Tone 1.
 
 Your mercy, Lord, will follow me: \* all the days of my life.
 
@@ -599,8 +544,7 @@ Verse:
 
 The Lord is my shepherd, therefore can I lack nothing. ****
 
-On Wednesday evening.
-Tone 5.
+On Wednesday evening. Tone 5.
 
 Save me, O God, by the power of your name: \* and vindicate me by your might.
 
@@ -610,8 +554,7 @@ Verse:
 
 Hear my prayer, O God, and listen to the words of my mouth. ****
 
-On Thursday evening
-Tone 6.
+On Thursday evening Tone 6.
 
 My help comes from the Lord: \* who made both heaven and earth.
 
@@ -621,8 +564,7 @@ Verse:
 
 I have lifted up my eyes to the hills, from which my help will come. ****
 
-On Friday evening.
-Tone 7.
+On Friday evening. Tone 7.
 
 O God you are my helper: \* your mercy will go before me.
 
@@ -630,11 +572,7 @@ O God you are my helper: \* your mercy will go before me.
 
 Verse:
 
-Deliver me from my enemies, O God, ransom me from those that rise up against me.
-
-------------------------------------------------------------------------
-
-****
+Deliver me from my enemies, O God, ransom me from those that rise up against me. ****
 
 \[On certain great feasts there follow Readings from the Old or New Testament.\]
 
@@ -690,12 +628,7 @@ Amen. ****
 
 After the Litany say this prayer, one of the Gerontika.
 
-Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen.
-Let your mercy, Lord be upon us, as we have hoped in you.
-Blessed are you, Lord: teach me your statutes.
-Blessed are you, Master: make me understand your statutes.
-Blessed are you, Holy One: enlighten me with your statutes.
-Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
+Grant, Lord, to keep us this evening without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name to the ages. Amen. Let your mercy, Lord be upon us, as we have hoped in you. Blessed are you, Lord: teach me your statutes. Blessed are you, Master: make me understand your statutes. Blessed are you, Holy One: enlighten me with your statutes. Lord, your mercy is for ever; do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, to the Father, and to the Son, and to the Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -743,7 +676,7 @@ To you, O Lord. ****
 
 Priest:
 
-** **F**or you, O God, are good and love mankind, and to you we give glory, to the Father and to the Son and to the Holy Spirit, now and for ever, and to the ages of ages. ****
+**F**or you, O God, are good and love mankind, and to you we give glory, to the Father and to the Son and to the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -779,7 +712,7 @@ Ble**s**sed and glorified be the might of your kingdom, of the Father and of the
 
 People**:**
 
-** Amen. ****
+Amen. ****
 
 After the Litany the Aposticha, between which we say the verses of the Feast, if there are any.
 
@@ -791,15 +724,13 @@ The Lord is King, he has clothed himself with glory; the Lord has clothed and gi
 
 Verse 2.
 
-** He has established the world, which will not be shaken. ****
+He has established the world, which will not be shaken. ****
 
 Verse 3.
 
 Holiness befits your house, O Lord, to length of days. ****
 
-On the completion of the Aposticha, we say the
-Song of Symeon who Received God (Luke 2,29),
-one of the Gerontika
+On the completion of the Aposticha, we say the Song of Symeon who Received God (Luke 2,29), one of the Gerontika
 
 Now, Master, you let your servant depart in peace, according to your word; for my eyes have seen your Salvation, which you have prepared before the face of all peoples, a Light to bring revelation to the nations, and the Glory of your people Israel.
 
@@ -867,13 +798,13 @@ Glory to you, Christ God, our hope, glory to you.
 
 Reader:
 
-Glory. Both now. Lord, have mercy. **(x3)** ** Give the blessing. ****
+Glory. Both now. Lord, have mercy. **(x3)** Give the blessing. ****
 
 And the Priest, lowering the Phelonion ,continues:
 
 May \[
 
-**on Saturday evening** ** he who rose from the dead,\] Christ our true God, at the prayers of his most pure and holy Mother; of the holy, glorious and all-praised Apostles; of Saint **N.** \[**the patron of the church**\], of Saint **N.**, whose memory we celebrate; of the holy and righteous forebears of God, Joachim and Anne and of all the Saints, have mercy on us and save us, for he is good and loves mankind. ****
+**on Saturday evening** he who rose from the dead,\] Christ our true God, at the prayers of his most pure and holy Mother; of the holy, glorious and all-praised Apostles; of Saint **N.** \[**the patron of the church**\], of Saint **N.**, whose memory we celebrate; of the holy and righteous forebears of God, Joachim and Anne and of all the Saints, have mercy on us and save us, for he is good and loves mankind. ****
 
 Turning to the East he says,
 
@@ -883,9 +814,7 @@ Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy o
 
 People:
 
-****** Amen.
-
-------------------------------------------------------------------------
+Amen.
 
 APPENDIX 1
 
@@ -917,7 +846,7 @@ We take refuge beneath your compassion, Mother of God: do not despise our petiti
 
 Reader:
 
-Lord, have mercy. ** **(x40)**
+Lord, have mercy. **(x40)**
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen
 
@@ -957,8 +886,6 @@ Yes, Lord and King, grant me to see my own faults and not to condemn my brother;
 
 **(Prostration)**
 
-------------------------------------------------------------------------
-
 NINTH HOUR
 
 ****
@@ -981,11 +908,9 @@ Heavenly King, Paraclete, Spirit of truth, present everywhere, filling all thing
 
 Reader:
 
-** Holy God, Holy Strong, Holy Immortal, have mercy on us (**x3**).
+Holy God, Holy Strong, Holy Immortal, have mercy on us (**x3**).
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
-
-****
 
 All-holy Trinity, have mercy on us. Lord, cleanse us from our sins. Master, pardon our iniquities. Holy One, visit and heal our infirmities for your name’s sake. Lord, have mercy. Lord, have mercy. Lord, have mercy.
 
@@ -997,14 +922,11 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 Reader:
 
-** Amen. Lord, have mercy. **(x12)** Glory. Both now.
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God. ****
+Amen. Lord, have mercy. **(x12)** Glory. Both now. Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God. ****
 
 3 Metanias, then the Psalms.
 
@@ -1024,10 +946,7 @@ And again:
 
 Make with me a sign for good, and let those who hate me see it and be shamed; for you, Lord, have helped me and comforted me.
 
-Glory to the Father and to the Son and to the holy Spirit.
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God. **(x3)** ** Lord, have mercy. **(x3)**
-Glory to the Father and to the Son and to the holy Spirit.
+Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. **(x3)** Lord, have mercy. **(x3)** Glory to the Father and to the Son and to the holy Spirit.
 
 ****
 
@@ -1077,7 +996,7 @@ Lord, have mercy.
 
 Priest:
 
-** May God take pity on us and bless us, and show the light of his countenance on us and have mercy on us. ****
+May God take pity on us and bless us, and show the light of his countenance on us and have mercy on us. ****
 
 Then the Superior says this
 
@@ -1089,7 +1008,7 @@ Master, Lord Jesus Christ, our God, who have long endured our transgressions, an
 
 Priest:
 
-** Glory to you, Christ God, our hope. Glory to you. ****
+Glory to you, Christ God, our hope. Glory to you. ****
 
 Reader:
 
@@ -1105,9 +1024,7 @@ Through the prayers of our holy fathers, Lord Jesus Christ have mercy on us.
 
 Reader:
 
-** Amen.
-
-------------------------------------------------------------------------
+Amen.
 
 APPENDIX 2
 ----------
@@ -1139,7 +1056,7 @@ On Friday.
 
 Verse 1:
 
-** God is wonderful in his Saints. ****
+God is wonderful in his Saints. ****
 
 Verse 2:
 
@@ -1190,21 +1107,19 @@ NOTE ON THE DISMISSAL
 
 According to the strict Typikon only Saints who are ‘feasted’, that is those who have at least one doxastikon at Vespers, should be mentioned in the Dismissal. It is **not** the moment to read out all the small print from the Synaxarion. There is much variety in the details of the Dismissal in the various books and traditions.
 
-------------------------------------------------------------------------
-
 **GENERAL NOTE ON THE CELEBRATION OF VESPERS**
 
 The liturgical books assume that the offices are sung by two choirs, that face each other across the church. Choir A, the right-hand choir, stands on the north side of the church and Choir B, the left -hand choir, on the south. Choir A is that of chief singer, or *Protopsaltes*, and Choir B that of the second singer, or *Lampadarios*. Choir A normally takes the lead. The letters **\[A\]** and **\[B\]** at ‘Lord, I have cried’ indicate this. This means that Choir A sings ‘Glory’ and the first Doxastikon and Choir B ‘Both now’ and the first Theotokion. If there is no special Doxastikon, as will frequently be the case on Saturday evening, Choir A sings ‘Glory’, Choir B ‘Both now’ and Choir A the actual Doxastikon/Theotokion.
 
 For the singing of the Stichera, it is usual for the chief singer in each choir to take the first Sticheron for their side. Normally the senior person on each side is then asked to sing the second and the third may be offered to a visiting priest or distinguished visitor or singer. Any remaining Stichera are then shared among the other people in each choir.
 
-At the Aposticha, Choir **B** sings the Doxastikon. This means that on Saturday evening Choir **B** **** should start the Aposticha, since there are 4 stichera. On Weekdays there are only 3, and so Choir **A** starts the Aposticha. In this way each Choir sings one of the two Doxastika.
+At the Aposticha, Choir **B** sings the Doxastikon. This means that on Saturday evening Choir **B** should start the Aposticha, since there are 4 stichera. On Weekdays there are only 3, and so Choir **A** starts the Aposticha. In this way each Choir sings one of the two Doxastika.
 
 In some monasteries the ‘leading’ choir changes at Vespers each Saturday, the cycle beginning at the Matins of Pascha.
 
 The Apolytikia are should be sung in the same way by the two Choirs.
 
-On Sundays and Feasts, the ‘Resurrection’ Theotokion of the Apolytikion is always sung in the Tone of the **immediately preceding** **** Apolytikion. This means that on Saturday evening the Theotokion may not be the one in the Tone of the week.
+On Sundays and Feasts, the ‘Resurrection’ Theotokion of the Apolytikion is always sung in the Tone of the **immediately preceding** Apolytikion. This means that on Saturday evening the Theotokion may not be the one in the Tone of the week.
 
 In the monasteries of the Holy Mountain it is customary for the following dialogue to be added at the end of the Dismissal, before the final ‘Through the prayers…’:
 
@@ -1226,8 +1141,6 @@ Eternal your memory, blessed and ever remembered Founders. ****
 
 Eternal your memory.
 
-------------------------------------------------------------------------
-
 THE NINTH HOUR
 
 The Ninth Hour ends one liturgical day and Vespers begins the next. They are therefore normally celebrated together.
@@ -1237,8 +1150,6 @@ On days when Little Vespers is to be celebrated, the Ninth Hour is read immediat
 The Ninth Hour should be read in the Narthex, or Liti, if the church has one. If not, it is read in the church, with the Holy Doors and the curtain closed.
 
 If there is no Apolytikion or Kontakion given in the Menaion, then those for the ordinary days of the week are used.
-
-------------------------------------------------------------------------
 
 > ****
 >
@@ -1264,7 +1175,7 @@ If there is no Apolytikion or Kontakion given in the Menaion, then those for the
 >
 > Canonarch.
 >
-> ** The monk whose task it is to see that the sin*g*ers sing the correct texts in the correct Tone. He also reads the verses of the Prokeimenon and similar texts ****
+> The monk whose task it is to see that the sin*g*ers sing the correct texts in the correct Tone. He also reads the verses of the Prokeimenon and similar texts ****
 >
 > Doxastikon.
 >
@@ -1288,11 +1199,11 @@ If there is no Apolytikion or Kontakion given in the Menaion, then those for the
 >
 > Metania.
 >
-> ** A low bow in which the right hand touches the ground. Slavonic *poklon.* Also used for a *prostration.* ****
+> A low bow in which the right hand touches the ground. Slavonic *poklon.* Also used for a *prostration.* ****
 >
 > Orarion.
 >
-> ** The Deacon’s stole. It is worn on the left shoulder and sometimes taken across diagonally under the right arm and again over the left shoulder. It is also worn crossed on the back by readers and sub-deacons. ****
+> The Deacon’s stole. It is worn on the left shoulder and sometimes taken across diagonally under the right arm and again over the left shoulder. It is also worn crossed on the back by readers and sub-deacons. ****
 >
 > Phelonion.
 >
@@ -1300,7 +1211,7 @@ If there is no Apolytikion or Kontakion given in the Menaion, then those for the
 >
 > Prokeimenon.
 >
-> ** A refrain from a Psalm, sung together with one or more verses from the Psalm, that normally precedes the Readings at Vespers, Matins and the Liturgy. Originally the whole Psalm was sung, hence the *Verse* is normally the first verse of the Psalm. It survives every day at Vespers, even when there are no readings. It is the equivalent of the Western *Gradual.* ****
+> A refrain from a Psalm, sung together with one or more verses from the Psalm, that normally precedes the Readings at Vespers, Matins and the Liturgy. Originally the whole Psalm was sung, hence the *Verse* is normally the first verse of the Psalm. It survives every day at Vespers, even when there are no readings. It is the equivalent of the Western *Gradual.* ****
 >
 > Sticharion.
 >
@@ -1308,7 +1219,7 @@ If there is no Apolytikion or Kontakion given in the Menaion, then those for the
 >
 > Sticheron.
 >
-> A hymn that precedes or follows a verse, in Greek *stichos*, from the Psalms. At ‘Lord, I have cried’ at Vespers and ‘Let everything that has breath’ ** at Lauds the *stichera* follow the Psalm verses; at the *Aposticha* they precede them. ****
+> A hymn that precedes or follows a verse, in Greek *stichos*, from the Psalms. At ‘Lord, I have cried’ at Vespers and ‘Let everything that has breath’ at Lauds the *stichera* follow the Psalm verses; at the *Aposticha* they precede them. ****
 >
 > Theotokion
 >
@@ -1324,9 +1235,6 @@ If there is no Apolytikion or Kontakion given in the Menaion, then those for the
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

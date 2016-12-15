@@ -15,8 +15,6 @@ The current Greek books begin the rite in the church with the usual blessing by 
 
 This translation also provides all the texts necessary for a full Memorial Service, or Pannychida, except that the Russian books have a full Litany of Peace after Psalm 90 and the Canon is that in Tone 8.
 
-------------------------------------------------------------------------
-
 THE FUNERAL SERVICE
 ===================
 
@@ -98,8 +96,7 @@ IN THE CHURCH
 
 When they reach the Church the body is placed in the Narthex, and they begin Psalm 90.
 
-Psalm 90
-One who dwells in the help of the Most High will live under the protection of the of the God of heaven; will say to the Lord: You are my protector and my refuge, my God, and I shall hope in him. For he will deliver you from the hunters’ snare, and from the word which troubles. He will overshadow you with his wings, and under his feathers you will have hope; his truth will encircle you with a shield. You will not be afraid of terror by night, of the arrow that flies by day; of the thing that prowls in the darkness, of mishap or of the noonday devil. A thousand may fall at your side, and ten thousand at your right, but it will not come near you. But with your eyes you will observe, and see the reward of sinners. For you, Lord, are my hope: you have made the Most High your refuge. Evils will not approach you, nor a scourge draw near your dwelling, because he has given orders to his Angels about you, to guard you in all your ways. They will bear you on their hands, lest you dash your foot against a stone. You will walk on asp and basilisk, and trample down lion and dragon. Because he/she hoped in me, I shall deliver him/her; I shall shelter him/her, because he/she knew my name. He/she will cry to me, and I shall hear him/her, I am with him/her in trouble; I shall rescue him/her and glorify him/her. I shall fill him/her with length of days, and show him/her my salvation.
+Psalm 90 One who dwells in the help of the Most High will live under the protection of the of the God of heaven; will say to the Lord: You are my protector and my refuge, my God, and I shall hope in him. For he will deliver you from the hunters’ snare, and from the word which troubles. He will overshadow you with his wings, and under his feathers you will have hope; his truth will encircle you with a shield. You will not be afraid of terror by night, of the arrow that flies by day; of the thing that prowls in the darkness, of mishap or of the noonday devil. A thousand may fall at your side, and ten thousand at your right, but it will not come near you. But with your eyes you will observe, and see the reward of sinners. For you, Lord, are my hope: you have made the Most High your refuge. Evils will not approach you, nor a scourge draw near your dwelling, because he has given orders to his Angels about you, to guard you in all your ways. They will bear you on their hands, lest you dash your foot against a stone. You will walk on asp and basilisk, and trample down lion and dragon. Because he/she hoped in me, I shall deliver him/her; I shall shelter him/her, because he/she knew my name. He/she will cry to me, and I shall hear him/her, I am with him/her in trouble; I shall rescue him/her and glorify him/her. I shall fill him/her with length of days, and show him/her my salvation.
 
 And after this in a louder voice:
 
@@ -107,15 +104,9 @@ Blessed are you, O Lord; teach me your statutes. Blameless in the way. Alleluia.
 
 And we sing the 1st Section of Psalm 118 in Tone 6, saying at the end of each verse, Alleluia.
 
-\[Singers: Blessed are the blameless in the way, who walk in the law of the Lord. Alleluia.
-My soul has longed to desire your judgements at all times. Alleluia.
-My soul slumbered from weariness; strengthen my by your words. Alleluia.
-Incline my heart to your testimonies, and not to covetousness. Alleluia.
-Dejection took hold of me because of sinners who abandon your law. Alleluia.
-I am a companion of all who fear you, and who keep your commandments. Alleluia.
+\[Singers: Blessed are the blameless in the way, who walk in the law of the Lord. Alleluia. My soul has longed to desire your judgements at all times. Alleluia. My soul slumbered from weariness; strengthen my by your words. Alleluia. Incline my heart to your testimonies, and not to covetousness. Alleluia. Dejection took hold of me because of sinners who abandon your law. Alleluia. I am a companion of all who fear you, and who keep your commandments. Alleluia.
 
-Glory. Alleluia.
-Both now. Alleluia.\]
+Glory. Alleluia. Both now. Alleluia.\]
 
 Deacon: Again and again, in peace let us pray to the Lord.
 
@@ -145,15 +136,9 @@ Reader: Amen.
 
 And after this we begin the 2nd Section of Psalm 118 in Tone 5, saying after each verse, Have mercy on your servant.
 
-\[Your hands made me and fashioned me; make me understand, and I shall learn your commandments. Have mercy on your servant.
-For I have become like a wineskin in the frost; I have not forgotten your statutes. Have mercy on your servant.
-I am yours; save me, for I have sought your statutes. Have mercy on your servant.
-I did not turn aside from your judgements, for you gave me your law. Have mercy on your servant.
-I inclined my heart to do your statutes for ever, because of the recompense. Have mercy on your servant.
-It is time for the Lord to act; they have cast your law to the winds. Have mercy on your servant.
+\[Your hands made me and fashioned me; make me understand, and I shall learn your commandments. Have mercy on your servant. For I have become like a wineskin in the frost; I have not forgotten your statutes. Have mercy on your servant. I am yours; save me, for I have sought your statutes. Have mercy on your servant. I did not turn aside from your judgements, for you gave me your law. Have mercy on your servant. I inclined my heart to do your statutes for ever, because of the recompense. Have mercy on your servant. It is time for the Lord to act; they have cast your law to the winds. Have mercy on your servant.
 
-Glory. Have mercy on your servant.
-Both now. Have mercy on your servant.\]
+Glory. Have mercy on your servant. Both now. Have mercy on your servant.\]
 
 Deacon: Again and again, in peace let us pray to the Lord.
 
@@ -183,12 +168,7 @@ Reader: Amen.
 
 And so we begin he 3rd Section of Psalm 118 in Tone 3, saying after each verse, Alleluia.
 
-\[Look upon me and have mercy on me, in accordance with the judgement of those who love your name. Alleluia.
-I am young and despised; I have not forgotten your statutes. Alleluia.
-Hear my voice, O Lord, in accordance with your mercy; in accordance with your judgement give me life. Alleluia.
-Rulers have persecuted me for no reason; and my heart has been in awe of your words. Alleluia.
-My soul will live and praise you; and your judgements will help me. Alleluia.
-I have gone astray like a lost sheep; seek out your servant, because I have not forgotten your commandments.\]
+\[Look upon me and have mercy on me, in accordance with the judgement of those who love your name. Alleluia. I am young and despised; I have not forgotten your statutes. Alleluia. Hear my voice, O Lord, in accordance with your mercy; in accordance with your judgement give me life. Alleluia. Rulers have persecuted me for no reason; and my heart has been in awe of your words. Alleluia. My soul will live and praise you; and your judgements will help me. Alleluia. I have gone astray like a lost sheep; seek out your servant, because I have not forgotten your commandments.\]
 
 After it at once the Evlogitaria for the dead in Tone 5.
 
@@ -264,10 +244,7 @@ Both now.
 
 Christ our God, who dawned on the world from a Virgin, making us, through her, children of light: have mercy on us.
 
-And after it we immediately sing the following Canon for the Dead, whose acrostic is:
-I address my sixth song to the departed.
-A composition by Theophanes.
-Ode 1. Tone 6. As Israel marched on foot.
+And after it we immediately sing the following Canon for the Dead, whose acrostic is: I address my sixth song to the departed. A composition by Theophanes. Ode 1. Tone 6. As Israel marched on foot.
 
 \[As Israel marched on foot in the deep as on dry land and watched Pharao the pursuer drowning, they cried out: To God let us sing a song of victory.\]
 
@@ -566,8 +543,7 @@ For you are the resurrection, the life and the repose of your servant N., who ha
 
 Reader: Amen.
 
-And after the Ekphonesis, we begin the Idiomels.
-By Monk John, the Damascene. Tone 1.
+And after the Ekphonesis, we begin the Idiomels. By Monk John, the Damascene. Tone 1.
 
 What pleasure in life remains without its share of sorrow? What glory stands on earth unchanged? All things are feebler than a shadow, all things are more deceptive than dreams; one instant, and death supplants them all. But, O Christ, give rest to him You have chosen in the light of your countenance and the sweetness of your beauty, as You love mankind.
 
@@ -613,12 +589,7 @@ I grieve and lament when I contemplate death, and see the beauty fashioned for u
 
 Then the Beatitudes, Tone 6, as follows.
 
-In your Kingdom remember us O Lord, when you come in your Kingdom.
-Blessed are the poor in spirit, for theirs is the Kingdom of heaven.
-Blessed are they who mourn, for they will be comforted.
-Blessed are the meek, for they will inherit the earth.
-Blessed are those who hunger and thirst for justice, for they will be filled.
-Blessed are the merciful, for they will obtain mercy.
+In your Kingdom remember us O Lord, when you come in your Kingdom. Blessed are the poor in spirit, for theirs is the Kingdom of heaven. Blessed are they who mourn, for they will be comforted. Blessed are the meek, for they will inherit the earth. Blessed are those who hunger and thirst for justice, for they will be filled. Blessed are the merciful, for they will obtain mercy.
 
 The Thief, O Christ, who cried out to you on the cross: Remember me, you proclaimed in advance to be a citizen of Paradise; make me also, the unworthy, worthy of his repentance.
 
@@ -664,13 +635,11 @@ Reader: The Reading is from the First Epistle of Paul to the Thessalonians.
 
 Deacon: Let us attend.
 
-Reader:
-Brethren, I do not wish you to be ignorant about those who have fallen asleep, so that you may not grieve like the rest who have no hope. For if we believe that Jesus died and rose again, so too God will bring with him those who sleep through Jesus. We tell you this by the Lord’s word, that we who are left alive at the Lord’s coming will by no means precede those sleep. Because the Lord himself will descend from heaven with a shout, at the voice of an Archangel and with the trumpet of God, and the dead in Christ will rise first. Then we who are left alive will be snatched up together with them in the clouds to meet the Lord in the air; and so we shall all be with the Lord.
+Reader: Brethren, I do not wish you to be ignorant about those who have fallen asleep, so that you may not grieve like the rest who have no hope. For if we believe that Jesus died and rose again, so too God will bring with him those who sleep through Jesus. We tell you this by the Lord’s word, that we who are left alive at the Lord’s coming will by no means precede those sleep. Because the Lord himself will descend from heaven with a shout, at the voice of an Archangel and with the trumpet of God, and the dead in Christ will rise first. Then we who are left alive will be snatched up together with them in the clouds to meet the Lord in the air; and so we shall all be with the Lord.
 
 Priest: Peace to you.
 
-Reader: And to your Spirit. Alleluia, Alleluia, Alleluia. Tone 6.
-Verse: Blessed is the one whom you have chosen and taken, O Lord.
+Reader: And to your Spirit. Alleluia, Alleluia, Alleluia. Tone 6. Verse: Blessed is the one whom you have chosen and taken, O Lord.
 
 Deacon: Wisdom, stand upright! Let us listen to the Holy Gospel.
 
@@ -684,8 +653,7 @@ Priest: The Reading is from the Holy Gospel according to John.
 
 People: Glory to you, O Lord, glory to you!
 
-Priest: Let us attend.
-The Lord said to the Jews who had come to him, ‘Amen, Amen I say to you, that one who hears my word and believes in him who sent me has eternal life; and is not coming to judgement, but has passed over from death to life. Amen, Amen I say to you that the hour is coming and is now, when the dead will hear the voice of the Son of God; and those who have heard will live. For just as the Father has life in himself, so he has given to Son to have life in himself. And he has given him authority to deliver judgement also, because he is son of man. Do not marvel at this; because the hour is coming in which all who are in the tombs will hear his voice; and they will come out, those who have done good to the resurrection of life, but those who have done ill to the resurrection of judgement. I can do nothing of myself; as I hear, I judge, and my judgement is just; because I do not seek my will, but the will of the Father who sent me’.
+Priest: Let us attend. The Lord said to the Jews who had come to him, ‘Amen, Amen I say to you, that one who hears my word and believes in him who sent me has eternal life; and is not coming to judgement, but has passed over from death to life. Amen, Amen I say to you that the hour is coming and is now, when the dead will hear the voice of the Son of God; and those who have heard will live. For just as the Father has life in himself, so he has given to Son to have life in himself. And he has given him authority to deliver judgement also, because he is son of man. Do not marvel at this; because the hour is coming in which all who are in the tombs will hear his voice; and they will come out, those who have done good to the resurrection of life, but those who have done ill to the resurrection of judgement. I can do nothing of myself; as I hear, I judge, and my judgement is just; because I do not seek my will, but the will of the Father who sent me’.
 
 People: Glory to you, O Lord, glory to you!
 
@@ -709,15 +677,13 @@ Reader: Lord, have mercy.
 
 And after this is finished the senior Priest, or the Bishop, if one is present, says the following prayer out loud, going and standing near the body; while the other Priests do the same. Note that every time the Deacon says the Litany each of the Priests in order says this prayer quietly during the Litany as he stands by the body and then the conclusion out loud.
 
-Priest:
-O God of spirits and all flesh, who trampled down death and crushed the devil, giving life to your world; do you, Lord, give rest to the soul of your servant N., who has fallen asleep, in a place of light, a place of green pasture, a place of refreshment, whence pain, grief and sighing have fled away. Pardon, O God, as you are good and love of mankind, every sin committed by him/her in word or deed or thought, because there is no one who will live and not sin, for you alone are without sin; your righteousness is an everlasting righteousness, and your word is truth.
+Priest: O God of spirits and all flesh, who trampled down death and crushed the devil, giving life to your world; do you, Lord, give rest to the soul of your servant N., who has fallen asleep, in a place of light, a place of green pasture, a place of refreshment, whence pain, grief and sighing have fled away. Pardon, O God, as you are good and love of mankind, every sin committed by him/her in word or deed or thought, because there is no one who will live and not sin, for you alone are without sin; your righteousness is an everlasting righteousness, and your word is truth.
 
 For you are the resurrection, the life and the repose of your servant N., who has fallen asleep, Christ our God, and to you we give glory, together with your Father who is without beginning and your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages.
 
 People: Amen.
 
-And after this, the Final Greeting takes place, and we sing the following Verses, prosomia.
-Tone 2. When from the tree.
+And after this, the Final Greeting takes place, and we sing the following Verses, prosomia. Tone 2. When from the tree.
 
 Come, let us give the final kiss, brethren, to the dead, as we give thanks to God; because he/she has left his/her family and is hastening to the grave, he/she has no further care for things of no moment, affairs of the much-wearied flesh. Where now are his/her relatives and friends? Now as we are parted let us pray that the Lord will give him/her rest.
 
@@ -834,9 +800,6 @@ Eternal Memory (x3).
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -68,8 +68,6 @@ Canon of the holy Apostles
 
 Ode 1. Tone 5. Irmos.
 
-****
-
 Christ, who brings wars to nothing with uplifted arm, shook horse and rider into the Red Sea; but Israel he saved as they sang a song of victor.
 
 ****
@@ -91,8 +89,6 @@ Only blessed one, graced by God, who grace the human race with blessings, O All-
 ****
 
 Canon of St Nicolas, of which the acrostic is:
-
-****
 
 I offer you a fifth song, Nicolas. Joseph
 
@@ -348,7 +344,7 @@ God, who for our sake put on flesh from you, shows you, O Virgin, to be the pure
 
 Ode 9. The Irmos.
 
-O **** Isaias, dance! The Virgin was with child, and she has borne a Son, Emmanuel, both God and man; and Orient is his name; whom we magnify, as we call the Virgin blessed.
+O Isaias, dance! The Virgin was with child, and she has borne a Son, Emmanuel, both God and man; and Orient is his name; whom we magnify, as we call the Virgin blessed.
 
 ****
 
@@ -404,9 +400,6 @@ Glory. Both now.
 
 You who were chosen beforehand, hearken to our voice, and grant our souls our requests; deliver us from passions and pains through the Apostles; as Mother of God you can do all things.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -1,27 +1,16 @@
 \[ [Home](index.md) \] \[ [Up](voiceof.md) \] \[ [Athanasios of Alexandria](athanasios_of_alexandria.md) \] \[ [Theodore the Studite](theodore.md) \] \[ Ephrem the Syrian \]
 
-[Sermon in Heptasyllablics](ser-hept.md)
-[Three Short Discourses](3disc.md)
-[55 Beatitudes](55beat.md)
-[To the Monks of Egypt](egypt-int.md)
-[On the Departed Fathers](dead-pat.md)
-[On Abraham and Isaac](AbrIsaac.md)
-[On Joseph](on_joseph.md)
-[On the Transfiguration](on_the_transfiguration.md)
-[On The Passion](PassSer.md)
+[Sermon in Heptasyllablics](ser-hept.md) [Three Short Discourses](3disc.md) [55 Beatitudes](55beat.md) [To the Monks of Egypt](egypt-int.md) [On the Departed Fathers](dead-pat.md) [On Abraham and Isaac](AbrIsaac.md) [On Joseph](on_joseph.md) [On the Transfiguration](on_the_transfiguration.md) [On The Passion](PassSer.md)
 
  
 
 SAINT EPHREM THE SYRIAN
 =======================
 
-<img src="Eph-Syr.gif" width="200" height="241" />
-
 **Icon of Saint Ephrem the Syrian**
 
-ASCETICAL AND OTHER WRITINGS
-EXTANT ONLY IN GREEK
-============================
+ASCETICAL AND OTHER WRITINGS EXTANT ONLY IN GREEK
+=================================================
 
 INTRODUCTORY NOTE
 -----------------
@@ -38,17 +27,10 @@ These Greek writings attributed to St Ephrem have never been translated into Eng
 
 The icon of St Ephrem was painted for me at the Monastery of the Holy Paraclete, Oropos, Attica in Greece in 1982.
 
-------------------------------------------------------------------------
-
 The Introductions, Notes and Translations on these pages are all © by Archimandrite Ephrem, 1997.
-
-------------------------------------------------------------------------
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

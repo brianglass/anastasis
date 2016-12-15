@@ -1,7 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](athanasios_of_alexandria.md) \]
 
-[Psalm 22](psalm_22.md)
-[Psalm 86](psalm_86.md)
+[Psalm 22](psalm_22.md) [Psalm 86](psalm_86.md)
 
 COMMENTARY ON THE PSALTER
 -------------------------
@@ -14,9 +13,6 @@ St Athanasios writes not so much a full commentary as a series of short notes, o
 
 As an introduction to the commentary readers of this page are warmly encouraged to read St Athanasios Letter to Marcellinus, which has been translated into English a number of times. At least two of these are available on the web at <http://www.athanasius.com/psalms/alettem.htm> and [http://people.ne.mediaone.net/nchin/marcelli.htm](http://). I have not checked either of these versions. Neither of these links seems to work properly, but the first can be found by going to [http://www.athanasius.com](http://www.athanasius.com/psalms/alettem.htm) and clicking on the link there to Spiritual Texts. The second seems to work if you go to it through a search engine, like Google.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

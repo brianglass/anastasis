@@ -16,8 +16,7 @@ AT VESPERS
 
 **At** Lord, I have cried **we insert 6 Stichera and sing 3 Prosomia of the precious Cross and 3 of the Saints.**
 
-Stichera of the precious Cross.
-Tone 4. As noblest of Martyrs.
+Stichera of the precious Cross. Tone 4. As noblest of Martyrs.
 
 As general protection, as source of sanctification, let us embrace the precious Cross; for it calms sufferings, brings an end to diseases and delivers sufferers from pains of every kind. More than the great deep it forms a sea with streams of wonders for those who faithfully venerate and reverence its image.
 
@@ -27,8 +26,7 @@ The all-holy Cross has shone more brightly than the sun, shedding wonders like s
 
 ****
 
-Stichera of the Saints.
-Tone 1. All-praised Martyrs.
+Stichera of the Saints. Tone 1. All-praised Martyrs.
 
 Tyranny did not shake the roof of the Law, supported by seven pillars; for they bravely endured the irrational frenzy of the persecutor, giving up their bodies to the executioners, those noble youths, kinsmen of Moses and guardians of God’s decrees.
 
@@ -50,8 +48,7 @@ Your precious Cross, O Christ, which Moses of old prefigured in himself when he 
 
 ****
 
-At the Aposticha, Prosomia of the Cross.
-Tone 1. Joy of the heavenly hosts.
+At the Aposticha, Prosomia of the Cross. Tone 1. Joy of the heavenly hosts.
 
 As the precious Cross comes forth, come, lovers of festivals, let us celebrate the feast, let us be radiant and cry aloud with unwavering faith: O Cross of Christ, sanctify us with the grace of the One who was lifted up on you, and rescue us from every harm by your power.
 
@@ -67,7 +64,7 @@ The precious Cross prepares the paths to heaven for all who worship it with fear
 
 Verse:
 
-** God, who is our King before the ages, has wrought salvation in the midst of the earth.
+God, who is our King before the ages, has wrought salvation in the midst of the earth.
 
 As we worship in faith the precious Cross, we worship the Master who was nailed upon it, by whose will we purify our lips and souls, by its spiritual illumination we are made radiant as we praise it.
 
@@ -112,8 +109,7 @@ Glory. Both now.
 
 **The same.**
 
-After the 2nd Reading, Kathisma.
-Tone 4. You have appeared today.
+After the 2nd Reading, Kathisma. Tone 4. You have appeared today.
 
 For this present day the progress of the Cross is cause of joy; for it sanctifies both our souls and bodies, who worship it with faith.
 
@@ -121,15 +117,13 @@ Glory. Both now.
 
 **The same.**
 
-The Canons of the Cross and of the Saints.
-The Canon of the Cross, of which the Acrostic is:
+The Canons of the Cross and of the Saints. The Canon of the Cross, of which the Acrostic is:
 
 We all praise the Tree that should be worshipped. ****
 
 A Composition by Joseph.
 
-Ode 1. Tone 8.
-The wonderworking rod of Moses.
+Ode 1. Tone 8. The wonderworking rod of Moses.
 
 Let us today with pure mind and devout intent worship the life-bearing Cross of the Lord; for it is set forth granting to those who approach it sanctification and salvation, illumination, glory and mercy.
 
@@ -147,8 +141,7 @@ When I gave birth to you ineffably, my Child, I escaped the pangs of labour; how
 
 ****
 
-The Canon of the Saints.
-By Andrew of Crete.
+The Canon of the Saints. By Andrew of Crete.
 
 Ode 1. Tone 1. Let us all sing.
 
@@ -244,8 +237,7 @@ Your Cross, O Lord, has been sanctified; for by it healings take place for those
 
 ****
 
-Of the Cross. Ode 4.
-You, Lord, are my strength.
+Of the Cross. Ode 4. You, Lord, are my strength.
 
 See, the mighty protection and restoration of mortals, the invincible weapon of the faith, the saving Cross is set forth and appears. And sanctifying the hearts of all who approach it with faith it enlightens by grace.
 
@@ -393,13 +385,7 @@ On the 1st of the month, commemoration of the seven holy Martyrs, the Maccabees,
 
 Verses
 
-Before Christ Eleazar first bore fire;
-Set out the path of struggle for the rest.
-Ere Thekla a first Champion I present,
-Solomoni, before Christ burnt by fire.
-Tortures and fire and wheels sent seven Youths
-Out of earth’s seven days unto the eighth.
-And on the first of the month a mother they burnt with her offspring.
+Before Christ Eleazar first bore fire; Set out the path of struggle for the rest. Ere Thekla a first Champion I present, Solomoni, before Christ burnt by fire. Tortures and fire and wheels sent seven Youths Out of earth’s seven days unto the eighth. And on the first of the month a mother they burnt with her offspring.
 
 On the same day, commemoration of the nine holy Martyrs who struggled in Perge of Pamphylia, Leontios, Attos, Alexander, Kindeos, Mnsitheos, Kyriakos, Minaios, Katounos and Eukleis.
 
@@ -407,8 +393,7 @@ On the same day, commemoration of the nine holy Martyrs who struggled in Perge o
 
 Verses
 
-Nine from Pamphylia were slain by sword,
-One tribe they sought, that of the Martyrs bold.
+Nine from Pamphylia were slain by sword, One tribe they sought, that of the Martyrs bold.
 
 On the same day, Saint Pappas the New was thrown into a sack, shut up in a basket and cast into the sea, and so achieved perfection.
 
@@ -416,8 +401,7 @@ On the same day, Saint Pappas the New was thrown into a sack, shut up in a baske
 
 Verses
 
-A sack hid Pappas and a box the sack;
-The stream the basket. Pappas was with God.
+A sack hid Pappas and a box the sack; The stream the basket. Pappas was with God.
 
 On the same day, the holy Martyr Eleazaros, his head consumed by fire, attained perfection
 
@@ -425,18 +409,15 @@ On the same day, the holy Martyr Eleazaros, his head consumed by fire, attained 
 
 Verses
 
-When Eleazar’s head was burnt by fire,
-Victor he went from soul-destroying streams.
+When Eleazar’s head was burnt by fire, Victor he went from soul-destroying streams.
 
 On the same day, the holy Martyr Kirykos attained perfection by the sword.
 
 ****
 
-Verses.*
-*
+Verses.
 
-The judge said, ‘Sacrifice, and you’ll not die’.
-Kirykos bowed his head and said, ‘I won’t’.
+The judge said, ‘Sacrifice, and you’ll not die’. Kirykos bowed his head and said, ‘I won’t’.
 
 On the same day the holy Martyr Theodore attained perfection by the sword.
 
@@ -444,8 +425,7 @@ On the same day the holy Martyr Theodore attained perfection by the sword.
 
 Verses.
 
-A godly longing fell on Theodore,
-Through the sword’s stroke to gain the longed for gifts \[doreon\].
+A godly longing fell on Theodore, Through the sword’s stroke to gain the longed for gifts \[doreon\].
 
 On the same day, Saint Polyeuktos, was buried in dunghill and attained perfection.
 
@@ -453,8 +433,7 @@ On the same day, Saint Polyeuktos, was buried in dunghill and attained perfectio
 
 Verses.
 
-Job on a dunghill had his throne, I say,
-But Polyeuktos for his penalty.
+Job on a dunghill had his throne, I say, But Polyeuktos for his penalty.
 
 On the same day, commemoration of the holy Martyrs, Menas, Menaios and the others in Viglention, near the bronze Tetrapylos.
 
@@ -464,9 +443,7 @@ On the same day, commemoration of our Father among the Saints Timothy, Bishop of
 
 Verses
 
-.
-As priest of Prokonnesos God once gave
-Honour to Timothy; and now by wonders.
+. As priest of Prokonnesos God once gave Honour to Timothy; and now by wonders.
 
 At their holy intercessions, O God, have mercy on us. Amen.
 
@@ -622,8 +599,7 @@ The death that came to the race through eating of the tree, has through the Cros
 
 ****
 
-Exapostilarion. Tone 2.
-As the Disciples.
+Exapostilarion. Tone 2. As the Disciples.
 
 Let us sing the praise of the wondrous Maccabees, children of Eleazar and Solomoni; for they destroyed the arrogance of the dragon, origin of evil, and by their service of the Law were crowned as victors.
 
@@ -647,8 +623,7 @@ O all-revered Cross, you are the foundation of the Church, the ornament of Monks
 
 ****
 
-And three Idiomels of the Saints.
-Tone 1.
+And three Idiomels of the Saints. Tone 1.
 
 The mother of many toils, inviting her own children to the contests, said, ‘Follow the grey hairs of Abraham that you may become partakers in the slaughter of Isaak’. But they anticipated their guide and, seeing the tortures, escorted the one who admonished them to immediate punishments. At their prayers, O God, have mercy on us.
 
@@ -696,12 +671,8 @@ Come, believers, let worship the life-giving Tree on which Christ the King of gl
 
 **The rest of the service as usual, and Dismissal.**
 
-**At the Liturgy, instead of the Trisagion, we sing:
-Your Cross we worship…**
+**At the Liturgy, instead of the Trisagion, we sing: Your Cross we worship…**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

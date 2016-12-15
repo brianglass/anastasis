@@ -14,13 +14,11 @@ Amen. ****
 
 Superior:
 
-** Glory to you, our God, glory to you.
+Glory to you, our God, glory to you.
 
 Heavenly King, Paraclete, Spirit of Truth, present everywhere, filling all things, Treasury of blessings and Giver of life, come and dwell in us, cleanse us from every stain, and, O Good One, save our souls.
 
- 
-
-****
+  ****
 
 Reader:
 
@@ -40,19 +38,17 @@ Our Father in heaven, may your name be hallowed, your kingdom come, your will be
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 Reader:
 
-** Amen.
+Amen.
 
 Lord, have mercy
 
 **(x12).** Glory to the Father and to the Son and to the Holy Spirit, both now and for ever and to the ages of ages. Amen.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -66,21 +62,15 @@ Have mercy on me, O God, in accordance with your great mercy. According to the m
 
  
 
-****
-
 Psalm 69
 
 O God, come to my help; Lord, hasten to help me. Let those who seek my soul be shamed and confounded. Let those who wish me evil be turned back and put to shame. Let those who say to me, ‘Good, good!’ be turned back immediately, ashamed. Let all who seek you, O God, be glad and rejoice in you. Let all who love your salvation ever say: ‘The Lord be magnified.’ But I am poor and needy; help me, O God. You are my helper and my deliverer; Lord, do not delay.
 
  
 
-****
-
 Psalm 142
 
 Lord, hear my prayer: in your truth give ear to my supplication, and in your righteousness hear me. Do not enter into judgement with your servant: for in your sight no one living can be justified. For the enemy pursued my soul, humbled my life to the ground. Made me dwell in darkness, like those for ever dead. My spirit grew despondent within me and my heart within me was troubled. I remembered days of old, I meditated on all your works: I made the works of your hands my meditation. I stretched out my hands towards you: my soul thirsted for you like a waterless land. Hear me swiftly, O Lord, my spirit has failed. Do not turn your face from me, or I shall be like those who go down to the Pit. Make me hear of your mercy in the morning, for I have hoped in you. Make known to me the way in which I should walk, for to you I have lifted up my soul. Deliver me from my enemies, Lord: I have run to you for shelter. Teach me to do your will, for you are my God. Your good Spirit will guide me in an upright land. For your name’s sake, O Lord, you will give me life. In your justice, you will bring my soul out of trouble, in your mercy slay my enemies, and destroy all those that afflict my soul, for I am your servant.
-
-****
 
 Doxology
 
@@ -89,8 +79,6 @@ Glory to God in the highest, and on earth peace, goodwill among men. We praise y
 Every evening I will bless you, and praise your name for ever and to the ages of ages. Lord, you have been our refuge from generation to generation. I said, Lord, have mercy on me, heal my soul, for I have sinned against you. Lord, I have run to you for refuge; teach me to do your will for you are my God. For with you is the source of life, and in your light we shall see light. Continue your mercy towards those who know you.
 
 Grant, Lord, this night to keep us without sin. Blessed are you, Lord, the God of our fathers, and praised and glorified is your name for evermore. Amen. May your mercy, Lord, be upon us, as we have trusted in you. Blessed are you, Lord, teach me your statutes. Blessed are you, Master, make me understand your statutes. Blessed are you, Holy One, enlighten me with your statutes. Lord, your mercy is for ever: Do not scorn the work of your hands. To you praise is due, to you song is due, to you glory is due, Father, Son, and Holy Spirit, now and for ever, and to the ages of ages. Amen.
-
-****
 
 The Creed
 
@@ -124,7 +112,7 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 Reader:
 
@@ -166,29 +154,21 @@ May God take pity on us and bless us, and show the light of his countenance on u
 
 Then:
 
-Lord, have mercy **(x12)**. And save and help us, All-holy Virgin. ****
+Lord, have mercy **(x12)**. And save and help us, All-holy Virgin.
 
-Prayer to The Most Holy Mother of God
-*by Paul, monk of the Monastery of Evergetis.*
+Prayer to The Most Holy Mother of God *by Paul, monk of the Monastery of Evergetis.*
 
 Spotless, undefiled, incorrupt, immaculate, pure Virgin, Bride of God and Lady, who by your marvellous conceiving united God the Word with mankind and joined our rejected human nature to the heavenly realm; the only hope of the hopeless, help of the attacked, ready assistance of those who flee to you, and refuge of all Christians; do not turn in loathing from me, an accursed sinner, who have made myself utterly worthless through shameful thoughts and words and deeds, and through the sloth of the pleasures of life have become a slave to my own will. But as Mother of the God who loves mankind have compassion on me, a sinner and a prodigal, in your love for mankind, and accept the prayer I offer you from polluted lips. And using your Mother’s boldness, implore your Son, our Master and Lord, that He open to me also the compassionate heart of his goodness, and disregarding my countless offences turn me back to repentance, and make me a tried worker of his commandments. And, as you are full of mercy, compassion and loving-kindness, be ever near me: in this present life a fervent helper and protector, shielding me from the enemy’s assaults and guiding me to salvation, and at the moment of my departure watching over my wretched soul and driving far from her the dark forms of evil demons; but on the dread day of judgement, delivering me from eternal punishment and making me heir to the ineffable glory of your Son and our God. All this may I obtain, my Lady, most holy Mother of God, through your mediation and assistance; through the grace and love for mankind of your only-begotten Son, our Lord and God and Saviour, Jesus Christ. To whom are due all glory, honour and worship, with his Father who is without beginning and his all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
 
-****
-
-Prayer to Our Lord Jesus Christ
-*by the monk Antiochos.*
+Prayer to Our Lord Jesus Christ *by the monk Antiochos.*
 
 And grant us, Master, as we go to our sleep, rest of body and soul; and guard us from the gloomy sleep of sin and from every dark pleasure of the night. Calm the assaults of the passions, quench the fiery arrows of the evil one that are cunningly aimed at us; put down the rebellions of our flesh and still our every earthly and material thought. And grant us, O God, a watchful mind, chaste thought, a wakeful heart, sleep that is light and free from every satanic fantasy. Rouse us at the time for prayer strengthened in your commandments, and holding firmly within us the memory of your judgements. Grant that we may sing your glory all night long, and so hymn, bless and glorify your all honoured and majestic name, of Father, Son and Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
 Most glorious, ever-virgin, blessed Mother of God, offer our prayer to your Son and our God, and ask that through you he may save our souls.
 
-****
-
 Prayer of Saint Ioannikios
 
 The Father is my hope, the Son my refuge, the Holy Spirit my protection. Holy Trinity, glory to you.
-
-****
 
 Prayer to the
 
@@ -197,8 +177,6 @@ Prayer to the
 All my hope I place in you, Mother of God, guard me under your protection.
 
 Because of you, O Full of grace, all creation rejoices, the ranks of Angels and the human race; hallowed Temple and spiritual Paradise, pride of Virgins; from you God was incarnate and he, who is our God before the ages, became a little child. For He made your womb a throne and caused it to become wider than the heavens. Because of you, O Full of grace, all creation rejoices; glory to you.
-
-****
 
 Prayer to the Guardian Angel
 
@@ -234,24 +212,11 @@ Let us pray for the peace of the world.
 
 Reader:
 
-Lord, have mercy. ** **After each petition.**
+Lord, have mercy. **After each petition.**
 
 For our Archbishop
 
-**N**, and all our brotherhood in Christ.
-\[For our Sovereign Lady, Queen Elisabeth.\]
-For our absent fathers and brethren.
-For those who hate us and for those who love us.
-For those who are merciful to us and serve us.
-For those who have asked us, unworthy though we are, to pray for them.
-For the release of prisoners.
-For those who sail upon the sea.
-For those who lie in sickness.
-Let us pray for an abundance of the fruits of the earth.
-And for every soul of Orthodox Christians.
-Let us bless devout Sovereigns.
-Orthodox High Priests.
-Our parents and teachers, and all our departed fathers and brethren, Orthodox believers, who here or in all the world lie asleep in the Lord. ****
+**N**, and all our brotherhood in Christ. \[For our Sovereign Lady, Queen Elisabeth.\] For our absent fathers and brethren. For those who hate us and for those who love us. For those who are merciful to us and serve us. For those who have asked us, unworthy though we are, to pray for them. For the release of prisoners. For those who sail upon the sea. For those who lie in sickness. Let us pray for an abundance of the fruits of the earth. And for every soul of Orthodox Christians. Let us bless devout Sovereigns. Orthodox High Priests. Our parents and teachers, and all our departed fathers and brethren, Orthodox believers, who here or in all the world lie asleep in the Lord. ****
 
 Reader (during the last petition):
 
@@ -271,9 +236,6 @@ Reader:
 
 Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

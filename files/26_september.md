@@ -15,7 +15,7 @@ AT GREAT VESPERS
 
 <span style="color:red">After the Opening Psalm the 1st Section of </span>Blessed is the man. <span style="color:red">At </span>Lord<span style="color:red">, I have cried we insert 6 stichera \[8 if there is a Vigil\], and we sing the 3 following prosomia, doubling them.</span>
 
-<span style="color:red">Tone 1. Joy of the heavenly hosts.</span>
+<span style="color:red">Tone 1. Joy of the heavenly hosts. </span>
 
 The one who saw ineffable revelations,<a href="#_ftn1" id="_ftnref1">[1]</a> the interpreter of God’s mysteries on high, the child of Zebedee, in writing for us Christ’s Gospel, taught us to contemplate the Father, the Son and the Spirit.
 
@@ -23,8 +23,7 @@ The lyre of heavenly songs, struck by God, this mystic writer, mouth inspired by
 
 Beloved of God, giving utterance with your tongue, which sounds as the thunder,<a href="#_ftn3" id="_ftnref3">[3]</a> to the hidden word of the wisdom of God, aptly opening your lips, you ever cry aloud, ‘In the beginning was the Word’,<a href="#_ftn4" id="_ftnref4">[4]</a> and with your torch you guide everyone<a href="#_ftn5" id="_ftnref5">[5]</a> to knowledge of God.
 
-Glory. <span style="color:red">Tone 2.
-By Germanos (Some say by Vyzantios)</span>**
+Glory. <span style="color:red">Tone 2. By Germanos (Some say by Vyzantios)</span>
 
 Race of mortals, let us, as is fitting, praise the son of thunder,<a href="#_ftn6" id="_ftnref6">[6]</a> the foundation of divine words, the prince of theology and foremost herald of the true wisdom of the doctrines of God, John the beloved and virgin; for he had the divine unceasingly in himself and said, ‘In the beginning the Word’<a href="#_ftn7" id="_ftnref7">[7]</a>, and again that he is inseparably with the Father, and after this that he is equal in being with the Fa­ther,<a href="#_ftn8" id="_ftnref8">[8]</a> showing us through him the right belief of the Holy Trinity. He showed us that he is creator with the Father, and the one who bears life and true light.<a href="#_ftn9" id="_ftnref9">[9]</a> O ecstatic wonder and astounding fact! Because being full of love he became also full of theology, by glory and honour and faith being a foundation of our in­violate faith; through which ,may we obtain the eternal good things on the day of judgement.
 
@@ -32,54 +31,49 @@ Both now. <span style="color:red">Theotokion. Same Tone.</span>
 
 The shadow of the law<a href="#_ftn10" id="_ftnref10">[10]</a> has passed away now that grace has come, for as the Bush in flames was not burned,<a href="#_ftn11" id="_ftnref11">[11]</a> so as a virgin you bore a child and remained a virgin; instead of a pillar of fire<a href="#_ftn12" id="_ftnref12">[12]</a> the Sun of justice<a href="#_ftn13" id="_ftnref13">[13]</a> has dawned, instead of Moses Christ, the salvation of our souls.
 
-<span style="color:red">Entrance,</span> O Joyful Light<span style="color:red">, the Prokeimenon of the day and the Readings.</span>
+<span style="color:red">Entrance,</span> O Joyful Light<span style="color:red">, the Prokeimenon of the day and the Readings. </span>
 
-The reading is from the 1st Epistle General of John.
-<span style="color:red">(3,21-24; 4,1-6)</span>
+The reading is from the 1st Epistle General of John. <span style="color:red">(3,21-24; 4,1-6) </span>
 
 Beloved, if our heart does not condemn us we have freedom to speak before God. And whatever we ask we receive from him, because we keep his commandments and do those things that are pleasing in his sight. And this is his commandment: that we should believe in the name of his Son Jesus Christ and love one another, as he gave us commandment. And one who keeps his commandments abides in him and he in them. And by this we know that he abides in us, from the Spirit of which he has given us. Beloved, do not believe every spirit, but test the spirits, whether they are of God, because many false prophets have gone out into the world. By this you know the Spirit of God: Every spirit that confesses that Jesus Christ has come in the flesh is of God, and every spirit that does not confess that Jesus Christ has come in the flesh is not of God. And this is the spirit of the Antichrist, which you have heard is coming, and is now already in the world. You are of God, little children, and have overcome them, because he who is in you is greater than he who is in the world. They are of the world. Therefore they speak as of the world, and the world hears them. We are of God. He who knows God hears us; he who is not of God does not hear us.
 
-The reading is from the 1st Epistle General of John.
-<span style="color:red">(4,11-16)</span>
+The reading is from the 1st Epistle General of John. <span style="color:red">(4,11-16) </span>
 
 Beloved, if God so loved us, we also ought to love one another. No one has ever seen God. If we love another, God abides in us, and his love has been perfected in us. By this we know that we abide in him, and he in us, because he has given us of his Spirit. And we have seen and witness that the Father has sent the Son as Saviour of the world. Whoever confesses that Jesus is the Son of God, God abides in them, and they in God. And we have known and have believed the love which God has for us. God is love, and one who abides in love abides in God, and God in them.
 
-The reading is from the 1st Epistle General of John.
-<span style="color:red">(4,20-21; 5,1-5)</span>**
+The reading is from the 1st Epistle General of John. <span style="color:red">(4,20-21; 5,1-5)</span>
 
 Beloved, anyone who says, ‘I love God,’ and hates their brother, is a liar; for one who does not love the brother whom they have seen, how can they love God whom they have not seen? And this commandment we have from him: that one who loves God must love their brother also. Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the one who has begotten loves also the one who has been begotten of him. By this we know that we love the children of God, when we love God and keep his commandments. For this is the love of God, that we keep his com­mandments. And his command­ments are not heavy. Because everything that has been born of God conquers the world. And this is the victory that has conquered the world, our faith. Who is the one who conquers the world, if not the one who believes that Jesus is the Son of God?
 
-<span style="color:red">At the Liti, Idiomel stichera.
-Tone 1. By Germanos.**</span>
+<span style="color:red">At the Liti, Idiomel stichera. Tone 1. By Germanos. </span>
 
 Rivers of theology poured from your honoured mouth, O Apostle, watered from which the Church of God worships with right belief the consubstantial Trinity; whom, O Theologian John, now ask that our souls may be saved.
 
-<span style="color:red">Same Tone. By Andrew of Pyros.</span>
+<span style="color:red">Same Tone. By Andrew of Pyros. </span>
 
 The plant of purity, the myrrh of sweet fragrance has dawned for us again at this present Feast. Cry out to him, ‘You leant on the Master’s breast<a href="#_ftn14" id="_ftnref14">[14]</a> and rained down the word on the world, Apostle John, who guarded the Virgin as the apple of your eye. Ask of Christ for us his great mercy’.
 
-<span style="color:red">Same Tone.</span>
+<span style="color:red">Same Tone. </span>
 
 Disciple of the Saviour, Virgin and Theologian, to you, as virgin, Christ our God, hanging on the Cross, entrusted the Virgin and Mother of God, and you guarded her as the apple of your eye.<a href="#_ftn15" id="_ftnref15">[15]</a> Therefore intercede that our souls may be saved.
 
-<span style="color:red">Same Tone.</span>
+<span style="color:red">Same Tone. </span>
 
-As eye-witness of ineffable mysteries you cried out and loudly proclaimed that the eternal Word was in the beginning with God and that he was God,<a href="#_ftn16" id="_ftnref16">[16]</a> O Apostle John, bosom and true friend of Christ, sweetness of the Trinity, unshakeable buttress of Ephesus and Patmos and our help. Intercede, all-blessed Theologian, that<span style="mso-spacerun: yes">  </span>the people that ever faithfully celebrates your memory may be delivered from impious foes, both physical and spiritual.
+As eye-witness of ineffable mysteries you cried out and loudly proclaimed that the eternal Word was in the beginning with God and that he was God,<a href="#_ftn16" id="_ftnref16">[16]</a> O Apostle John, bosom and true friend of Christ, sweetness of the Trinity, unshakeable buttress of Ephesus and Patmos and our help. Intercede, all-blessed Theologian, that  the people that ever faithfully celebrates your memory may be delivered from impious foes, both physical and spiritual.
 
-<span style="color:red">Tone 2. By Theophanes.</span>
+<span style="color:red">Tone 2. By Theophanes. </span>
 
 The summit of the Apostles, the trumpet of theology, the spiritual general, who made the whole inhabited world subject to God, come believers, let us call him blessed, revered John, translated from earth, yet not withdrawn from earth, but living and abiding the fearful second coming of the Master. O mystic bosom friend of Christ, ask that we, who celebrate your memory with love, may meet it uncondemned.
 
-Glory.<span style="color:red"> Tone 4. By Vyzantios.</span>
+Glory.<span style="color:red"> Tone 4. By Vyzantios. </span>
 
 As you leant on the breast of the Teacher Christ at the Lord’s supper,<a href="#_ftn17" id="_ftnref17">[17]</a> beloved Disciple, you learnt there ineffable things, and you thundered to all the heavenly utterance: In the beginning was the Word, and the Word was with God and the Word was God; the true light that enlightens every one who comes into the world,<a href="#_ftn18" id="_ftnref18">[18]</a> Christ God, and the Saviour of our souls.
 
-Both now.<span style="color:red"> Theotokion.</span>
+Both now.<span style="color:red"> Theotokion. </span>
 
 The Son, who with the Father and the Spirit is glorified in the highest by the Cherubim, wishing to refashion the first fashioned man, emptied himself wholly and ineffably in your womb, all-praised Mother of God, and dawning from you, he enlightened the whole world with his Godhead, delivering it from the folly of idols, and, making humanity divine in himself, he joined it to heaven, Christ our God, and the Saviour of our souls.
 
-<span style="color:red">At the Aposticha, Prosomia.
-Tone 4. Called from the highest.</span>
+<span style="color:red">At the Aposticha, Prosomia. Tone 4. Called from the highest. </span>
 
 Having contemplated the Son of the Most High, co-eternal and consubstantial with the Father, unchanging light from light<a href="#_ftn19" id="_ftnref19">[19]</a> and express imprint of the person of the Begetter,<a href="#_ftn20" id="_ftnref20">[20]</a> who shone forth from him beyond time and impassibly, the Creator and Lord of all ages, you proclaimed him, Beloved Disciple, to the world, Christ our God, who brings light out of darkness.<a href="#_ftn21" id="_ftnref21">[21]</a> Implore him to save and enlighten our souls.
 
@@ -91,23 +85,23 @@ Taken into the light of the Paraclete and enlightened by it, you contemplated th
 
 Ascending the heights of theology, you were initiated into the ineffable mysteries of God: one being of the Godhead, and one glory and kingship and lordship, separated in three persons, inseparable in being and united in an unconfused divine unity. Giving glory in this way, O Theologian, you proclaimed an undivided Trinity. Implore that undivided Trinity to save and enlighten our souls.
 
-Glory.<span style="color:red"> Tone 6. By Monk John.</span>
+Glory.<span style="color:red"> Tone 6. By Monk John. </span>
 
 Apostle of Christ, Evangelist, Theologian, you became an initiate of ineffable mysteries and thundered out to us the ineffable doc­trines of wisdom, making clear to believers that: In the beginning he was.<a href="#_ftn25" id="_ftnref25">[25]</a> And, rejecting the: He was not,<a href="#_ftn26" id="_ftnref26">[26]</a> you refuted the words of the heretics, revealed as bosom and beloved friend, as mighty-voiced Isaias and Moses who saw God.<a href="#_ftn27" id="_ftnref27">[27]</a> As you have freedom to speak before God, implore him insistently on behalf of our souls.
 
-Both now. <span style="color:red">Theotokion.</span>
+Both now. <span style="color:red">Theotokion. </span>
 
 My Maker and Redeemer, Christ the Lord, coming forth from your womb, O All-pure, clothed himself in me and freed Adam from the former curse;<a href="#_ftn28" id="_ftnref28">[28]</a> and so, never silent, we all cry out to you as truly Mother of God and Virgin the Angel’s, ‘Hail!’<a href="#_ftn29" id="_ftnref29">[29]</a> Hail, Lady, shelter and pro­tection and salvation of our souls.
 
-<span style="color:red">Apolytikion. Tone 2.</span>
+<span style="color:red">Apolytikion. Tone 2. </span>
 
 Beloved Apostle of Christ our God, hasten, deliver a people without defence. As he accepted that you lean upon his breast,<a href="#_ftn30" id="_ftnref30">[30]</a> he accepts you as you fall before him. Implore him, O Theologian, and scatter the persistent cloud of nations, asking for us peace and his great mercy.
 
-Glory. Both now.<span style="color:red"> Theotokion.</span>
+Glory. Both now.<span style="color:red"> Theotokion. </span>
 
 All your mysteries are beyond understanding, all beyond glory, O Mother of God; sealed in purity and guarded in virginity you were recognised to be truly a Mother, in giving birth to the true God: im­plore him that our souls may be saved.
 
-<span style="color:red">And Dismissal.</span>
+<span style="color:red">And Dismissal. </span>
 
 AT MATINS
 ---------
@@ -132,69 +126,69 @@ Having abandoned the deep of fishing, O all-praised, you caught all the na­tion
 
 I consider the judgement and I quail, for, wretch that I am, I have done deeds of shame, and I ask, all-praised Mother of God: Before the night of death overtakes me, turn me back, guiding me to the way of repentance, that with thanksgiving I may worship and hymn your measureless power and your divine assistance, All-holy Bride of God, as you in­tercede with Christ God for what I ask of you: that there may be given me pardon of sins and his great mercy.
 
-<span style="color:red">Selection at the Polyeleos.</span>
+<span style="color:red">Selection at the Polyeleos. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The firmament. Alleluia.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The firmament. Alleluia. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The heavens declare the glory of God, and<span style="mso-spacerun: yes">  </span>the firmament proclaims the work of his hands.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The heavens declare the glory of God, and  the firmament proclaims the work of his hands. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The heavens will confess your wonders, O Lord.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The heavens will confess your wonders, O Lord. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Instead of your fathers your sons have been born.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Instead of your fathers your sons have been born. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">You will establish them as rulers over all the earth.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">You will establish them as rulers over all the earth. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">For God’s mighty men of the earth are greatly exalted.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">For God’s mighty men of the earth are greatly exalted. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The God of gods has spoken and summoned the earth.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">The God of gods has spoken and summoned the earth. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">From the rising of the sun to its setting, praised be the name of the Lord.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">From the rising of the sun to its setting, praised be the name of the Lord. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">His lightnings have lit up the world.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">His lightnings have lit up the world. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">And the heavens have proclaimed his justice.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">And the heavens have proclaimed his justice. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">And all the peoples have seen his glory.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">And all the peoples have seen his glory. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Rulers of Juda are their leaders.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Rulers of Juda are their leaders. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Rulers of Zaboulon rulers of Nephalim.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Rulers of Zaboulon rulers of Nephalim. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">God has reigned over the nations.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">God has reigned over the nations. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">God is glorified in the assembly of the saints.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">God is glorified in the assembly of the saints. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Great and terrible he is to all those round about him.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Great and terrible he is to all those round about him. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Offer to the Lord families of nations,</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Offer to the Lord families of nations, </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Offer to the Lord glory and honour.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Offer to the Lord glory and honour. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Proclaim his glory among the nations.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Proclaim his glory among the nations. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Say among the nations that the Lord is king.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Say among the nations that the Lord is king. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Their sound has gone out into all the earth, and their words to the ends of the world.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Their sound has gone out into all the earth, and their words to the ends of the world. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">He has put in them the words of his lips.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">He has put in them the words of his lips. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">And he gave them countries of nations, and they inherited labours of peoples.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">And he gave them countries of nations, and they inherited labours of peoples. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">God has stood in the assembly of gods, in the midst he will judge gods.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">God has stood in the assembly of gods, in the midst he will judge gods. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Offer to the Lord, sons of God, offer to the Lord glory to his name.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Offer to the Lord, sons of God, offer to the Lord glory to his name. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">He has subdued peoples to us, and nations beneath our feet.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">He has subdued peoples to us, and nations beneath our feet. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Great is our God, and great his strength.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Great is our God, and great his strength. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">He will give power and might to his people. Blessed be God.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">He will give power and might to his people. Blessed be God. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Glory.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Glory. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Let us worship the Father, and let us glorify the Son, and let us all praise together the all holy Spirit, crying out and saying: All holy Trinity, save us all.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Let us worship the Father, and let us glorify the Son, and let us all praise together the all holy Spirit, crying out and saying: All holy Trinity, save us all. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Both now.</span>
+<span style="mso-bidi-font-size: 10.0pt; mso-fareast-font-family: MS Mincho">Both now. </span>
 
 <span style="mso-fareast-font-family:&quot;MS Mincho&quot;">Your people, O Christ, brings your Mother to intercede; at her entreaties grant us your pity, O Good one, that we may glorify you, who dawned for us from the grave.</span>
 
@@ -230,11 +224,9 @@ Have mercy one me, O God, in accordance with your great mercy and in accordance 
 
 Theologian, Virgin, beloved Disciple of the Saviour, by your in­tercessions save us, we implore, from every kind of harm; for we are your flock.
 
-<span style="color:red">The Canons, of the Mother of God, and two of the Apostle.</span>
+<span style="color:red">The Canons, of the Mother of God, and two of the Apostle. </span>
 
-<span style="color:red">Canon of the Mother of God,
-of which the acrostic is the Alphabet in reverse order.
-By Theophanes.</span>
+<span style="color:red">Canon of the Mother of God, of which the acrostic is the Alphabet in reverse order. By Theophanes.</span>
 
 **Ode 1. Tone 2. The Irmos.**
 
@@ -250,11 +242,9 @@ His overwhelming power once smothered in the deep all Pharao’s host; while the
 
 **V**irgin, you wholly renewed the nature of mortals, dried up by every offence, in giving birth to the heavenly rain. But, I beg, show the dried up furrow of my soul to be fruitful, O Bride of God.
 
-**Canon of the Saint, of which the acrostic is:
-**<span style="color:windowtext">I shall praise the son of thunder in a way pleasing to Christ.</span>
+**Canon of the Saint, of which the acrostic is:** <span style="color:windowtext">I shall praise the son of thunder in a way pleasing to Christ. </span>
 
-**By Theophanes.
-Ode 1. Tone 2. Same Irmos.**
+**By Theophanes. Ode 1. Tone 2. Same Irmos.**
 
 Having received the kingdom of heaven which you proclaimed, blessed Saint, and become a heavenly companion to the Word, by your entreaties guard those who believe your honoured proclamation and theology.
 
@@ -266,11 +256,9 @@ Having received knowledge of heavenly things, with true theology you proclaimed 
 
 The choir of godly maidens, greatly inspired, sing of you as beautiful among women, O Lady Mother of God, made lovely with the beauties of the Godhead; for beyond reason you bore the Word who creates beauty.
 
-**A second Canon of the Saint, of which the acrostic is:
-**<span style="color:windowtext">I bring to God’s Initiate a sixth plea. Joseph.</span>
+**A second Canon of the Saint, of which the acrostic is:** <span style="color:windowtext">I bring to God’s Initiate a sixth plea. Joseph. </span>
 
-**Ode 1. Tone 6.
-Crossing the sea as on dry land.**
+**Ode 1. Tone 6. Crossing the sea as on dry land.**
 
 Illumined in thought, you bent down into the deeps of the Spirit and made clear to us the dread begetting, crying out: In the beginning was the Word of God.<a href="#_ftn39" id="_ftnref39">[39]</a>
 
@@ -380,11 +368,11 @@ O Christ, you have become the Mediator between God and mortals,<a href="#_ftn48"
 
 **Troparia**
 
-<span style="mso-spacerun: yes">**O**</span>**<span style="mso-spacerun: yes"> </span>**All-immaculate, who bore the way of life, guide me now into the right way, who have been senselessly hurled headlong into pathless places and pits of harsh misdeeds.
+<span style="mso-spacerun: yes">**O**</span> All-immaculate, who bore the way of life, guide me now into the right way, who have been senselessly hurled headlong into pathless places and pits of harsh misdeeds.
 
 **N**ow having exiled myself by my senseless mind, Virgin of God, I have lived as a prodigal,<a href="#_ftn49" id="_ftnref49">[49]</a> wandering lost to the far country of the passions; but turn me back, save me by your intercessions.
 
-**M**other and Virgin immaculate, let your servant, burning with the flame of sins and<span style="mso-spacerun: yes">  </span>aflame from the assaults of demons, drink from your streams that flow with life.
+**M**other and Virgin immaculate, let your servant, burning with the flame of sins and  aflame from the assaults of demons, drink from your streams that flow with life.
 
 **Of the Saint. The same Irmos.**
 
@@ -466,14 +454,11 @@ To learn wholly the high secrets of heaven, to investigate the depths of the sea
 
 On the 26th day of the same month, the Translation of the holy, glorious Apostle and Evangelist, bosom friend, virgin, beloved, John the Theologian.
 
-**Verses.
-**<span style="color:windowtext">Father’s beloved Word you stand beside,
-Beloved more than all of the Disciples.
-Passed on the twenty sixth day unto God the child of the thunder.</span>
+**Verses.** <span style="color:windowtext">Father’s beloved Word you stand beside, Beloved more than all of the Disciples. Passed on the twenty sixth day unto God the child of the thunder. </span>
 
-<span style="mso-bidi-font-size: 10.0pt">He was son of Zebedee and Salome, who was the daughter of Joseph the Be­trothed; for Joseph had four sons, Jacob, Symeon, Juda and Joses, and three daughters, Esther, Martha and Salome, who became the wife of Zebedee and the mother of John; and so our Lord Jesus Christ was the John’s uncle, as brother of Salome, Joseph’s daughter.</span>
+<span style="mso-bidi-font-size: 10.0pt">He was son of Zebedee and Salome, who was the daughter of Joseph the Be­trothed; for Joseph had four sons, Jacob, Symeon, Juda and Joses, and three daughters, Esther, Martha and Salome, who became the wife of Zebedee and the mother of John; and so our Lord Jesus Christ was the John’s uncle, as brother of Salome, Joseph’s daughter. </span>
 
-<span style="mso-bidi-font-size: 10.0pt">John is the one who leant on Christ’s breast, as greatly loved; and he was also present at the betrayal and at the Cross; when he took the Mother of God to his own home and served her until the Dormition. After the Dormition the holy Apostles cast lots for where each of them should go and preach, and the lot John received was to go to Asia. This upset him, for he knew that he would be much tried at sea, as he foretold to his disciple Prochoros. \[<span style="color:red">There follow a further five pages of small print in double columns.</span>\]</span>
+<span style="mso-bidi-font-size: 10.0pt">John is the one who leant on Christ’s breast, as greatly loved; and he was also present at the betrayal and at the Cross; when he took the Mother of God to his own home and served her until the Dormition. After the Dormition the holy Apostles cast lots for where each of them should go and preach, and the lot John received was to go to Asia. This upset him, for he knew that he would be much tried at sea, as he foretold to his disciple Prochoros. \[<span style="color:red">There follow a further five pages of small print in double columns.</span>\] </span>
 
 At his holy prayers have mercy on us, O God. Amen.
 
@@ -517,14 +502,13 @@ We bless you, O all-blameless, who bore the blessed Lord, who crowned with his d
 
 The godlike Children did not worship creation instead of the Creator, but bravely trampling on the threat of fire, rejoicing they sang: O highly exalted Lord and God of our fathers, blessed are you!<a href="#_ftn62" id="_ftnref62">[62]</a>
 
-**Of the Mother of God. Ode 8.
-Irmos.**
+**Of the Mother of God. Ode 8. Irmos.**
 
 A fiery furnace once in Babylon, by divine decree, divided its action, burning up the Chaldeans but refreshing the faithful who sang: All you works of the Lord, bless the Lord.
 
 **Troparia**
 
-**F**or what is good, my soul,<span style="mso-spacerun: yes">  </span>be zealous, keep far from wickedness through the harmony of godly deeds, for you have God’s Mother who intercedes for you as protection of all and who cannot be put to shame, for she is compassionate and loves humankind.
+**F**or what is good, my soul,  be zealous, keep far from wickedness through the harmony of godly deeds, for you have God’s Mother who intercedes for you as protection of all and who cannot be put to shame, for she is compassionate and loves humankind.
 
 **E**ver pure Bearer of God you released humanity from the bond of the ancient condemnation; therefore I implore you, release every bond of wickedness of my heart, binding me with the divine love of the Creator.
 
@@ -606,8 +590,7 @@ Becoming son of thunder<a href="#_ftn74" id="_ftnref74">[74]</a> you proclaimed 
 
 As you stood by the Cross of your Lord, All-pure one, with the virgin Disciple, you heard from the creator: Woman, behold your son; while to the Disciple likewise he said: Behold your mother; with him we all hymn you, Virgin Mother of God.<a href="#_ftn77" id="_ftnref77">[77]</a>
 
-**At Lauds we insert 4 prosomia.
-Tone 8. O marvellous wonder.**
+**At Lauds we insert 4 prosomia. Tone 8. O marvellous wonder.**
 
 Blessed and all-wise John, with fervent abundance of the love of Christ you appeared more loved than all Disciples; to the all-seeing Word, who judges the whole inhabited world by just scales of purity and chastity, shining brightly with beauties in body and mind, O blessed of God.
 
@@ -633,8 +616,6 @@ Lady, accept the supplications of your servants, and deliver us from every const
 
 His sound has gone out into all the earth, and his words to the ends of the world. Alleluia.
 
-------------------------------------------------------------------------
-
 <a href="#_ftnref1" id="_ftn1">[1]</a> Cf. Apocalypse 1,1.
 
 <a href="#_ftnref2" id="_ftn2">[2]</a> Cf. Song of Songs 1,1.
@@ -653,11 +634,11 @@ His sound has gone out into all the earth, and his words to the ends of the worl
 
 <a href="#_ftnref9" id="_ftn9">[9]</a> John 1,3-5.
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span lang="FR" style="mso-ansi-language:FR"> Hebrews 10,1.</span>
+<a href="#_ftnref10" id="_ftn10">[10]</a><span lang="FR" style="mso-ansi-language:FR"> Hebrews 10,1. </span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 3,2.</span>
+<a href="#_ftnref11" id="_ftn11">[11]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 3,2. </span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 13,21.</span>
+<a href="#_ftnref12" id="_ftn12">[12]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 13,21. </span>
 
 <a href="#_ftnref13" id="_ftn13">[13]</a> Malachy 3,20 (4,2).
 
@@ -799,9 +780,6 @@ His sound has gone out into all the earth, and his words to the ends of the worl
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

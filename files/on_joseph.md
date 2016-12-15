@@ -4,7 +4,7 @@ The long sermon on the Patriarch Joseph is one of the most interesting of the Gr
 
 Because of the many details in Greek, Hebrew and Syriac in the notes, I have decided to publish my translation in PDF format, for which Adobe Acrobat Reader is needed. This can be downloaded free from Adobe:
 
- [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
+ 
 
 Click on the hyperlink below to read the PDF file
 
@@ -13,9 +13,6 @@ Click on the hyperlink below to read the PDF file
 On Joseph
 ---------
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -10,8 +10,6 @@ where Fr Gerasimos had written,
 
 Protection of God’s Mother veils God’s people.
 
-------------------------------------------------------------------------
-
 ****
 
 1
@@ -55,25 +53,21 @@ Entrance,
 
 O Joyful Light**, the Prokeimenon of the day and the readings.**
 
-The Reading is from Numbers.
-\[**9:15-23\]**
+The Reading is from Numbers. \[**9:15-23\]**
 
 On the day that the tabernacle was set up, the cloud covered the tabernacle, the house of the testimony. And at evening it was over the tabernacle like the appearance of fire until morning. So it was continually. The cloud covered it by day, and the appearance of fire by night. And whenever the cloud went up from the tent, after that the people of Israel set out. And in the place where the cloud stopped, there the people of Israel encamped. At the command of the Lord the people of Israel encamped, and at the command of the Lord they set out. ‘For as many days as the cloud overshadows the tabernacle, the children of Israel will remain in camp. Even when the cloud has continued over the tabernacle many days, the children of Israel will keep the charge of the Lord, and they are not to set out. And it shall that whenever the cloud covers the tabernacle for a number of days, in accordance with the word of the Lord they will remain in camp, and in accordance with the command of the Lord they will set out. And it shall be that whenever the cloud remains from evening until morning; and that the cloud goes up in the morning, they will set out by day or by night. When the cloud overshadows it for a month, or longer, the children of Israel shall remain in camp and not set out. Because they will set out at the command of the Lord’. They kept the charge of the Lord, at the command of the Lord by Moses.
 
-The Reading is from Exodus.
-\[**40:15-32\]**
+The Reading is from Exodus. \[**40:15-32\]**
 
 And it came to pass in the first month in the second year since the children of Israel had set out from Egypt, at the new moon the tabernacle was erected. And Moses erected the tabernacle; he laid its capitals, put in its bars, and raised up its pillars. And he spread the curtains over the tabernacle, and put the covering of the tabernacle over it, as the Lord had commanded Moses. And he took the testimonies and put them into the ark, and put the poles under the ark, and put the covering of the veil on it and covered the ark of testimony, as the Lord had commanded Moses. And he put the table in the tabernacle of testimony, on the north side, outside the veil of the tabernacle. And he set the bread of the on it before the Lord; as the Lord had commanded Moses. And he put the lampstand in the tabernacle of testimony, on the south side of the tabernacle, and set up its lamps before the Lord; as the Lord had commanded Moses. And he put the golden altar in the tabernacle of testimony before the veil, and on it he burnt incense that had been compounded; as the Lord had commanded Moses. And he set the altar of burnt offering at the door of the tabernacle. And he set the court round the tabernacle of testimony. So Moses finished the whole work. Then the cloud covered the tabernacle of testimony, and the tabernacle was filled with the glory of the Lord. And Moses was not able to enter the tabernacle of testimony because the cloud overshadowed it, and the tabernacle was filled with the glory of the Lord. Whenever the cloud went up from the tabernacle, the children of Israel would move off with their baggage. but if the cloud did not go up, then they did not move off until the day that the cloud did go up. For the cloud was on the tabernacle by day, and fire was on it by night, in the sight of all Israel at every stage of their journey.
 
-The Reading is from the Prophecy of Ezekiel.
-\[**43:27-44:4\]**
+The Reading is from the Prophecy of Ezekiel. \[**43:27-44:4\]**
 
 It shall be from the eighth day and upwards, the Priests shall make your holocausts upon the altar, and those for your salvation; and I shall accept you, says the Lord. And he turned me back by the way of the outer gate of the Holy Place, which looks towards the east, and it was shut. And the Lord said to me: This gate shall be shut, it shall not be opened, and no one shall pass through it, because the Lord, the God of Israel, will enter through it, and it shall be shut. Therefore this prince shall sit in it to eat bread. By the way of the Elam of the gate he shall enter, and by that way he shall go out. And he brought me by the way of the gate towards the North, opposite the House; and I saw, and behold the whole house of the Lord was full of glory.
 
 ****
 
-At the Liti, Idiomels.
-Tone 1.
+At the Liti, Idiomels. Tone 1.
 
 Every country of the Orthodox, rejoice, for you are protected by the Protecting Veil of the all-praised Mother of God. For invisibly she, the Mother of the unsetting Light, unfolding it like a cloud of light, wraps you around, protects you from every side and turns back the regiments of enemies both perceptible and immaterial. Therefore with triumphant voice proclaim the grace you have been given, and resoundingly praise the Virgin who protects you, crying aloud, ‘Hail, Full of grace, the Lord is with you, he who through you grants the world his great mercy!’
 
@@ -150,8 +144,7 @@ We sing the praise, Pure Virgin, of your holy Protection, which, in your goodnes
 
 Twice.
 
-After the 2nd Reading, Kathisma.
-Tone 4. Speedily anticipate.
+After the 2nd Reading, Kathisma. Tone 4. Speedily anticipate.
 
 Venerable Andrew was amazed when in the church of Vlachernae he saw you unfolding for us your godly Robe, which is guarded there, pure Maiden, and reveals to all the grace of your protection, through which you protect and save us from every affliction.
 
@@ -159,8 +152,7 @@ Venerable Andrew was amazed when in the church of Vlachernae he saw you unfoldin
 
 Twice.
 
-After the Polyeleos, Kathisma.
-Tone 8. The Wisdom and Word.
+After the Polyeleos, Kathisma. Tone 8. The Wisdom and Word.
 
 As you unfold each day your holy and wondrous Protection, which the cloud in the Law prefigured, you enfold your race, O Maiden, that looks intently for your goodness, and ever awaits the help which you give, Mother of God. And at all times turn the mad rage of enemies from us who sing the praise of the greatness of your wonders, as you intercede with your Son and God to grant forgiveness of faults to us who celebrate with love your all-radiant Protection.
 
@@ -200,8 +192,7 @@ Then are sung the following two Canons of the Mother of God.
 
 First Canon, of which the acrostic is:
 
-You are the Protection of believers,
-O Virgin. By Gerasimos. ****
+You are the Protection of believers, O Virgin. By Gerasimos. ****
 
 Ode 1. Tone 4. Irmos.
 
@@ -315,8 +306,7 @@ Your wondrous and dazzling Protection, through which, O All-praised, you protect
 
 Katavasia, the Irmos of the 1st Canon.
 
-First Canon.
-Ode 5. Irmos.
+First Canon. Ode 5. Irmos.
 
 The universe was amazed at your divine glory, for you, O Virgin, who knew not wedlock, held in your womb the God who is over all and gave birth to an eternal Son, who gives salvation as the prize to all who sing your praise. **Twice.**
 
@@ -350,8 +340,7 @@ The universe was amazed at your divine glory, for you, O Virgin, who knew not we
 
 ****
 
-First Canon.
-Ode 6. Irmos.
+First Canon. Ode 6. Irmos.
 
 Come godly-minded people, as we celebrate this divine and honoured feast of the Mother of God, let us clap our hands as we glorify the God who was born from her. **Twice.**
 
@@ -393,19 +382,7 @@ The Ikos.
 
 Unfolding from on high your holy Protection, Virgin Mary, Mother of God, you protect and save your people, who cry out to you, Pure Maiden, hour by hour, while now they gratefully sing the praise of your wonders as they cry: Hail, Protection, wholly light!
 
-Hail, gate of salvation.
-Hail, Protection of the Church.
-Hail, wondrous vision of the Angels.
-Hail, unshakeable support of mortals.
-Hail, Ever-Virgin Mother of Christ the universal King.
-Hail, Protection and assistance of your faithful people.
-Hail, for you appeared protecting your race.
-Hail, for you grant victories to the troops.
-Hail, source of abundant goodness.
-Hail, lamp of God’s loving-kindness.
-Hail, for through you we conquer the foe.
-Hail, for to you we cry out each day:
-Hail, Protection wholly light!
+Hail, gate of salvation. Hail, Protection of the Church. Hail, wondrous vision of the Angels. Hail, unshakeable support of mortals. Hail, Ever-Virgin Mother of Christ the universal King. Hail, Protection and assistance of your faithful people. Hail, for you appeared protecting your race. Hail, for you grant victories to the troops. Hail, source of abundant goodness. Hail, lamp of God’s loving-kindness. Hail, for through you we conquer the foe. Hail, for to you we cry out each day: Hail, Protection wholly light!
 
 ****
 
@@ -417,9 +394,7 @@ On the 1st \[28th\] of the month we celebrate the commemoration of the Protectin
 
 Verses
 
-Those who with faith, pure Virgin, look to you
-With your Protection you protect and cherish.
-Protection of God’s Mother veils God’s people.
+Those who with faith, pure Virgin, look to you With your Protection you protect and cherish. Protection of God’s Mother veils God’s people.
 
 Once, during an all-night vigil that was being celebrated in the holy shrine in Vlachernae, the blessed Andrew went there, as was his custom. Epiphanios was there also with one of his children. He was would stand there, as his custom was, because his fervour gave him strength, sometimes until midnight, sometimes until dawn. And so, when it was already about eleven o’clock at night, the blessed Andrew saw with his own eyes a most extraordinary vision coming in female form from the royal doors with a dread entourage, among which was the honoured Forerunner and the son thunder, holding her by the hand on either side, and many Saints, robed in white, went before her; while others followed with hymns and spiritual songs. When she drew near the ambo, Andrew approached Epiphanios and said, ‘Do you see the Lady and Mistress of the world?’ He replied, ‘Yes, my spiritual father.’
 
@@ -429,8 +404,7 @@ At the prayers of your most pure Mother, Christ God, have mercy and protect us f
 
 ****
 
-First Canon.
-Ode 7. Irmos.
+First Canon. Ode 7. Irmos.
 
 The godlike Children did not worship creation instead of the Creator, but bravely trampling on the threat of fire, rejoicing they sang: O highly exalted Lord and God of our fathers, blessed are you! **Twice.**
 
@@ -556,8 +530,7 @@ By your mighty Protection and unsleeping intercession, O Maiden, guard the race 
 
 At Lauds.
 
-**We insert 4 stichera, and sing the following Prosomia.**
-**Tone 1. Joy of the heavenly hosts.**
+**We insert 4 stichera, and sing the following Prosomia.** **Tone 1. Joy of the heavenly hosts.**
 
 The Ever-Virgin Maiden and pure Mother of God, ally and Protection of the attacked, and above all refuge and ready help, let us all praise as is fitting, as we magnify her Protection.
 
@@ -664,8 +637,7 @@ Like a cloud brightly overshadowing the whole company of the Church, O all-pure,
 
 ****
 
-Prokeimenon. Tone 3.
-\[Song of the Mother of God. Luke 1\]
+Prokeimenon. Tone 3. \[Song of the Mother of God. Luke 1\]
 
 My soul magnifies the Lord, and my spirit has rejoiced in God, my Saviour.
 
@@ -719,9 +691,6 @@ Megalynarion.
 
 You are the Protection of Orthodox Christians, O Virgin, protecting all the faithful. And so your people takes refuge in your Protection, and with faith magnifies your watchful care.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

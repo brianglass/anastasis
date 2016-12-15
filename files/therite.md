@@ -94,7 +94,7 @@ Amen. ****
 
 Bishop:
 
-** Peace to all. ****
+Peace to all. ****
 
 People:
 
@@ -102,7 +102,7 @@ And to your spirit. ****
 
 Deacon:
 
-** Let us bow our heads to the Lord. ****
+Let us bow our heads to the Lord. ****
 
 People:
 
@@ -170,7 +170,7 @@ The Lord is my enlightenment and my Saviour, whom shall I fear?
 
 verse:
 
-** The Lord is the defender of my life, of whom shall I be afraid?
+The Lord is the defender of my life, of whom shall I be afraid?
 
 The Reading is from the Epistle of Paul to the Hebrews.
 
@@ -188,15 +188,15 @@ Alleluia.
 
 Verse:
 
-** I cried to the Lord, and God heard me. ****
+I cried to the Lord, and God heard me. ****
 
 Deacon:
 
-** Wisdom. Stand upright. Let us listen to the holy Gospel. ****
+Wisdom. Stand upright. Let us listen to the holy Gospel. ****
 
 Bishop:
 
-** Peace to all. ****
+Peace to all. ****
 
 People:
 
@@ -214,7 +214,7 @@ Glory to you, Lord! Glory to you! ****
 
 Deacon:
 
-** Let us attend. ****
+Let us attend. ****
 
 \[16,13-19\]
 
@@ -274,15 +274,15 @@ Alleluia.
 
 Verse:
 
-** Listen my daughter and see, and incline your ear, and forget your people and your father’s house. ****
+Listen my daughter and see, and incline your ear, and forget your people and your father’s house. ****
 
 Deacon:
 
-** Wisdom. Stand upright. Let us listen to the holy Gospel. ****
+Wisdom. Stand upright. Let us listen to the holy Gospel. ****
 
 Bishop:
 
-** Peace to all. ****
+Peace to all. ****
 
 People:
 
@@ -300,7 +300,7 @@ Glory to you, Lord! Glory to you! ****
 
 Deacon:
 
-** Let us attend. ****
+Let us attend. ****
 
 \[10,38-42 & 11,27-28\]
 
@@ -522,7 +522,7 @@ Amen. ****
 
 And after the
 
-** Amen ** **they bring and pour the wax-mastic in the middle of the ‘stem’, arrange the papers, take up the slab and place it on the pillar. While all this is being done the Singers chant:**
+Amen **they bring and pour the wax-mastic in the middle of the ‘stem’, arrange the papers, take up the slab and place it on the pillar. While all this is being done the Singers chant:**
 
 Psalm 144.
 
@@ -658,7 +658,7 @@ For blessed are you to the ages of ages.
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Then the Bishop pours water three times on the slab of the Holy Table, saying:
 
@@ -682,14 +682,13 @@ Glory to our God to the ages.
 
 The Clerics and the Choirs:
 
-** Amen.
+Amen.
 
 4
 -
 
-THE ANOINTING OF THE HOLY TABLE
-AND CONSECRATION OF ANTIMENSIA
--------------------------------
+THE ANOINTING OF THE HOLY TABLE AND CONSECRATION OF ANTIMENSIA
+--------------------------------------------------------------
 
 **With the priests standing near the Bishop and when the antimensia have been placed on the four corners of the Table, the Bishop takes a jar full of vine-water or rose-water or white wine and pouring from it three times, he washes the holy Table and wipes it with the antimensia, as he chants the following:**
 
@@ -751,13 +750,10 @@ Glory to you, holy Trinity, our God, to the ages of ages. Amen.
 
 When the Table has been wiped with the Antimensia, these are laid aside again by the Priests. Then at the four corners of the Table the four cloths with the icons, or the names, of the four Evangelists are glued with wax-mastic, like this:
 
-<span id="diagram01"></span><img src="Image1.gif" width="365" height="245" />
-
 5
 -
 
-THE VESTING OF THE HOLY TABLE
-AND CONSECRATION OF THE CHURCH
+THE VESTING OF THE HOLY TABLE AND CONSECRATION OF THE CHURCH
 
 ****
 
@@ -779,7 +775,7 @@ After this he washes his hands in a new bucket or in the sacrarium, so that not 
 
 Psalm 92
 
-The Lord is King, he has clothed himself with glory. ** The Lord has clothed and girded himself with power. For he has established the world, which will not be shaken. Your throne is prepared from of old; from eternity you are. The rivers lifted up, Lord, the rivers lifted up their voices. The rivers will lift their poundings from the voices of many waters. wondrous are the breakers of the sea; wondrous the Lord on high. Your testimonies have been made very sure. Holiness befits your house, Lord, to length of days.
+The Lord is King, he has clothed himself with glory. The Lord has clothed and girded himself with power. For he has established the world, which will not be shaken. Your throne is prepared from of old; from eternity you are. The rivers lifted up, Lord, the rivers lifted up their voices. The rivers will lift their poundings from the voices of many waters. wondrous are the breakers of the sea; wondrous the Lord on high. Your testimonies have been made very sure. Holiness befits your house, Lord, to length of days.
 
 ****
 
@@ -801,8 +797,6 @@ Judge me, Lord, for I have walked in my innocence; and since I hope in the Lord 
 
 After censing, the Bishop, carrying a reed to the tip of which has been bound a sponge dipped in holy Chrism, draws the monogram of Christ
 
-<img src="Image2.gif" width="46" height="62" />
-
 ****
 
 in the apse of the Sanctuary, on the four columns and on the lintel of the door of the Church on the inside.
@@ -815,13 +809,12 @@ Glory to the holy, all-powerful and life-giving Trinity, always, now and for eve
 
 People:
 
-Amen. **
+Amen.
 
 6
 -
 
-CONCLUDING PRAYERS
-AND LIGHTING OF THE LAMPS
+CONCLUDING PRAYERS AND LIGHTING OF THE LAMPS
 
 ****
 
@@ -887,7 +880,7 @@ Amen. ****
 
 Bishop:
 
-** Peace to all. ****
+Peace to all. ****
 
 People:
 
@@ -895,7 +888,7 @@ And to your spirit. ****
 
 Deacon:
 
-** Let us bow our heads to the Lord. ****
+Let us bow our heads to the Lord. ****
 
 People:
 
@@ -929,7 +922,7 @@ Holiness befits your house, Lord, to length of days.
 
 Verse:
 
-** The Lord is King, he has clothed himself with glory.
+The Lord is King, he has clothed himself with glory.
 
 The Reading is from the Epistle of Paul to the Hebrews.
 
@@ -941,7 +934,7 @@ H
 
 oly brethren, who share in a heavenly call, consider Jesus, the apostle and high priest of our confession. He was faithful to him who appointed him, just as Moses also was faithful in God’s house. Yet Jesus has been counted worthy of as much more glory than Moses as the builder of a house has more honour than the house. For every house is built by some one, but the builder of all things is God. ****
 
-<span id="July02"></span>Gospel.
+Gospel.
 
 The Reading is from the holy Gospel according to John.
 
@@ -979,7 +972,7 @@ As we celebrate the memory of the Dedication, loving and all-powerful Lord, we g
 
 Then:
 
-** Holy God, Holy Strong, Holy Immortal, have mercy on us. **(three times)**
+Holy God, Holy Strong, Holy Immortal, have mercy on us. **(three times)**
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
@@ -1027,7 +1020,7 @@ Lord, have mercy. **(Three times)**
 
 Bishop:
 
-** For you, O God, are merciful and love mankind, and to you we give glory, to the Father and to the Son and to the holy Spirit, now and for ever, and to the ages of ages. ****
+For you, O God, are merciful and love mankind, and to you we give glory, to the Father and to the Son and to the holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -1037,13 +1030,10 @@ And the Dismissal by the Bishop from the Holy Doors.
 
 It is customary that at the first Liturgy in the new Church the opening blessing,
 
-** Blessed is the Kingdom**…, should be chanted by the Bishop.**
+Blessed is the Kingdom**…, should be chanted by the Bishop.**
 
-** **
+ 
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

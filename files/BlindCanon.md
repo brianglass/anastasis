@@ -1,8 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](jo-hym.md) \] \[ [Second Canon for the Assumption](asccan2.md) \] \[ [Prophet Elias](20julcan2.md) \] \[ [Paralysed Man](ParalCan.md) \] \[ [Samaritan Woman](SamarCan.md) \] \[ Blind Man \] \[ [Akathist](akathist.md) \] \[ [Holy Cross](1augcan1.md) \]
 
-**CANON FOR THE MAN BORN BLIND**
-BY
-**SAINT JOSEPH OF THESSALONIKI**
+**CANON FOR THE MAN BORN BLIND** BY **SAINT JOSEPH OF THESSALONIKI**
 
 INTRODUCTION
 
@@ -14,13 +12,10 @@ The subject first troparion of all the odes is the Crucifixion and of the fourth
 
 I have not included detailed references to holy Scripture, though there are many in the text. The phrase ‘right Spirit’ in the Triadikon of the 9th ode is a quotation from Psalm 50, but because it sounds somewhat strange in English I have placed it in inverted commas.
 
-------------------------------------------------------------------------
-
 THE CANON
 =========
 
-**The Acrostic in the 9th Ode
-**J O S E P H
+**The Acrostic in the 9th Ode** J O S E P H
 
 ****
 
@@ -244,29 +239,26 @@ For he that is mighty has done great things for you, showing you to be a pure vi
 
 Troparia.
 
-<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />oined to the gallows of the Cross, Christ Saviour, you triumphed over all the hostile forces of the foe, and abolished the former curse; therefore as is right we magnify you.
+oined to the gallows of the Cross, Christ Saviour, you triumphed over all the hostile forces of the foe, and abolished the former curse; therefore as is right we magnify you.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />n seeing you below with your soul, O Word, Hell groaned aloud and in fear released all the dead, who recognised the might of your authority; with whom as is right we magnify you.
+n seeing you below with your soul, O Word, Hell groaned aloud and in fear released all the dead, who recognised the might of your authority; with whom as is right we magnify you.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />eeing him accomplishing signs and dread wonders the people of the Hebrews in jealousy slew him who plundered Hell by his Resurrection, and as powerful raised all with him.
+eeing him accomplishing signs and dread wonders the people of the Hebrews in jealousy slew him who plundered Hell by his Resurrection, and as powerful raised all with him.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as you said, you rose from the dead, O Giver of Life, and appeared to the holy Disciples after your Rising, you who did signs and gave sight to the blind; with them to the ages we magnify you.
+ven as you said, you rose from the dead, O Giver of Life, and appeared to the holy Disciples after your Rising, you who did signs and gave sight to the blind; with them to the ages we magnify you.
 
 ****
 
 Triadikon.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />raise I give to Light, the Father, glory to Light, the Son, a hymn to Light, the ‘right Spirit’: one undivided Light, recognised in three Persons, God, King of all creation.
+raise I give to Light, the Father, glory to Light, the Son, a hymn to Light, the ‘right Spirit’: one undivided Light, recognised in three Persons, God, King of all creation.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
+oly Virgin, you appear wider then the heavens for you contained and bore in a body God, the uncircumscribed, for the redemption of all those who sing your praise with undoubting faith.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

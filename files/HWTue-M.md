@@ -53,9 +53,7 @@ Lord, have mercy (
 
 **x12**). Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -165,8 +163,7 @@ Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your ar
 
 And again.
 
-Do not forsake me, Lord; my God do not go far from me.
-Hasten to help me, Lord of my salvation.
+Do not forsake me, Lord; my God do not go far from me. Hasten to help me, Lord of my salvation.
 
 ****
 
@@ -176,8 +173,7 @@ O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh h
 
 And again.
 
-Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice.
-My soul clung to you; and your right hand upheld me.
+Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me.
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
@@ -195,8 +191,7 @@ Lord, God of my salvation, I have cried by day, and by night also before you. Le
 
 And again.
 
-Lord, God of my salvation, I have cried by day; and by night also before you.
-Let my prayer come into your presence, and turn your ear to my supplication.
+Lord, God of my salvation, I have cried by day; and by night also before you. Let my prayer come into your presence, and turn your ear to my supplication.
 
 ****
 
@@ -220,8 +215,7 @@ And again.
 
 In your justice hear me, O Lord, and do not enter into judgement with your servant. (
 
-**x2**)
-Your good Spirit will guide me in an upright land.
+**x2**) Your good Spirit will guide me in an upright land.
 
 Glory to the Father and to the Son and to the holy Spirit.
 
@@ -241,20 +235,9 @@ People:
 
 Lord, have mercy. **And so after each petition.**
 
-For the peace from on high and for the salvation of our souls, let us pray to the Lord.
-For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord.
-For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord.
-For our Archbishop
+For the peace from on high and for the salvation of our souls, let us pray to the Lord. For the peace of the whole world, for the welfare of the holy Churches of God, and for the union of all, let us pray to the Lord. For this holy house, and for those who enter it with faith, reverence and the fear of God, let us pray to the Lord. For our Archbishop
 
-**N**., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord.
-\[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord.
-For our Father and Abbot, Priest-monk **N**. and for all our brotherhood in Christ, let us pray to the Lord.\]
-For this city \[holy monastery\], for every city, town and village, and for the faithful who dwell in them, let us pray to the Lord.
-For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord.
-For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord.
-For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord.
-Help us, save us, have mercy on us, and keep us, O God, by your grace.
-Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+**N**., for the honoured order of presbyters, for the diaconate in Christ, for all the clergy and the people, let us pray to the Lord. \[For our Sovereign Lady, Queen Elizabeth, the Royal Family, her Government, and all in authority, let us pray to the Lord. For our Father and Abbot, Priest-monk **N**. and for all our brotherhood in Christ, let us pray to the Lord.\] For this city \[holy monastery\], for every city, town and village, and for the faithful who dwell in them, let us pray to the Lord. For favourable weather, an abundance of the fruits of the earth, and temperate seasons, let us pray to the Lord. For those who travel by land, air or water, for the sick, the suffering, for those in captivity, and for their safety and salvation, let us pray to the Lord. For our deliverance from all affliction, wrath, danger and constraint, let us pray to the Lord. Help us, save us, have mercy on us, and keep us, O God, by your grace. Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 People:
 
@@ -390,8 +373,7 @@ Reader:
 
 Glory to you, Lord, glory to you! ****
 
-And at once:
-Psalm 50
+And at once: Psalm 50
 
 Have mercy on me, O God, in accordance with your great mercy. According to the multitude of your compassion blot out my offence. Wash me thoroughly from my wickedness, and cleanse me from my sin. For I acknowledge my wickedness, and my sin is ever before me. Against you alone I have sinned and done what is evil in your sight, that you may be justified in your words and win when you are judged. For see, in wickedness I was conceived and in sin my mother bore me. For see, you have loved truth; you have shown me the hidden and secret things of your wisdom. You will sprinkle me with hyssop and I shall be cleansed. You will wash me and I shall be made whiter than snow. You will make me hear of joy and gladness; the bones which have been humbled will rejoice. Turn away your face from my sins and blot out all my iniquities. Create a clean heart in me, O God, and renew a right Spirit within me. Do not cast me out from your presence, and do not take your Holy Spirit from me. Give me back the joy of your salvation, and establish me with your sovereign Spirit. I will teach transgressors your ways, and sinners will turn to you again. O God, the God of my salvation, deliver me from bloodshed and my tongue will rejoice at your justice. Lord, you will open my lips, and my mouth will proclaim your praise. For if you had wanted a sacrifice, I would have given it. You will not take pleasure in burnt offerings. A sacrifice to God is a broken spirit; a broken and a humbled heart God will not despise. Do good to Sion, Lord, in your good pleasure; and let the walls of Jerusalem be rebuilt. Then you will be well pleased with a sacrifice of righteousness, oblation and whole burnt offerings. Then they will offer calves upon your altar. ****
 
@@ -427,8 +409,7 @@ Reader:
 
 Amen. ****
 
-After the small litany the Kontakion
-Tone 2
+After the small litany the Kontakion Tone 2
 
 Think, miserable soul, on the hour of the end, and made fearful by the cutting down of the fig tree, work with love of toil at the talent given you, as you watch and cry: May we not be left outside Christ’s bridal chamber!
 
@@ -448,8 +429,7 @@ On holy and great Tuesday we commemorate the parable of the ten virgins from the
 
 Verses
 
-Great Tuesday now bears with it virgins ten,
-Who bear the triumph of the Master just.
+Great Tuesday now bears with it virgins ten, Who bear the triumph of the Master just.
 
 But, O Bridegroom Christ, number us with the prudent virgins, range us with the chosen flock and have mercy on us. Amen
 
@@ -539,15 +519,13 @@ Reader:
 
 Amen. ****
 
-After the small litany, the Exapostilarion sung slowly and solemnly:
-Tone 3. Model Melody.
+After the small litany, the Exapostilarion sung slowly and solemnly: Tone 3. Model Melody.
 
 Your bridal chamber, O my Saviour, I see all adorned, but I have no garment so that I may enter it. Make bright the mantle of my soul, O Giver of light, and save me! (
 
 **x3**) ****
 
-At Lauds we insert 4 Idiomel Stichera, doubling them.
-Tone 1
+At Lauds we insert 4 Idiomel Stichera, doubling them. Tone 1
 
 Psalm 148
 
@@ -701,8 +679,7 @@ Reader:
 
 Lord, have mercy.
 
-Help us, save, have mercy on us and keep us, O God, by your grace.
-That the whole day may be perfect, holy, peaceful and sinless, let us ask the Lord.
+Help us, save, have mercy on us and keep us, O God, by your grace. That the whole day may be perfect, holy, peaceful and sinless, let us ask the Lord.
 
 ****
 
@@ -712,12 +689,7 @@ Grant this, O Lord. ****
 
 Priest:
 
-An Angel of peace, a faithful guide and guardian of our souls and bodies, let us ask of the Lord.
-Pardon and forgiveness of our sins and offences, let us ask of the Lord.
-Things good, and profitable for our souls, and peace for the world, let us ask of the Lord.
-That we may live out the rest of our days in peace and repentance, let us ask of the Lord.
-A Christian end to our life, painless, unashamed and peaceful, and a good defence before the dread judgement seat of Christ, let us ask.
-Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+An Angel of peace, a faithful guide and guardian of our souls and bodies, let us ask of the Lord. Pardon and forgiveness of our sins and offences, let us ask of the Lord. Things good, and profitable for our souls, and peace for the world, let us ask of the Lord. That we may live out the rest of our days in peace and repentance, let us ask of the Lord. A Christian end to our life, painless, unashamed and peaceful, and a good defence before the dread judgement seat of Christ, let us ask. Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 Reader:
 
@@ -755,9 +727,7 @@ Reader:
 
 Amen. ****
 
-After the Litany and the Prayer at the Bowing of heads,
-the Aposticha:
-Tone 6
+After the Litany and the Prayer at the Bowing of heads, the Aposticha: Tone 6
 
 Come, believers, let us work eagerly for the Master; for he gives his servants wealth. Let each of us, according to their measure, multiply the talent of grace; let one bring wisdom through good deeds; another perform the ministry of splendour; let a believer share the word with the uninitiated; and another distribute his wealth to the poor. So let us make the loan increase, and, as faithful stewards of grace, become worthy of the Master’s joy. Make us worthy of this joy, Christ our God, as you love humankind.
 
@@ -859,9 +829,6 @@ Then at once
 
 Come let us worship**, and the First Hour, during which we do not add a Kathisma of the Psalter, nor at the Ninth Hour.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

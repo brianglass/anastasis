@@ -22,8 +22,7 @@ My soul, what is here is temporary, what is there eternal; I see the court and t
 
 Glory. Both now.
 
-**Theotokion.
-Let us believers.**
+**Theotokion. Let us believers.**
 
 Root which budded with the divine flower, Ark and Lampstand and all-golden Jar, holy Table, which carries Christ the bread of life, with the holy Forerunner, implore him as your Son and God to take pity and to save those who confess you to be Mother of God.
 
@@ -155,8 +154,7 @@ Open to me now the gates of repentance, O Virgin gate of light, and lock up the 
 
 ****
 
-Of the Forerunner. Another Irmos.
-You fixed the earth.
+Of the Forerunner. Another Irmos. You fixed the earth.
 
 Wondrous Prophet, you are ever a fount of healings for those who approach your house with faith; heal the passions of my heart, I beg you, which have so wretchedly grown one with me through my indifference, all blessed one.
 
@@ -200,8 +198,7 @@ The all-pure Lady, the defence of those who sin, godlike righting of those who f
 
 ****
 
-Of the Forerunner. Another Irmos.
-Reflecting prophetically.
+Of the Forerunner. Another Irmos. Reflecting prophetically.
 
 Dwelling in the Palaces on high as a true soldier of Christ the King entreat him ceaselessly, O Baptist, to take pity on a people that honours you.
 
@@ -247,8 +244,7 @@ By an ineffable word, O Virgin Mother, you bore God who through your loving medi
 
 ****
 
-Of the Forerunner. Another Irmos.
-To you I rise at dawn.
+Of the Forerunner. Another Irmos. To you I rise at dawn.
 
 A barren womb gave you birth, O Forerunner, who summon barren hearts, making them bear fair children by your fertile words; and so we call you blessed.
 
@@ -290,8 +286,7 @@ Tabernacle of sanctification, graced by God, honoured Ark, lampstand of divine l
 
 ****
 
-Of the Forerunner. Another Irmos.
-Calm the raging sea.
+Of the Forerunner. Another Irmos. Calm the raging sea.
 
 Shining with ineffable radiance, Forerunner of Christ, by your active intercession enlighten the hearts of those who devoutly sing your praise.
 
@@ -335,8 +330,7 @@ You have been revealed to all, pure Virgin, as a haven of salvation, calming the
 
 ****
 
-Of the Forerunner. Another Irmos.
-The highly exalted.
+Of the Forerunner. Another Irmos. The highly exalted.
 
 With words we beseech you, Forerunner of the Word, as you unloosed your father’s voice when you were born, so the halters of our sins.
 
@@ -382,8 +376,7 @@ Boast of Angels, salvation of mortals, become my helper, Mother of God, that I m
 
 ****
 
-Of the Forerunner. Another Irmos.
-For you the Creator of all.
+Of the Forerunner. Another Irmos. For you the Creator of all.
 
 You wash a people in the streams of Jordan, as you proclaim repentance, mighty Forerunner; therefore I cry out to you: Dry up the streams of my passions, sending me wellsprings of tears.
 
@@ -431,8 +424,7 @@ A cloud formed of light going before a new people to the land of promise you hav
 
 ****
 
-Of the Forerunner. Another Irmos.
-O Isaias, dance.
+Of the Forerunner. Another Irmos. O Isaias, dance.
 
 See, the beauty of your house is known as heaven on earth, Forerunner of Christ; coming to it you shine with godlike rays on those who in it each day now call you blessed.
 
@@ -468,9 +460,6 @@ Glory. Both now.
 
 Hope of the hopeless, life of the despairing, assistance of those who have recourse to you, holy Lady, Virgin, Mother of God, send down to us your help.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -33,8 +33,7 @@ Sion, keep festival; Jerusalem, be glad; City of Christ God receive the Creator,
 
 ****
 
-At the Aposticha, Prosomia.
-Tone 2. O house of Ephratha.
+At the Aposticha, Prosomia. Tone 2. O house of Ephratha.
 
 The sayings of all the Prophets are fulfilled; for Christ is born in the city of Bethlehem from the pure Child of God.
 
@@ -124,8 +123,7 @@ Glory. Both now.
 
 **The same.**
 
-After the 2nd Reading, Kathisma.
-Tone 3. Awed by the beauty.
+After the 2nd Reading, Kathisma. Tone 3. Awed by the beauty.
 
 A marvellous wonder appears today! For our Saviour is now hastening to be brought to birth for us in the Cave in flesh from the Virgin. Magi will worship him with gifts as a king. Shepherds and Angels with glorify him, with them let us also cry: Glory to him who for us became man.
 
@@ -147,9 +145,7 @@ Prophetic writings are now proved; for see, Christ whom they foretold appears in
 
 ****
 
-Of the Saint.
-Ode 1. Tone 4.
-Theotokion.
+Of the Saint. Ode 1. Tone 4. Theotokion.
 
 The Virgin hastens to give birth in the Cave to the Fashioner of nature, who beyond nature bears flesh from her according to an ineffable hypostasis, that he may make humanity divine.
 
@@ -167,8 +163,7 @@ Mary, an unploughed land, carries a lifebearing ear to give birth in the city of
 
 ****
 
-Of the Saint
-Theotokion
+Of the Saint Theotokion
 
 Delivering mortals the Compassionate is brought to birth from the pure Virgin in Bethlehem, accepting swaddling clothes as an infant.
 
@@ -186,15 +181,13 @@ All you ends of the earth be filled with joy; for the Mother of God has to give 
 
 Glory.
 
-**Of the Saint. Tone 4.
-Lifted up on the Cross.**
+**Of the Saint. Tone 4. Lifted up on the Cross.**
 
 Adorned with divers virtues given by God, decked with the flowers of your honoured martyrdom, wholly fair and blameless you appeared, pure Saint. Therefore your Lord loved your beauty and has now brought you into a most shining bridal chamber, in which you dance, Juliana, with the Martyrs as you magnify Christ.
 
 Both now.
 
-**Forefeast.
-Tone 4. Come swiftly to help.**
+**Forefeast. Tone 4. Come swiftly to help.**
 
 Virgins take the lead at the joy of the Virgin; Mothers give praise to the procession of the Mother of Christ our God; Magi with Angels; the Shepherds with us; for she comes to the city of Bethlehem for the birth of a son, God before the ages, who saves the world from corruption.
 
@@ -212,8 +205,7 @@ Jesus is born in the flesh, and in time the Timeless appears as a babe, abolishi
 
 ****
 
-Of the Saint.
-Theotokion.
+Of the Saint. Theotokion.
 
 Seeing her virginity sealed after childbirth the Mother of God and moved by wonder she cried out: My Child, how is that I now wrap you in swaddling clothes, who wrap the sea in sand.
 
@@ -231,8 +223,7 @@ The blest root of Jesse has sprung up, blossoming the pure Virgin who bears a di
 
 ****
 
-Of the Saint.
-Theotokion.
+Of the Saint. Theotokion.
 
 A new wonder! The immaculate Virgin hastens to bear God made man in the Cave of Bethlehem.
 
@@ -250,8 +241,7 @@ The Star reveals to Magi the Sun of justice who is brought to birth ineffably; r
 
 ****
 
-Of the Saint.
-Theotokion.
+Of the Saint. Theotokion.
 
 The Creator who wrapped the sea in mist by his will is born from a Virgin Maiden, and like a babe accepts swaddling clothes as he redeems the world.
 
@@ -263,8 +253,7 @@ Irmos
 
 ****
 
-Kontakion of the Forefeast.
-Tone 2.
+Kontakion of the Forefeast. Tone 2.
 
 As we see him who holds the whole earth in his hand wrapped in swaddling clothes in Bethlehem, let us bring prefestal songs to the one who gave him birth; for as a mother she rejoices as she holds in her bosom the Son of God.
 
@@ -284,9 +273,7 @@ On the 21st of the same month, commemoration of the holy Martyr Juliana.
 
 Verses.
 
-The sword was Juliana’s shining fame,
-For it obtained for her a shining crown.
-Then on the twenty first day the fair Juliana they slaughtered.
+The sword was Juliana’s shining fame, For it obtained for her a shining crown. Then on the twenty first day the fair Juliana they slaughtered.
 
 On the same day, the 500 holy Martyrs, who in Nikomedia came to the faith through Juliana, attained perfection by the sword.
 
@@ -294,8 +281,7 @@ On the same day, the 500 holy Martyrs, who in Nikomedia came to the faith throug
 
 Verses.
 
-Five hundred Martyrs Nicomedes’ town
-Saw slain, but bearing off the victor’s crown.
+Five hundred Martyrs Nicomedes’ town Saw slain, but bearing off the victor’s crown.
 
 On the same day, one hundred and thirty holy women in Nicomedia attained perfection by the sword.
 
@@ -303,8 +289,7 @@ On the same day, one hundred and thirty holy women in Nicomedia attained perfect
 
 Verses.
 
-A triple decade with a fivefold score
-Of women Martyrs offered heads to sword.
+A triple decade with a fivefold score Of women Martyrs offered heads to sword.
 
 On the same day, commemoration of the holy Martyr Themistocles.
 
@@ -312,8 +297,7 @@ On the same day, commemoration of the holy Martyr Themistocles.
 
 Verses.
 
-The rasping of sharp nails of iron you bore,
-As though yourself of iron, Themistocles.
+The rasping of sharp nails of iron you bore, As though yourself of iron, Themistocles.
 
 At their holy intercessions, O God, have mercy and save us. Amen.
 
@@ -331,8 +315,7 @@ Human nature, barren of every virtue, rejoice and dance; for Christ has come to 
 
 ****
 
-Of the Saint.
-Theotokion.
+Of the Saint. Theotokion.
 
 Hail, Virgin Mother, place which contained the Uncontainable, for you are about to give birth for us in a Cave, O Immaculate, to him who sets right the creation of his own hands.
 
@@ -350,8 +333,7 @@ Palace of the King, filled with light, how have you entered a tiny Cave to bear 
 
 ****
 
-Of the Saint.
-Theotokion.
+Of the Saint. Theotokion.
 
 The Lord, mounted upon a cloud, is coming to be brought to birth for us through a cloud, the Virgin, that he may banish the dark clouds of sin from the souls of us who cry to him: All you works of the Lord, bless the Lord.
 
@@ -379,8 +361,7 @@ Like a great shower of rain the Master has come down into your womb, watered the
 
 ****
 
-Of the Saint.
-Theotokion.
+Of the Saint. Theotokion.
 
 Carrying him who carries all things you are coming to Bethlehem, O Virgin, to bear him and to lay as an infant in a manger him who above all works the restoration of mortals.
 
@@ -406,8 +387,7 @@ Bethlehem, land of Juda, make ready your entrances; for in you the Virgin and Mo
 
 ****
 
-At Lauds we insert 4 Stichera, and we sing Prosomia.
-Tone 6.
+At Lauds we insert 4 Stichera, and we sing Prosomia. Tone 6.
 
 The creative Wisdom now advances; the prophetic clouds part asunder; grace clears the sky; the truth has shone out; shadowy riddles cease; the gate of Eden has been opened; Adam dance; our God who fashioned us is himself willingly fashioned.
 
@@ -431,8 +411,7 @@ The oracles of the Seer Balaam are being fulfilled; for those who gaped at Persi
 
 ****
 
-At the Aposticha, Prosomia.
-Tone 2. O house of Ephratha.
+At the Aposticha, Prosomia. Tone 2. O house of Ephratha.
 
 The Star shines out already in the Cave; you Shepherds with Angels, you Magi with gifts, get ready to arrive.
 
@@ -462,9 +441,6 @@ Come, let us who are born of earth ceaselessly hymn with one voice the Virgin, M
 
 The rest of the Office of Matins as usual and Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 18 April 2008**

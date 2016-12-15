@@ -5,8 +5,7 @@
 AT MATINS
 =========
 
-**After the 1st reading of the Psalter, Kathismata of the Resurrection.
-Tone 3.**
+**After the 1st reading of the Psalter, Kathismata of the Resurrection. Tone 3.**
 
 Christ has risen from the dead, the first fruits of those that sleep. The First-born of creation and Creator of all that has come to be, has renewed in himself the corrupted nature of our race. Death, you are no longer lord, for the Master of all things has destroyed your might.
 
@@ -20,15 +19,13 @@ Having tasted death in the flesh, Lord, you have cut out the bitterness of death
 
 Glory. Both now.
 
-**Theotokion.
-Model melody. Awed by the beauty**
+**Theotokion. Model melody. Awed by the beauty**
 
 Awed by the beauty of your virginity and by the splendour of your purity, Gabriel cried aloud to you, O Mother of God, ‘How can I praise you as I should? With what name shall I invoke you? I am troubled and amazed; therefore as I was commanded I cry to you: Hail, full of grace!’
 
 ****
 
-After the 2nd reading of the Psalter, other Kathismata.
-Awed by the beauty.
+After the 2nd reading of the Psalter, other Kathismata. Awed by the beauty.
 
 Awed by your unchanging Godhead and your voluntary passion, Lord, Hell mourned, ‘I tremble at your body’s substance, which is not corrupted. I see you, the invisible, mystically making war on me; and so those whom I hold cry out, Glory, O Christ, to your Resurrection!’
 
@@ -98,14 +95,13 @@ Tell it among the nations; the Lord is King. \* For he has established the whole
 
 Verse:
 
-** Sing to the Lord a new song. Sing to the Lord all the earth.
+Sing to the Lord a new song. Sing to the Lord all the earth.
 
 Let everything that has breath,
 
 **the Dawn Gospel***,* Having seen the Resurrection **and the rest***.* ****
 
-Canon of the Resurrection.
-Ode 1. Tone 3. Irmos.
+Canon of the Resurrection. Ode 1. Tone 3. Irmos.
 
 He who of old assembled the waters into one gathering by his divine decree, and divided the sea for the people of Israel. He is our God and he is glorified. To him alone let us sing, for he has been glorified.
 
@@ -125,8 +121,7 @@ All the nations glorify you as true Mother of God, who gave birth without seed; 
 
 ****
 
-Another Canon of the Cross and Resurrection,
-whose acrostic, with the Irmi, is:
+Another Canon of the Cross and Resurrection, whose acrostic, with the Irmi, is:
 
 I sing you a third song, Word of God. ****
 
@@ -138,8 +133,7 @@ Christ, the guardian of life, as a mortal willingly tasted death; while being by
 
 ****
 
-Another Canon, to the Mother of God,
-whose acrostic, with the Irmi is:
+Another Canon, to the Mother of God, whose acrostic, with the Irmi is:
 
 I sing you a third song, Mother of God. ****
 
@@ -171,8 +165,7 @@ Glorious things are spoken of you, living city of him who is king for ever; for 
 
 ****
 
-Another, of the Cross and Resurrection.
-You smashed the bow of enemies.
+Another, of the Cross and Resurrection. You smashed the bow of enemies.
 
 Immaculate Cross, you were revealed to be cleansing from the offscourings of idols, for Jesus, supremely divine, stretched out his hands upon you.
 
@@ -208,8 +201,7 @@ Remember, O Christ, the flock which you have gained by your Passion. Accepting t
 
 ****
 
-Another, of the Cross and Resurrection.
-The strange and ineffable mystery.
+Another, of the Cross and Resurrection. The strange and ineffable mystery.
 
 O Lover of mankind, who fashioned mankind according to your image, and when it was slain by sin through transgression, you saved it by being crucified on Calvary.
 
@@ -247,8 +239,7 @@ Holy Tabernacle, and wider then the Heavens, for you received the Word of God, w
 
 ****
 
-Another, of the Cross and Resurrection.
-The invisible was seen on earth.
+Another, of the Cross and Resurrection. The invisible was seen on earth.
 
 O Christ, when your side was pierced by the lance, you freed from the curse her who was created from a human side and became the agent of destruction for all mortals.
 
@@ -284,8 +275,7 @@ O All-pure, the only mediatrix beyond understanding between the Fashioner and hu
 
 ****
 
-Another, of the Cross and Resurrection.
-Jonas became a symbol.
+Another, of the Cross and Resurrection. Jonas became a symbol.
 
 Tried by stripes, by the Passion of the Cross you raised with you those who lay slain in Hell; therefore I cry to you, ‘Bring my life up from corruption, O Lover of mankind.’
 
@@ -333,8 +323,7 @@ Let us believers glorify the good Spirit with the Father and the only-begotten S
 
 ****
 
-Another of the Cross and Resurrection.
-Haughty was the tyrant.
+Another of the Cross and Resurrection. Haughty was the tyrant.
 
 The sun is not being darkened for a mere man hanging on a Cross, but at seeing God incarnate, to whom we also sing, ‘Blessed are you, O Lord, the God of our fathers!’
 
@@ -370,8 +359,7 @@ You have been declared Temple of God, spiritual place and Ark; for you reconcile
 
 ****
 
-Another of the Cross and Resurrection.
-A flame of material fire.
+Another of the Cross and Resurrection. A flame of material fire.
 
 The Word was not subject to suffering, for by his Godhead he cannot suffer; but God suffered in the flesh, to whom also we sing, ‘All you works of the Lord bless the Lord, and highly exalt him to all the ages.’
 
@@ -413,8 +401,7 @@ You were revealed, All-pure, as Temple and throne of God, in which he who lives 
 
 ****
 
-Another. Of the Cross and Resurrection.
-We who are wounded by the sweet dart.
+Another. Of the Cross and Resurrection. We who are wounded by the sweet dart.
 
 You have became a source of glory for mortals by a dishonourable death, which you tasted, Christ Saviour, through crucifixion in your mortal nature, and you granted me incorruption, for you love mankind.
 
@@ -458,9 +445,6 @@ Glory,
 
 **the Sunday Eothinon.** Both now, You are most blessed. **Then the Great Doxology and after it the Troparion***,* Today salvation has come to the world.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

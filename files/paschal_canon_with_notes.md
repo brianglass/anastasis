@@ -14,11 +14,6 @@ The following version of the Paschal Canon by St John of Damascus is an attempt 
 
 The page is printed in Adobe PDF format, for which Acrobat Reader is necessary. Acrobat Reader can be freely downloaded by clicking on the link below:
 
-<img src="pascha1.gif" width="88" height="31" />
-
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

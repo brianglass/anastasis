@@ -28,8 +28,7 @@ As the Virgin your Mother saw you hanged upon a cross, O Lord, she was dismayed 
 AT MATINS
 =========
 
-**The Canon, whose acrostic is:
-**Let Christ, glory of the martyrs be acclaimed.
+**The Canon, whose acrostic is:** Let Christ, glory of the martyrs be acclaimed.
 
 ****
 
@@ -41,7 +40,7 @@ Ode 1. Tone 2. Irmos. Come, you peoples*.*
 
 Troparia.
 
-Come believers, let us all clap our hands and celebrate with songs inspired the Martyrs’ contests, as we glorify Christ, **** for he has been glorified.
+Come believers, let us all clap our hands and celebrate with songs inspired the Martyrs’ contests, as we glorify Christ, for he has been glorified.
 
 The Saviour’s trophy, the invincible panoply of the Cross, has been revealed to us as a divine weapon and a source of pride, through which the victors have been crowned.
 
@@ -255,9 +254,6 @@ The Word of God from God, who came by ineffable wisdom to renew Adam, by eating 
 
 At the Liturgy look, if you wish, at the texts for October 26th.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

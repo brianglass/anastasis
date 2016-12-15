@@ -6,9 +6,7 @@
 
 > > Your Resurrection, Christ Saviour, Angels sing in heaven; grant that we too, who are on earth, may with pure hearts give glory to you.
 
- 
-
-****
+  ****
 
 Only the Lamplighter remains in the Church; he lights all the candles and all the lamps and, making a fire, he puts incense on it and places it in the middle of the Church. In the Narthex before the Royal Doors, which are shut, a stand has been prepared on which the Priest places the sacred Gospel
 
@@ -18,9 +16,7 @@ After this he takes the censer and while censing intones:
 
 > Glory to the holy, consubstantial, life-giving and undivided Trinity, always, now and for ever, and to the ages of ages.
 
- 
-
-****
+  ****
 
 And when we have answered:
 
@@ -28,13 +24,9 @@ Amen**, the Priest begins the following in a loud voice:**
 
 Troparion. Tone 5.
 
-> Christ has risen from the dead,
-> by death he has trampled on death,
-> and to those in the graves given life.
+> Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life.
 
- 
-
-****
+  ****
 
 This is sung by the Priest three times and then three times by the Singers, without verses. The Priest, or the Deacon, then says the following verses, between which the Singers sing the same Troparion
 
@@ -82,8 +74,7 @@ After this he takes the Holy Gospel in his hands, the remaining priests followin
 
 Christ has risen..**. to a slow melody. Then the Great Litany and the ekphonesis. The Superior, with the right-hand Choir, starts the Canon. The Irmi are sung twice and the Troparia to 12** \[**in practice usually less**\]**, and at the end the Irmos as Katavasia by both Choirs. Then** Christ has risen… **(x3) and** Jesus having risen… **After each Ode the Small Litany by the Priest in the Altar. The Priest censes as usual at the start of the Canon.**
 
-The Canon, a composition by John of Damascus.
-Ode 1. 1st Tone. Irmos.
+The Canon, a composition by John of Damascus. Ode 1. 1st Tone. Irmos.
 
 The day of Resurrection, let us be radiant, O peoples! Pascha, the Lord’s Pascha; for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song.
 
@@ -115,7 +106,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 Then the Small Litany.
 
-Conclusion: **
+Conclusion:
 
 For yours is the might, and yours is the Kingdom of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
@@ -187,7 +178,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 Then the Little Litany.
 
-Conclusion: **
+Conclusion:
 
 For you, O God, are good and love humankind… ****
 
@@ -253,7 +244,7 @@ Then the Little Litany.
 
 Conclusion:
 
-** For you are the King of peace and the Saviour of our souls, and to you we give glory… ****
+For you are the King of peace and the Saviour of our souls, and to you we give glory… ****
 
 Kontakion. Tone 8.
 
@@ -275,8 +266,7 @@ On the holy and great Sunday of Pascha we celebrate the life-bearing Resurrectio
 
 Verses.
 
-Christ going down met Hell in single fight,
-Laden with spoils of victory he came up.
+Christ going down met Hell in single fight, Laden with spoils of victory he came up.
 
 To him be the glory and the might to the ages of ages. Amen.
 
@@ -302,8 +292,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 **(x3)**
 
-And the remaining Odes of the Canon.
-Ode 7. Irmos.
+And the remaining Odes of the Canon. Ode 7. Irmos.
 
 He who delivered the Young Men from the furnace, becoming man suffers as a mortal, and through suffering he clothes the mortal with the glory of incorruption: the only blessed and most glorious God of our fathers.
 
@@ -357,7 +346,7 @@ Katavasia.
 
 This chosen and holy day is the first of Sabbaths, the Queen and Lady, the Feast of Feasts and the Festival of Festivals on which we bless Christ to all the ages.
 
-Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life. **
+Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life.
 
 **(x3)**
 
@@ -367,7 +356,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 Then the Little Litany.
 
-Conclusion: **
+Conclusion:
 
 For blessed is your Name and glorified your Kingdom, of the Father… ****
 
@@ -399,7 +388,7 @@ O divine! O beloved! O sweetest voice! You have truly promised that you will be 
 
 O divine! O beloved! O sweetest voice! You have truly promised that you will be with us unto the end of time, O Christ. And we the faithful rejoice, having this as an anchor of hope.
 
-**Megalynarion:** ** You awoke and wakened the dead from every age, as the Lion of Juda, roaring like a king.
+**Megalynarion:** You awoke and wakened the dead from every age, as the Lion of Juda, roaring like a king.
 
 O great and most sacred Pascha, Christ! O Wisdom and Word and Power of God! Grant that we may partake of you fully in the day that has no evening of your Kingdom.
 
@@ -435,7 +424,7 @@ Katavasia.
 
 Shine, shine, O New Jerusalem, for the glory of the Lord has risen upon you. Dance now and be glad, O Sion, and you too rejoice, pure Mother of God, at the arising of him to whom you gave birth.
 
-Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life. **** (x3)**
+Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life. **(x3)**
 
 Jesus, having risen from the tomb as he foretold, has given us eternal life and great mercy.
 
@@ -443,7 +432,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 Then the Little Litany.
 
-**Conclusion:** ** For all the powers of heaven praise you, and to you we give glory…
+**Conclusion:** For all the powers of heaven praise you, and to you we give glory…
 
 ****
 
@@ -559,11 +548,11 @@ Glory. Both now.
 
 The day of Resurrection; let us be radiant for the festival, and let us embrace one another. Let us say, brethren, even to those that hate us, ‘Let us forgive all things on the Resurrection’, and so let us cry, ‘Christ has risen from the dead: by death he has trampled on death, and to those in the graves given life’.
 
-******
+****
 
 Then:
 
-Christ has risen from the dead, by death he has trampled on death: and to those in the graves given life. **
+Christ has risen from the dead, by death he has trampled on death: and to those in the graves given life.
 
 **(x3)**
 
@@ -655,8 +644,7 @@ Christ has risen from the dead, by death he has trampled on death, and to those 
 
 Then
 
-*
-*Having seen the Resurrection of Christ, let us worship the Holy Lord Jesus, the only sinless one. We worship your Cross, O Christ, and we hymn and glorify your holy Resurrection. For you are our God, we know no other but you, we name you by name. Come all the faithful, let us worship the holy Resurrection of Christ; for behold through the Cross, joy has come in all the world. Ever blessing the Lord, we hymn his Resurrection. For having endured the Cross for us, he has destroyed death by death. **(x3)**
+Having seen the Resurrection of Christ, let us worship the Holy Lord Jesus, the only sinless one. We worship your Cross, O Christ, and we hymn and glorify your holy Resurrection. For you are our God, we know no other but you, we name you by name. Come all the faithful, let us worship the holy Resurrection of Christ; for behold through the Cross, joy has come in all the world. Ever blessing the Lord, we hymn his Resurrection. For having endured the Cross for us, he has destroyed death by death. **(x3)**
 
 When those who were with Mary came, anticipating the dawn, and found the stone rolled away from the sepulchre, they heard from the Angel, ‘Why do you seek among the dead, as though he were mortal, the One who exists in everlasting light. See the grave clothes. Run and proclaim to the world that the Lord has been raised, and has put death to death; for he is the Son of God, who saves the human race.
 
@@ -678,7 +666,7 @@ Rejoice, divine and hallowed dwelling of the Most High, for through you, Mother 
 
 Then
 
-Lord, have mercy **** (x40)**. Glory, Both now.
+Lord, have mercy **(x40)**. Glory, Both now.
 
 Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim. Without corruption you gave birth to God the Word; truly the Mother of God, we magnify you.
 
@@ -692,7 +680,7 @@ This office is repeated three times for each Hour, and at Compline and the Midni
 
 At Compline after
 
-** Through the prayers ** **we add the following**
+Through the prayers **we add the following**
 
 Prayer of Saint Basil the Great
 
@@ -714,9 +702,7 @@ Amen**, he sings the following in a loud voice:**
 
 Troparion. Tone 5.
 
-> Christ has risen from the dead,
-> by death he has trampled on death,
-> and to those in the graves given life.
+> Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life.
 
 ****
 
@@ -728,9 +714,7 @@ Let God arise, and his enemies be scattered, and let those that hate him flee be
 
 Singers, after each verse:
 
-> Christ has risen from the dead,
-> by death he has trampled on death,
-> and to those in the graves given life.
+> Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life.
 
 **Priest:** As smoke vanishes, so let them vanish, as wax melts at the presence of fire.
 
@@ -764,7 +748,7 @@ At the prayers of the Mother of God, O Saviour, save us.
 
 Verse:
 
-** Sing to the honour of his name. Give glory to his praise.
+Sing to the honour of his name. Give glory to his praise.
 
 At the prayers of the Mother of God, O Saviour, save us.
 
@@ -772,7 +756,7 @@ At the prayers of the Mother of God, O Saviour, save us.
 
 Verse:
 
-** Say to God, ‘How fearful are your works! Because of your great might your enemies shall cower before you.’
+Say to God, ‘How fearful are your works! Because of your great might your enemies shall cower before you.’
 
 At the prayers of the Mother of God, O Saviour, save us.
 
@@ -798,19 +782,19 @@ Second Antiphon
 
 Verse:
 
-** Let God be gracious to us and bless us, and make his face to upon us and have mercy on us.
+Let God be gracious to us and bless us, and make his face to upon us and have mercy on us.
 
 Son of God, risen from the dead, save us who sing to you: Alleluia.
 
-**Verse:** ** That your ways may be known on earth, your saving power among all nations.
+**Verse:** That your ways may be known on earth, your saving power among all nations.
 
 Son of God, risen from the dead, save us who sing to you: Alleluia.
 
-**Verse:** ** Let all the peoples praise you, O God, let all the peoples praise you.
+**Verse:** Let all the peoples praise you, O God, let all the peoples praise you.
 
 Son of God, risen from the dead, save us who sing to you: Alleluia.
 
-**Verse:** ** May God bless us, and all the ends of the earth fear him.
+**Verse:** May God bless us, and all the ends of the earth fear him.
 
 Son of God, risen from the dead, save us who sing to you: Alleluia.
 
@@ -824,19 +808,19 @@ Small Litany, then:
 
 Third Antiphon
 
-**Verse:** ** Let God arise, and his enemies be scattered: and let those that hate him flee before his face.
+**Verse:** Let God arise, and his enemies be scattered: and let those that hate him flee before his face.
 
 Christ has risen…
 
-**Verse:** ** As smoke is dispersed, so let them be dispersed: as wax melts before the fire.
+**Verse:** As smoke is dispersed, so let them be dispersed: as wax melts before the fire.
 
 Christ has risen…
 
-**Verse:** ** So shall the wicked perish at the presence of God: and let the righteous be glad.
+**Verse:** So shall the wicked perish at the presence of God: and let the righteous be glad.
 
 Christ has risen…
 
-**Verse:** ** This is the day which the Lord has made: let us rejoice and be glad in it.
+**Verse:** This is the day which the Lord has made: let us rejoice and be glad in it.
 
 ****
 
@@ -852,9 +836,7 @@ Bless God in the Churches; the Lord from the fountains of Israel. Son of God, ri
 
 Apolytikion. Tone 5. (Three times)
 
-> Christ has risen from the dead,
-> by death he has trampled on death,
-> and to those in the graves given life.
+> Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life.
 
 ****
 
@@ -896,19 +878,17 @@ Verse:
 
 : : Give thanks to the Lord, for he is good; for his mercy endures for ever.
 
-The reading is from the Acts of the Apostles.
-\[**1:1-8\]**
+The reading is from the Acts of the Apostles. \[**1:1-8\]**
 
 In the first book, Theophilos, I dealt with all that Jesus began to do and teach, until the day when he was taken up, after he had given commandment through the Holy Spirit to the apostles whom he had chosen. To them he presented himself alive after his passion by many proofs, appearing to them during forty days, and speaking of the kingdom of God. And while staying with them he charged them not to depart from Jerusalem, but to wait for the promise of the Father, which, he said, ‘you heard from me, for John baptised with water, but before many days you shall be baptised with the Holy Spirit.’ So when they had come together, they asked him, ‘Lord, will you at this time restore the kingdom to Israel?’ He said to them, ‘It is not for you to know times or seasons which the Father has fixed by his own authority. But you shall receive power when the Holy Spirit has come upon you; and you shall be my witnesses in Jerusalem and in all Judea and Samaria and to the end of the earth.’
 
 Alleluia. Tone 8.
 
-**Verse:** ** You will arise, Lord, and take pity on Sion.
+**Verse:** You will arise, Lord, and take pity on Sion.
 
-**Verse:** ** The Lord has looked from heaven upon the earth.
+**Verse:** The Lord has looked from heaven upon the earth.
 
-The Reading is from the Holy Gospel according to John.
-\[**1:1-17\]**
+The Reading is from the Holy Gospel according to John. \[**1:1-17\]**
 
 In the beginning was the Word, and the Word was with God, and the Word was God. He was in the beginning with God; all things were made through him, and without him nothing that was made, was made. In him was life, and the life was the light of men. The light shines in the darkness, and the darkness did not master it. There was a man sent from God, whose name was John. He came as a witness, to bear witness to the light, that all might believe through him. He was not the light, but came to bear witness to the light. The true light that enlightens every man was coming into the world. He was in the world, and the world came into being through him, and the world did not know him. He came to his what was his own, and his own people did not accept him. But to all who accepted him, he gave power to become children of God, those who believed in his name, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. And the Word became flesh and dwelt among us; and we have seen his glory, the glory as of the Father’s only Son, full of grace and truth. (John bore witness to him, and cried, ‘This was he of whom I said, He who comes after me ranks before me, for he was before me.’) And from his fullness have we all received, grace upon grace. For the law was given through Moses; grace and truth came through Jesus Christ.
 
@@ -916,7 +896,7 @@ In the beginning was the Word, and the Word was with God, and the Word was God. 
 
 Then the rest of the Liturgy of St John Chrysostom as usual. There is no Litany for the Catechumens.
 
-At **
+At
 
 Especially**, instead of** It is truly right **we sing:**
 
@@ -954,7 +934,7 @@ Christ has risen from the dead, by death he has trampled on death ****
 
 Singers:
 
-** and to those in the graves given life. ****
+and to those in the graves given life. ****
 
 And the Dismissal, as at Matins.
 
@@ -1004,9 +984,7 @@ Christ has risen**… exactly as at the beginning of Matins, as follows:**
 
 Troparion. Tone 5.
 
-Christ has risen from the dead,
-by death he has trampled on death,
-and to those in the graves given life.
+Christ has risen from the dead, by death he has trampled on death, and to those in the graves given life.
 
 ****
 
@@ -1112,37 +1090,37 @@ I have remembered the works of the Lord. ****
 
 Then the Gospel, in many languages, in three sections, followed by the rest of Vespers.
 
-Priest: **
+Priest:
 
 And that he would count us worthy to listen to the Holy Gospel let us pray to the Lord God. ****
 
 Reader:
 
-** Lord, have mercy (**three times**). ****
+Lord, have mercy (**three times**). ****
 
 Priest:
 
 Wisdom. Stand upright. Let us listen to the Holy Gospel. Peace to all. ****
 
-Reader: **
+Reader:
 
 And to your spirit. ****
 
 Pries
 
-**t:** ** The reading is from the Holy Gospel according to John.
+**t:** The reading is from the Holy Gospel according to John.
 
 \[
 
 **20:19-25**\] ****
 
-Reader: **
+Reader:
 
 Glory to you, Lord. Glory to you. ****
 
 Priest:
 
-** Let us attend.
+Let us attend.
 
 On the evening of that day, the first day of the week, the doors being shut where the disciples were, for fear of the Jews, Jesus came and stood among them and said to them, ‘Peace be with you.’ When he had said this, he showed them his hands and his side. Then the disciples were glad when they saw the Lord.
 
@@ -1162,8 +1140,7 @@ Your Resurrection, O Christ Saviour, has enlightened the whole inhabited world; 
 
 ****
 
-Then the Paschal Stichera with their verses.
-Tone 5.
+Then the Paschal Stichera with their verses. Tone 5.
 
 Let God arise, and his enemies be scattered: and let those that hate him flee before his face.
 
@@ -1181,8 +1158,7 @@ This is the day that the Lord has made; let us rejoice and be glad in it.
 
 A Pascha of delight, Pascha, the Lord’s Pascha, an all-venerable Pascha has dawned for us, Pascha. Let us embrace one another with joy. O Pascha, ransom from sorrow! Today Christ shone forth from a tomb as from a bridal chamber, and filled the women with joy, saying, ‘Proclaim it to the Apostles’.
 
-Glory to the Father and to the Son and to the Holy Spirit.
-Both now and ever and to the ages of ages. Amen.
+Glory to the Father and to the Son and to the Holy Spirit. Both now and ever and to the ages of ages. Amen.
 
 ****
 
@@ -1194,7 +1170,7 @@ The day of Resurrection; let us be radiant for the festival, and let us embrace 
 
 Then:
 
-Christ has risen from the dead, by death he has trampled on death: and to those in the graves given life. **
+Christ has risen from the dead, by death he has trampled on death: and to those in the graves given life.
 
 **(x3)**
 
@@ -1208,9 +1184,6 @@ Bless. ****
 
 And the rest, exactly as at Matins.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -18,7 +18,7 @@ Visit my humble soul, Lord, that has squandered its whole life in sins; receive 
 
 Verse:
 
-** O Lord, do not rebuke me your anger; nor chastise me in your rage.
+O Lord, do not rebuke me your anger; nor chastise me in your rage.
 
 As I sail the sea of this present life I think on the abyss of my many evils, and as I have no thought as helmsman, I cry to you in Peter’s words. Save me, Christ God, save me as You love mankind!
 
@@ -38,7 +38,7 @@ When I consider the sea of my many offences, I do not dare to raise my eyes and 
 
 Verse:
 
-** O Lord, do not rebuke me your anger; nor chastise me in your rage.
+O Lord, do not rebuke me your anger; nor chastise me in your rage.
 
 The mind of my wretched soul, darkened by the fog of the passions and the pleasures of life does not come towards thought of compunction; but have pity, O Saviour, and give even me, coward that I am, a thought of compunction, that before the end I too may cry out to your compassion, O Lord: Christ my Saviour, in my despair save me, the unworthy.
 
@@ -58,7 +58,7 @@ The desert-loving dove, the holy Baptist, preaching repentance and revealing Chr
 
 Verse:
 
-** God is wonderful in his Saints, the God of Israel. ****
+God is wonderful in his Saints, the God of Israel. ****
 
 Of the Martyrs. Same melody.
 
@@ -485,9 +485,6 @@ Both now.
 
 You received in your womb the One who with the Father is without beginning and equal in majesty with the holy Spirit and you bore him beyond understanding and reason when he became man for the welfare of mankind, Mary Bride of God, spacious place of our God. Beg him insistently that your servants may be saved.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

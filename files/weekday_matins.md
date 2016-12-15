@@ -9,16 +9,11 @@ The text is in PDF format, for which Adobe Acrobat Reader is required. This may 
 
 <span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; Translating
 Liturgy&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
-&lt;p&gt;&lt;font size="> </span>
-
- [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
+&lt;p&gt;&lt;font size=">   </span>
 
 [Weekday Matins](Matheb.pdf)
 ----------------------------
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

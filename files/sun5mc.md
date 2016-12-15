@@ -4,8 +4,7 @@ AT MATINS
 
 ****
 
-After the 1st Psalter Reading, Resurrection Kathismata.
-Tone 5. The Word without beginning.
+After the 1st Psalter Reading, Resurrection Kathismata. Tone 5. The Word without beginning.
 
 Let us celebrate the Cross of the Lord, let us honour in hymns his holy Burial and highly glorify his Resurrection; for with himself he raised the dead from the graves, as God having despoiled the might of death and the devil’s strength, and he made light dawn for those in Hell.
 
@@ -498,42 +497,38 @@ Glory.
 AT THE LITURGY
 --------------
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">The Typika and the Beatitudes.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">The Typika and the Beatitudes. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**8.** ** The Thief on the cross, believing you to be God, O Christ, confessed you sincerely from his heart, crying, ‘Remember me, Lord, in your kingdom!’</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**8.** The Thief on the cross, believing you to be God, O Christ, confessed you sincerely from his heart, crying, ‘Remember me, Lord, in your kingdom!’ </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**7.** ** Let us in harmony praise as Saviour and Master him who flowered with life for our race on the tree of the Cross, and withered up the curse that came from the tree.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**7.** Let us in harmony praise as Saviour and Master him who flowered with life for our race on the tree of the Cross, and withered up the curse that came from the tree. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**6.** ** By your death, O Christ, you destroyed the power of death, and raised up those who were dead from every age, who praise you as the true God and our Saviour.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**6.** By your death, O Christ, you destroyed the power of death, and raised up those who were dead from every age, who praise you as the true God and our Saviour. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**5. ** The holy women, as they came to your grave, were seeking to anoint you, the Giver of life, and an Angel appeared to them crying, ‘The Lord has risen!’**</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**5. The holy women, as they came to your grave, were seeking to anoint you, the Giver of life, and an Angel appeared to them crying, ‘The Lord has risen!’** </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**4. ** When you were crucified, O Christ, between two condemned thieves, the one blaspheming you was justly condemned, but the other, confessing you, dwelt in Paradise.**</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**4. When you were crucified, O Christ, between two condemned thieves, the one blaspheming you was justly condemned, but the other, confessing you, dwelt in Paradise.** </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**3.** ** The holy women as they came to the choir of Apostles cried out, ‘Christ has risen! Let us worship him as Master and Creator’.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**3.** The holy women as they came to the choir of Apostles cried out, ‘Christ has risen! Let us worship him as Master and Creator’. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Glory.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Glory. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**2.** ** O Trinity, undivided Unity, creator of all and all-powerful, Father, Son and Holy Spirit, we hymn you as the true God and our Saviour.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**2.** O Trinity, undivided Unity, creator of all and all-powerful, Father, Son and Holy Spirit, we hymn you as the true God and our Saviour. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Both now. <span style="color: red; mso-bidi-font-style: italic; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Theotokion.</span>**</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Both now. <span style="color: red; mso-bidi-font-style: italic; mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Theotokion.</span> </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**1.** ** Hail, living Temple of God, Gate through which none may pass! Hail, Throne unburned and formed of fire! Hail Mother of Emmanuel, Christ our God!</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">**1.** Hail, living Temple of God, Gate through which none may pass! Hail, Throne unburned and formed of fire! Hail Mother of Emmanuel, Christ our God! </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">Resurrection Apolytikion.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">Resurrection Apolytikion. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Let us believers praise and worship the Word, who like the Father and the Spirit is without beginning, born from a Virgin for our salvation; for he was well-pleased to ascend the Cross in the flesh, to undergo death, and to raise those who had died in his glorious Resurrection.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">Let us believers praise and worship the Word, who like the Father and the Spirit is without beginning, born from a Virgin for our salvation; for he was well-pleased to ascend the Cross in the flesh, to undergo death, and to raise those who had died in his glorious Resurrection. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">Resurrection Kontakion.</span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; color: red; mso-bidi-font-weight: bold; mso-bidi-font-style: italic">Resurrection Kontakion. </span>
 
-<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">You descended into Hell, my Saviour, and having smashed the gates as all-powerful, as Creator you raised the dead with you and smashed the sting of death, O Christ, and as Lover of mankind delivered Adam from the curse. Therefore we all cry to you, ‘Save us, O Lord!’</span><span style="font-size:13.0pt;
-mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;;mso-bidi-font-weight:bold"></span>
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; mso-bidi-font-weight: bold">You descended into Hell, my Saviour, and having smashed the gates as all-powerful, as Creator you raised the dead with you and smashed the sting of death, O Christ, and as Lover of mankind delivered Adam from the curse. Therefore we all cry to you, ‘Save us, O Lord!’</span>
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

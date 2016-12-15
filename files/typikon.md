@@ -2,10 +2,8 @@
 
  
 
-REGULATION
-FOR THE SERVICE OF THE
-DEDICATION OF A CHURCH
-======================
+REGULATION FOR THE SERVICE OF THE DEDICATION OF A CHURCH
+========================================================
 
 ****
 
@@ -103,8 +101,6 @@ They are the following:
 
 The Bishop must have all the different things, as listed above, that are required for the consecration and dedication prepared in advance. The **evening before** he goes with the clergy to the new church and, before Vespers, he makes ready the holy Relics, in three portions, on the holy Table. When they have been placed on a Paten and covered with a Star and a Veil, he intones, ‘Blessed is our God…’. This is followed by the Trisagion Prayers and the following Troparia are chanted, ‘Your Martyrs, O Lord’, ‘Champions of the Lord’, ‘Let us all implore Christ’s Martyrs’ and the Troparion of the day. Then ‘As first fruits of nature’, Glory…, ‘Godlike choir of Martyrs’, Both now…, ‘Mother of God, you are the true vine, …together with the Champions’ and the Dismissal. If there is another consecrated Church nearby, the Bishop transfers the Relics to it before Vespers and places them on the holy Table, where a candle burns through the whole night. Vespers and the All-night Vigil are chanted in the Church that has received the Relics of the saints. If, however, there is no nearby consecrated Church, the whole Office takes place in the new Church, in accordance with the prescribed order.
 
-****
-
 In the morning Matins is chanted according to the Typikon of the day (see the details above §1– 6). After, ‘Let everything that has breath’ and ‘Praise the Lord’, the Bishop comes down from his stall into the middle of the church and, having knelt down facing East, he reads the two preparatory prayers of the Dedication by the most holy Patriarch Kallistos. He then rises and venerates the holy Icons and prepares as usual for the Liturgy while ‘Our Master and High Priest’ is chanted, followed by the Stichera of Lauds, the Doxastikon, the Doxology, the Apolytikion of Matins and the Dismissal.
 
 Then the materials of wax-mastic are poured into a vessel which is then placed on the fire. When they have melted the vessel is kept close to the fire so that what it contains does not get cold. Likewise other vessels are filled with water and put on the fire, so that they are heated for the washing of the holy Table. Papers are then tied round the lips of the Column, so that they extend about an inch above the lip. The ring of papers is filled inside with crushed marble, so that the wax-mastic does not run.
@@ -155,9 +151,6 @@ The Deacon says the Small Litany and the Bishop the Ekphonesis, ‘For to you be
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

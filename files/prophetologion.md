@@ -1,10 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](lectionary.md) \] \[ [Apostle](apostle1.md) \] \[ [Gospel](gospel.md) \] \[ Prophetologion \]
 
-[Readings September to November](readings_september_to_november.md)
-[Readings December](readings_december.md)
-[Readings for January](readings_for_january.md)
-[Readings February to April](Readings%20February%20to%20April.md)
-[Readings May to August](readings_may_to_august.md)
+[Readings September to November](readings_september_to_november.md) [Readings December](readings_december.md) [Readings for January](readings_for_january.md) [Readings February to April](Readings%20February%20to%20April.md) [Readings May to August](readings_may_to_august.md)
 
 **PROPHETOLOGION**
 
@@ -17,7 +13,7 @@ readings for vespers
 
 Introduction
 
-This draft translation of the Readings for Vespers follows the Calendar published by the Orthodox Fellowship of St John the Baptist in Great Britain. It therefore includes readings found in a number of different lectionaries, both Greek and Russian. In a few instances readings have been included which are not given in the Fellowship’s Calendar. These include those for the feast of Saints Athanasios and Cyril of Alexandria \[18 January\], which are given in the Greek *Menaion*, and those for the more recent offices by the late Fr Gerasimos for the Environment \[1 September\] **** and the Protecting Veil of the Mother of God \[1/28 October\]. It is worth remarking that the official Calendar of the Church of Cyprus for 2001 specifically orders the latter feast to be celebrated on 1 October, and not on the 28th. The readings for the feast of St John of Kronstadt pose a problem. They include none of the traditional readings for the feasts of holy persons, not do they appear to have any particular relevance to the Saint. The first two seem rather to be a political reading of two passages from the Prophet Joel in the light of the Russian revolution of 1917.
+This draft translation of the Readings for Vespers follows the Calendar published by the Orthodox Fellowship of St John the Baptist in Great Britain. It therefore includes readings found in a number of different lectionaries, both Greek and Russian. In a few instances readings have been included which are not given in the Fellowship’s Calendar. These include those for the feast of Saints Athanasios and Cyril of Alexandria \[18 January\], which are given in the Greek *Menaion*, and those for the more recent offices by the late Fr Gerasimos for the Environment \[1 September\] and the Protecting Veil of the Mother of God \[1/28 October\]. It is worth remarking that the official Calendar of the Church of Cyprus for 2001 specifically orders the latter feast to be celebrated on 1 October, and not on the 28th. The readings for the feast of St John of Kronstadt pose a problem. They include none of the traditional readings for the feasts of holy persons, not do they appear to have any particular relevance to the Saint. The first two seem rather to be a political reading of two passages from the Prophet Joel in the light of the Russian revolution of 1917.
 
 The Orthodox Church has always used the Greek Bible of Alexandria as its text of the Old Testament and therefore the text on which the translation is based is that of the Greek Septuagint \[<span style="FONT-VARIANT: small-caps">lxx</span>\], as it is found in the Greek *Menaia.* This qualification is important, since the lectionary text often differs quite sharply from that of the critical editions of the <span style="FONT-VARIANT: small-caps">lxx </span>and even more sharply from that found in the bilingual edition published by Samuel Bagster and frequently reprinted. This is not the place to discuss in detail the relationship between the standard Hebrew, or Masoretic \[<span style="FONT-VARIANT: small-caps">mt</span>\], and the Greek texts of the Old Testament, but is worth noting that the Greek text represents a very ancient version of the Hebrew which predates the Masoretic text by several centuries. In places where the Greek and Hebrew differ, it cannot automatically be assumed that the Hebrew has the better reading. Moreover, the text is a living text and reflects the living tradition of both Jews and Christians. As well as the standard critical editions of the Greek texts, the French version of the <span style="FONT-VARIANT: small-caps">lxx </span>Pentateuch, *La Bible d’Alexandrie*, which is mine of invaluable information on matters of lexicography and patristic exegesis, has, where possible, been regularly consulted.
 
@@ -37,9 +33,6 @@ The readings for Vespers in [Lent](http://www.anastasis.org.uk/readLent.htm) and
 
 Comments on this first draft will be welcomed by the translator.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

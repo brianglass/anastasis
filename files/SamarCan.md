@@ -209,27 +209,24 @@ Ode 9. The Irmos.
 
 Troparia.
 
-<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />esus the life of all was seen hanged willingly on a Tree; and seeing it the earth was shaken, and many bodies of the Saints that slept visibly arose, and Hell’s prison was shaken.
+esus the life of all was seen hanged willingly on a Tree; and seeing it the earth was shaken, and many bodies of the Saints that slept visibly arose, and Hell’s prison was shaken.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />ut of the tomb, fair as a bridegroom from his chamber, you came, having abolished the tyranny of death, and smashed the bolts of Hell by your divine power, and illumined the world by the spiritual light of your Rising.
+ut of the tomb, fair as a bridegroom from his chamber, you came, having abolished the tyranny of death, and smashed the bolts of Hell by your divine power, and illumined the world by the spiritual light of your Rising.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />piritual choirs now let us all establish and let us cry: The Lord has risen; let the earth rejoice and the heavens be glad, let the clouds rain down showers of justice for us who radiantly celebrate and sing Christ’s praise.
+piritual choirs now let us all establish and let us cry: The Lord has risen; let the earth rejoice and the heavens be glad, let the clouds rain down showers of justice for us who radiantly celebrate and sing Christ’s praise.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as he poured out teachings richly, the Lord, source of blessings, life of all living, cried out to the woman, ‘Grant me water to drink, that I may give you water which dries up the sources of your sins’.
+ven as he poured out teachings richly, the Lord, source of blessings, life of all living, cried out to the woman, ‘Grant me water to drink, that I may give you water which dries up the sources of your sins’.
 
 Glory.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />ure single light, yet without parts, is the triple-sunned unity; the Father who has no beginning, Son and Spirit, one Godhead, life and maker of all. Let us the faithful, with the Bodiless ones, praise the Godhead, as we chant thrice-holy songs.
+ure single light, yet without parts, is the triple-sunned unity; the Father who has no beginning, Son and Spirit, one Godhead, life and maker of all. Let us the faithful, with the Bodiless ones, praise the Godhead, as we chant thrice-holy songs.
 
 Both now.
 
 **Theotokion.**
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
+aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

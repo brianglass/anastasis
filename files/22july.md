@@ -5,8 +5,7 @@
 22 JULY - HOLY MARY MAGDALEN
 ============================
 
-**Commemoration of the Holy Myrrhbearer and Equal of the Apostles,
-Mary Magdalen.**
+**Commemoration of the Holy Myrrhbearer and Equal of the Apostles, Mary Magdalen.**
 
 AT VESPERS
 ----------
@@ -25,7 +24,7 @@ Glory*.* **Tone 6. By Anatolios.**
 
 First to see the divine Resurrection of the First Cause of blessings, who in his compassion made our nature divine you were revealed as also the first herald of the Gospel, Mary Magdalen, as you cried to the Apostles, ‘Put away despair, regain good cheer, and come, look now on Christ who has risen again and grants the world his great mercy.’
 
-Both now. ** **Theotokion.**
+Both now. **Theotokion.**
 
 No one who has recourse to you goes from you dishonoured, pure Virgin Mother of God; but they ask for grace and receive the gift expedient to their request.
 
@@ -47,7 +46,7 @@ Holy Mary, most radiant, as you longed to look on Life, which lay dead in a grav
 
 Today, as we faithful rejoice at your memory, all-revered Myrrhbearer, we glorify him, the Lord supremely good, who now glorifies you. Beseech him without ceasing, that we may find eternal glory and the splendour of the Saints, as you ever have freedom to speak in his presence, O blessed of God.
 
-Glory. ** **Tone 8. By Vyzas.**
+Glory. **Tone 8. By Vyzas.**
 
 Mary Magdalen, having as his disciple faithfully served Christ our God, who willingly made himself poor with my poverty in his surpassing compassion, when she saw him stretched on a Cross and shut up in a tomb, weeping cried out, ‘What is this strange sight? How is he who gives life to the dead numbered among the dead? What sweet spices can I bring the one who freed me from the foul stench of the demons? What tears can I shed for the one who stripped my foremother of her tears?’ But the Sovereign of the universe, appearing like the guardian of Paradise, by the dew of his words banished the heat and said to her, ‘Go to my brethren and shout aloud the good tidings of joy: I am ascending to my Father and your Father, and my God and your God, that I may grant the world my great mercy.’
 
@@ -160,10 +159,7 @@ Christ the light of the world, seeing you the vigilant eye of faith and the inse
 
 On the 22nd of the month, Commemoration of the holy Myrrhbearer and Equal of the Apostles, Mary Magdalen.
 
-**Verses.
-**With touches immaterial she touches you,
-My Christ, to whom you said, ‘O Mary, touch me not.’
-Magdala’s Mary slept the twenty second.
+**Verses.** With touches immaterial she touches you, My Christ, to whom you said, ‘O Mary, touch me not.’ Magdala’s Mary slept the twenty second.
 
 She was from Magdala in the regions of Syria. When she approached Christ troubled by seven demons, she was delivered from them by Christ’s grace. Then she followed him until his Passion and was one of the Myrrhbearers. She, with the ‘other Mary’, the most holy Mother of God, was the first to behold the Resurrection, when she saw the Angel late on the Sabbath. In the morning she saw two Angels sitting clothed in white, and then the Lord himself, whom she thought was a gardener. From him she heard the words: Do not touch me. After the divine and holy Ascension she came to Ephesus, to Saint John, the Apostle and Divine. There she fell asleep in sanctity and was laid to rest at the entrance to the cave in which the Seven Holy Youths slept. Later under Leo, who by blessed fortune had become our King, her relics were translated by him and laid in the monastery of St Lazarus established by him, in which her annual assembly is celebrated, and in the estate of Curator near the Taurus..
 
@@ -217,9 +213,6 @@ Mary, aptly named, and Disciple of Christ, with the rest of the Myrrhbearers and
 
 **The rest of the Office and Dismissal **
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

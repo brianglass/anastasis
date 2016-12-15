@@ -22,7 +22,7 @@ O Joyful Light… **and the Prokeimenon** The Lord is King… **with its verses.
 
 Verse:
 
-** I shall remember your name in every generation and generation.
+I shall remember your name in every generation and generation.
 
 Of all who are afflicted the joy, protector of the wronged, sustenance of those in need, staff of the blind, visitation of the sick, shelter and assistance of the oppressed, helper of orphans and Mother of God Most High are you, O All-pure. Hasten, we beseech you, to deliver your servants.
 
@@ -82,7 +82,7 @@ The gates of death opened to you Lord, in fear; Hades’ gate-keepers shuddered 
 
 As we sing the hymn of salvation, let this song rise from our lips; ‘Come all in the Lord’s house, let us fall down in worship as we say; ‘You who were crucified on the Tree, rose from the dead and are in the bosom of the Father, have mercy on our sins!’’
 
-Glory…, Both now… **
+Glory…, Both now…
 
 **Theotokion.**
 
@@ -128,7 +128,7 @@ estroying the curse of the tree through a tree, O Saviour, you slew the might of
 
 Verse 2:
 
-** He has made the world firm; it will not be shaken. ****
+He has made the world firm; it will not be shaken. ****
 
 E
 
@@ -160,9 +160,6 @@ Theotokion.
 
 All your mysteries are beyond understanding, all beyond glory, Mother of God; sealed in purity and guarded in virginity you were known without deception to be a Mother, in giving birth to the true God: implore him that our souls may be saved.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

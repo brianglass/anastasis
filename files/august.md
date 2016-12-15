@@ -13,8 +13,7 @@ The holy Maccabees, whose names are, Aveim, Antony, Gourias, Eleazar, Efsevonas,
 
 **From today we begin the fast of the Mother of God.**
 
-**Apolytikia.
-Of the Saints. Tone 1. Model Melody. \[Common\]**
+**Apolytikia. Of the Saints. Tone 1. Model Melody. \[Common\]**
 
 Be entreated by the sufferings, which the Saints endured for you, O Lord; and heal all our pains, we beg, O Lover of mankind.
 
@@ -76,8 +75,6 @@ In the divine Transfiguration all mortal nature shines out today, as with gladne
 
 **6. The holy Transfiguration of our Lord and God and Saviour Jesus Christ.**
 -----------------------------------------------------------------------------
-
-<img src="tr-gr1A.jpg" width="177" height="248" />
 
 Since the Lord had often spoken beforehand to his Disciples not only about his own Passion, Cross and death, but also about the persecutions and afflictions that awaited the Disciples themselves; and since, on the one hand, these terrible events were imminent, but on the other so was the coming and hoped for enjoyment of blessings instead of them, he therefore, in order to let them see with their own eyes the glory that had been prepared for those who endured to the end, he took his three chosen Disciples, Peter, James and John, and led them apart up Mt Thabor, where he was transfigured in their presence. His face shone like the sun and his garments became white like light. Suddenly amid this outpouring of supernatural and remarkable light, there appeared the leading Prophets, Moses and Elias, talking with Jesus about his coming saving passion, and revealing at the same time that he is the Lord of both the living and the dead, for they had come to stand in his presence like servants, Moses from Hades, as he had died many ages before (Cf. 4 September), while Elias as though from heaven, to which he had been taken up alive (Cf. 20 July). After a little while a cloud of light overshadowed them and from the cloud the same voice that had been heard in the Jordan (Cf. 6 January) was heard, testifying to Jesus’ divinity and saying, ‘This is my beloved Son, in whom I am well-pleased. Hear him.’ (Matt. 17,1-5). These are the divine and wondrous events of the present feast, which is an icon and foreshadowing of the condition of the just that is to come, whose splendour the Lord revealed when he said, ‘The just will shine out like the sun’ (Matt. 13,43).This is why the Kontakion of this feast is sung every day at the Hours \[in the Typika\], as a permanent reminder of that glory.
 
@@ -176,8 +173,6 @@ At your glorious memory the inhabited world today leaps for joy, as with gladnes
 **15. The Dormition of our most holy and glorious Lady, Mother of God and Ever-Virgin Mary.**
 ---------------------------------------------------------------------------------------------
 
-<img src="dormition02.jpg" width="219" height="298" />
-
 Concerning the Dormition of the Mother of God the Church has received the following from the ancient tradition of the Fathers. When the time drew near when it was our Saviour’s good pleasure to take to himself his own Mother, he informed her through an Angel, three days before hand, of her passing from this temporary life to that which is eternal and blessed. When she heard this, she went in haste to the mount of Olives, where it was her custom to go and pray, and when she had given thanks to God, she returned to her house and prepared for her burial. Meanwhile clouds had snatched up the Apostles from the ends of the earth, wherever each of them was preaching, and set them down together at the house of the Mother of God. She quickly explained to them the reason for their coming together and like a mother she consoled them in their distress. Then she raised her hands to heaven, prayed for the peace of the world, blessed the Apostles and then, when she had lain down on the bier and disposed her body as she has intended, she placed her all-holy soul into the hands of her Son and God.
 
 The Apostles with devotion and great pomp took up the bier of that body which had received God and chanting funeral hymns they took it to the grave, when Angels from heaven began to sing with them, as they escorted her who is higher than the Cherubim. One of Jews, out of envy, audaciously placed his hands on the bier and at once received the punishment of his rashness, for his hands were cut off by an invisible blow. When they reached the village called Gethsemane, they buried there with honour the all-pure body, source of life, of the Mother of God. But on the third day after the burial, as they were consoling one another together, they raised the loaf that had been set out, as was their custom, in the name of Jesus, when the Mother of God appeared in the air and said them, ‘Hail!’. From this they understood that the Mother of God had been translated bodily into heaven.
@@ -262,8 +257,7 @@ For Bartholomew see 11 June. Titus was a Greek by race and an idolater by religi
 
 Holy Apostles, intercede with the merciful God to grant our souls forgiveness of sins.
 
-**Kontakia:
-Of Saint Bartholomew. Tone 1. The soldiers watching.**
+**Kontakia: Of Saint Bartholomew. Tone 1. The soldiers watching.**
 
 The return of your most holy relics has become for us the reason for a most radiant festival, Apostle of the Lord. As we reverence it, with devout minds we honour you, Bartholomew, the lamp that does not set, as we magnify Christ.
 
@@ -335,9 +329,6 @@ God of our Fathers, who always deal with us in your forbearance, do not deprive 
 
 Ever-Virgin Mother of God, protection of mortals, you have given the Apparel and the Girdle of your most pure body as a mighty bulwark to your City, for by your giving birth without seed they have remained incorrupt. For in you both nature and time are made new. Therefore we implore you to grant peace to the inhabited world, and to our souls God’s great mercy. 
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -14,9 +14,7 @@ Blessed is the Kingdom of the Father, and of the Son, and of the Holy Spirit, no
 
 The appointed monk or the Superior reads the Opening Psalm as follows:
 
-Amen. Come let us worship and fall down before the King, our God.
-Come let us worship and fall down before Christ the King, our God.
-Come let us worship and fall down before Christ himself, the King and our God.
+Amen. Come let us worship and fall down before the King, our God. Come let us worship and fall down before Christ the King, our God. Come let us worship and fall down before Christ himself, the King and our God.
 
 ****
 
@@ -28,9 +26,7 @@ And again
 
 The sun knew the hour of its setting: you made darkness, and it was night. How your works have been magnified, O Lord. With wisdom you have made them all!
 
-Glory to the Father and to the Son and to the Holy Spirit.
-Both now and for ever, and to the ages of ages. Amen.
-Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
+Glory to the Father and to the Son and to the Holy Spirit. Both now and for ever, and to the ages of ages. Amen. Alleluia, Alleluia, Alleluia. Glory to you, O God. (**x3)**
 
 ****
 
@@ -284,9 +280,7 @@ Wisdom. Stand upright! ****
 
 We say
 
-THE THANKSGIVING
-AT THE LIGHTING OF THE LAMPS
-**An ancient poem, or, as some say, by the martyr Athenogenes.**
+THE THANKSGIVING AT THE LIGHTING OF THE LAMPS **An ancient poem, or, as some say, by the martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life: therefore the world glorifies you.
 
@@ -354,9 +348,7 @@ Wisdom! ****
 
 Reader:
 
-The reading is from Job.
-
- 
+The reading is from Job.  
 
 \[
 
@@ -394,7 +386,7 @@ Prokeimenon. Tone 7. \[
 
 The rulers were gathered together against the Lord and against his Christ.
 
-******
+****
 
 Verse:
 
@@ -426,11 +418,11 @@ Alleluia, Alleluia, Alleluia. Tone 6.
 
 Verse 1
 
-: ** Blessed is the one who considers the poor and needy. ****
+: Blessed is the one who considers the poor and needy. ****
 
 Verse 2:
 
-** My enemies spoke evil of me, ‘When will he die and his name perish?’ ****
+My enemies spoke evil of me, ‘When will he die and his name perish?’ ****
 
 Verse 3:
 
@@ -474,7 +466,7 @@ Reader:
 
 Glory to you, Lord, glory to you! ****
 
-<span id="mon23"></span>After the Gospel the Liturgy of St Basil the Great.
+After the Gospel the Liturgy of St Basil the Great.
 
 Instead of the Cherubic Hymn, the Communion chant,
 
@@ -494,9 +486,6 @@ Then the broken bread is distributed, and the Dismissal.
 
 In the refectory we partake of wine and oil. Compline we sing in our cells.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

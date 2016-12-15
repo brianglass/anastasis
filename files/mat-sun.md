@@ -18,15 +18,13 @@ When Matins forms part of a Vigil it follows the *Artoklasia* at the end of Vesp
 
 In most parishes the Royal Office is abbreviated, and, the censing and the two Psalms being omitted, the Reader begins at once with the *Trisagion.*
 
-When Matins is celebrated in full it is not normal for the deacon to vest until the *Anavathmi*, the priest saying all the preceding litanies himself. In Greek parish use, the clergy vest and perform the Proskomidi ** during the first part of Matins, after the Litany of Peace. In monasteries the celebrating clergy take the *kairos* during the reading of the Psalter and then return to their stalls until it is time for them to vest for the Liturgy. In parishes the *kairos* is taken after the Six Psalms and Litany of Peace, or even before the beginning of the service.
+When Matins is celebrated in full it is not normal for the deacon to vest until the *Anavathmi*, the priest saying all the preceding litanies himself. In Greek parish use, the clergy vest and perform the Proskomidi during the first part of Matins, after the Litany of Peace. In monasteries the celebrating clergy take the *kairos* during the reading of the Psalter and then return to their stalls until it is time for them to vest for the Liturgy. In parishes the *kairos* is taken after the Six Psalms and Litany of Peace, or even before the beginning of the service.
 
 The prayer after Psalm 50 is the text, apart from the addition of *Mothers* among the ascetics, as it appears in the earliest sources. It is now customary to expand it with a great many additional names in accordance with local custom.
 
 Most of the technical terms, including those printed in italic in this preface, are explained in a short Glossary at the end.
 
 Since Matins is a longer and more complex service than Vespers and the ways of celebrating it vary more widely, it is not feasible to provide for every possible use.
-
-------------------------------------------------------------------------
 
 **MATINS**
 
@@ -85,7 +83,7 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 The priest must take care that he is standing beneath the Polyeleos to say this conclusion. He then enters the sanctuary, puts away the censer and takes his stand in front of the Holy Table.
 
@@ -119,7 +117,7 @@ For you, O God, are merciful, and love humankind, and to you we give glory, to t
 
 Reader:
 
-** Amen. In the name of the Lord, bless Father. ****
+Amen. In the name of the Lord, bless Father. ****
 
 Priest:
 
@@ -127,7 +125,7 @@ Glory to the holy, consubstantial, life-giving and undivided Trinity, always, no
 
 Reader:
 
-** Amen.
+Amen.
 
 **The Six Psalms**
 
@@ -229,15 +227,12 @@ Alleluia, Alleluia, Alleluia. Glory to you, O God.
 
 **(x3). Metanias (x3).**
 
-------------------------------------------------------------------------
-
 During the Six Psalms the Priest reads the
 
 Twelve Morning Prayers
 ----------------------
 
-**1st Prayer**
-We thank you, Lord our God, who have roused us from our beds and placed in our mouth a word of praise, to worship and call upon your Holy Name, and we beseech you by your acts of pity, with which you have always treated our life. And now send forth your help on those who stand before the presence of your holy glory and who await the rich mercy which comes from you, and grant that they may always serve, praise, hymn and worship your inexpressible loving-kindness.
+**1st Prayer** We thank you, Lord our God, who have roused us from our beds and placed in our mouth a word of praise, to worship and call upon your Holy Name, and we beseech you by your acts of pity, with which you have always treated our life. And now send forth your help on those who stand before the presence of your holy glory and who await the rich mercy which comes from you, and grant that they may always serve, praise, hymn and worship your inexpressible loving-kindness.
 
 For to you belong all glory, honour and worship, to the Father, the Son and the holy Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -333,8 +328,6 @@ For you are our God and to you we give glory, to the Father, the Son and the Hol
 
 The Priest, having kissed the icon of the Lord, enters the sanctuary by the south door.
 
-------------------------------------------------------------------------
-
 When the Six Psalms are completed the Priest, standing in front of the Holy Table, intones the:
 
 Litany of Peace
@@ -383,7 +376,7 @@ To you, O Lord. ****
 
 Priest:
 
-** For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages**.** ****
+For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages**.** ****
 
 People:
 
@@ -397,7 +390,7 @@ The Lord is God, and has appeared to us. Blessed is he who comes in the name of 
 
 Verse 1:
 
-** Give thanks to the Lord, for he is good: his mercy endures for ever. ****
+Give thanks to the Lord, for he is good: his mercy endures for ever. ****
 
 Verse 2:
 
@@ -433,8 +426,7 @@ After the last verse of Psalm 118, or the Polyeleos, if the Feast falls on a Sun
 
 Glory to the Father:
 
-**The Resurrection Evlogitaria
-Tone 5**
+**The Resurrection Evlogitaria** **Tone 5**
 
 Before each Troparion we say: Blessed are you, O Lord: teach me your statutes.
 
@@ -468,8 +460,6 @@ For blessed is your name and glorified is your kingdom, of the Father, the Son a
 
 The Reader reads the Ypakoï. On Feasts the \[poetic\] Kathisma. On Sunday there follow the Anavathmi in the Tone of the Week.
 
-------------------------------------------------------------------------
-
 On feasts, the First Antiphon of those in Tone 4.
 
 From my youth up many passions make war on me: but you, O Saviour, help me and save me.
@@ -496,8 +486,6 @@ By the Holy Spirit the streams of grace well up, watering all creation to engend
 
 **\]**
 
-------------------------------------------------------------------------
-
 During the Anavathmi the Priest, with the Deacon, enters the sanctuary and, vested in epitrachelion and phelonion, stands in front of the Holy Table.
 
 When the Anavathmi and the Prokeimenon are finished the Deacon intones:
@@ -508,11 +496,11 @@ Let us pray to the Lord.
 
 People:
 
-** Lord, have mercy. ****
+Lord, have mercy. ****
 
 Priest:
 
-** For holy are you, our God, and you dwell in the holy place, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For holy are you, our God, and you dwell in the holy place, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -536,7 +524,7 @@ Wisdom, stand upright. Let us listen to the holy Gospel. ****
 
 Priest (or Bishop):
 
-** Peace to all. ****
+Peace to all. ****
 
 People:
 
@@ -548,7 +536,7 @@ The Reading is from the holy Gospel according to **N.**
 
 People:
 
-** Glory to you, Lord, glory to you! ****
+Glory to you, Lord, glory to you! ****
 
 Deacon:
 
@@ -570,7 +558,7 @@ Then on Sundays the Singers begin Psalm 50.
 
 The Priest, wearing his kalymafchion \[and cowl\] and having let down the phelonion, stands in the Holy Doors holding the Holy Gospel. When the singers reach the verse
 
-** For see, you have loved truth, **he comes out through the Holy Doors and takes his stand in the middle of the church. In Athonite use, he stands directly beneath the polyeleos for the Superior to venerate the Gospel. He then moves further to the west for the rest of those present to do so. The server with the candle is the last to venerate. In most Greek parishes the Gospel is then taken to back of the church, preceded by the candle, and placed on a stand near the west end of the church, so that latecomers may venerate it. There follows the veneration of the Gospel, after which the Priest returns to the Sanctuary and places the Gospel on the Holy Table, or, where it is the custom, at the back of the Church.**
+For see, you have loved truth, **he comes out through the Holy Doors and takes his stand in the middle of the church. In Athonite use, he stands directly beneath the polyeleos for the Superior to venerate the Gospel. He then moves further to the west for the rest of those present to do so. The server with the candle is the last to venerate. In most Greek parishes the Gospel is then taken to back of the church, preceded by the candle, and placed on a stand near the west end of the church, so that latecomers may venerate it. There follows the veneration of the Gospel, after which the Priest returns to the Sanctuary and places the Gospel on the Holy Table, or, where it is the custom, at the back of the Church.**
 
 On all other days the Psalm is read and there is no veneration of the Gospel.
 
@@ -585,8 +573,6 @@ For I acknowledge my wickedness, and my sin is ever before me.
 Against you only I have sinned and done what is evil in your sight, that you may be justified in your words, and win when you are judged.
 
 For see, in wickedness I was conceived, and in sin my mother bore me.
-
-****
 
 For see, you have loved truth: you have shown me the hidden and secret things of your wisdom.
 
@@ -638,7 +624,7 @@ Jesus, having risen from the tomb as he foretold, has given us eternal life and 
 
 On all Feasts with a Gospel special texts are appointed to be sung after
 
-Glory **and** ** Both now ** **and the verse** ** Have mercy on me on, O God. ** **These will be found in the Menaion for the day.**
+Glory **and** Both now **and the verse** Have mercy on me on, O God. **These will be found in the Menaion for the day.**
 
 On all days with a Gospel, the Deacon (or Priest):
 
@@ -648,7 +634,7 @@ O God, save your people and bless your inheritance, visit your world with mercy 
 
 Singers:
 
-Lord, have mercy. **(Twelve times, in threes)** **
+Lord, have mercy. **(Twelve times, in threes)**
 
 Priest: By the mercy and compassion and love towards humankind of your only-begotten Son, with whom you are blessed, together with your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages.
 
@@ -656,7 +642,7 @@ Priest: By the mercy and compassion and love towards humankind of your only-bego
 
 Singers:
 
-** Amen. ****
+Amen. ****
 
 And we begin the Canons. In Athonite use, on Sundays and Feasts the Church is censed as usual at the start of the Canons.
 
@@ -688,12 +674,9 @@ The Magnificat and 9th Ode are traditionally sung by the senior persons present 
 
 The Song of the Mother of God.
 
-**A maiden mother hymns her Son and God.
-In hymns God’s Mother now we magnify.**
+**A maiden mother hymns her Son and God. In hymns God’s Mother now we magnify.**
 
 My soul magnifies the Lord, and my spirit has rejoiced in God my Saviour.
-
-****
 
 Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word; truly the Mother of God, we magnify you.
 
@@ -737,7 +720,7 @@ To you, O Lord. ****
 
 Priest:
 
-** For all the Powers of heaven praise you, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For all the Powers of heaven praise you, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -768,10 +751,9 @@ After the Exapostilaria
 Lauds
 -----
 
-**If it is Sunday, or a feast of the Lord, or the memorial of a Saint having the Great Doxology, the two Choirs sing** Let everything that has breath ** **in the appropriate tone, as follows:**
+**If it is Sunday, or a feast of the Lord, or the memorial of a Saint having the Great Doxology, the two Choirs sing** Let everything that has breath **in the appropriate tone, as follows:**
 
-Psalm 148
-\[A\] **Let everything that has breath** praise the Lord. Praise the Lord from the heavens; praise him in the highest. To you praise is due, O God.
+Psalm 148 \[A\] **Let everything that has breath** praise the Lord. Praise the Lord from the heavens; praise him in the highest. To you praise is due, O God.
 
 ****
 
@@ -829,8 +811,7 @@ His praise is above earth and heaven, and he will exalt the horn of his people. 
 
 A hymn for all his holy ones; for the children of Israel, a people that draws near him. ****
 
-Psalm 149
-\[A\]
+Psalm 149 \[A\]
 
 Sing to the Lord a new song, his praise in the Church of the holy ones. ****
 
@@ -868,8 +849,7 @@ For 8 Verses (Sundays) or 6 Verses.
 
 To execute upon them the judgement that is decreed; such glory will be for all his holy ones. ****
 
-Psalm 150
-\[B\]
+Psalm 150 \[B\]
 
 Praise God in his saints; praise him in the firmament of his power. ****
 
@@ -905,13 +885,11 @@ If a feast with Stichera at Lauds falls on a Sunday, the appropriate Psalm verse
 
 \[A\]
 
-Glory.
-**On Sunday the Eothinon corresponding to the Gospel.** ****
+Glory. **On Sunday the Eothinon corresponding to the Gospel.** ****
 
 \[B\]
 
-Both now.
-**On Sunday the following Theotokion:**
+Both now. **On Sunday the following Theotokion:**
 
 You are most blessed, Virgin Mother of God, for through him who took flesh from you Hell has been taken captive, Adam recalled, the curse slain, Eve set free, death put to death, and we given life. Therefore in praise we cry: Blessed are you, Christ our God, who have been thus well-pleased. Glory to you.
 
@@ -1059,7 +1037,7 @@ Again we pray for those who bring offerings, those who care for the beauty of th
 
 Priest:
 
-** For you, O God, are merciful, and love humankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For you, O God, are merciful, and love humankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -1107,11 +1085,11 @@ To you, O Lord. ****
 
 Priest:
 
-** For you are a God of mercy, compassion and love towards humankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For you are a God of mercy, compassion and love towards humankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
-****** Amen. ****
+Amen. ****
 
 Priest:
 
@@ -1133,7 +1111,7 @@ Prayer at the Bowing of Heads
 
 Priest (in a low voice):
 
-** Holy Lord, dwelling on high and beholding things below and, with your eye that observes all, keeping watch over the whole creation, to you we have bowed the neck of our soul and body, and we beseech you, O Holy of Holies: Stretch forth your invisible hand from your holy dwelling and bless us all. And, as you are good and love humankind, pardon us if we have sinned in anything, voluntarily or involuntarily, granting us your blessings both of this world and of the world above. ****
+Holy Lord, dwelling on high and beholding things below and, with your eye that observes all, keeping watch over the whole creation, to you we have bowed the neck of our soul and body, and we beseech you, O Holy of Holies: Stretch forth your invisible hand from your holy dwelling and bless us all. And, as you are good and love humankind, pardon us if we have sinned in anything, voluntarily or involuntarily, granting us your blessings both of this world and of the world above. ****
 
 (Aloud)
 
@@ -1157,13 +1135,13 @@ Blessed is He Who Is, Christ our true God, always, now and for ever, and to the 
 
 Reader:
 
-** Amen. May the Lord God strengthen the holy and pure faith of devout and orthodox Christians, with his holy Church, unto ages of ages. ****
+Amen. May the Lord God strengthen the holy and pure faith of devout and orthodox Christians, with his holy Church, unto ages of ages. ****
 
 Priest:
 
 Most holy Mother of God, save us. ****
 
-Reader: ****
+Reader:
 
 Greater in honour than the Cherubim, and beyond compare more glorious than the Seraphim, without corruption you gave birth to God the Word; truly the Mother of God, we magnify you. ****
 
@@ -1175,7 +1153,7 @@ Glory to you, Christ God, our hope, glory to you.
 
 Reader:
 
-****** Glory. Both now. Lord, have mercy. **(x3)** Give the blessing. ****
+Glory. Both now. Lord, have mercy. **(x3)** Give the blessing. ****
 
 And the Priest, lowering the Phelonion, continues:
 
@@ -1183,20 +1161,16 @@ May \[
 
 **on Sunday** he who rose from the dead, **but on Feasts of the Lord the appropriate phrase**\] Christ our true God, at the prayers of his all-pure and holy Mother; by the power of the precious and life-giving Cross; through the protection of the honoured, Bodiless Powers of heaven; the intercessions of the honoured, glorious, prophet, forerunner and Baptist John; of the holy, glorious and all-praised Apostles; of the holy, glorious and triumphant Martyrs; of our venerable and god-bearing Fathers; of the holy and righteous forebears of God, Joachim and Anne; of Saint **N**. \[**the patron of the church**\]; of Saint **N**., whose memory we celebrate, and of all the Saints, have mercy on us and save us, for he is good and loves humankind. ****
 
-Reader: ****
+Reader:
 
 Amen. **And at once he begins the First Hour.**
-
-------------------------------------------------------------------------
 
 FIRST HOUR
 ==========
 
 **The Holy Doors and the Curtain are shut. The Reader begins straight away with:**
 
-O Come, let us worship and fall down before the King, our God.
-O Come, let us worship and fall down before Christ, the King, our God.
-O Come, let us worship and fall down before Christ himself, the King, our God.
+O Come, let us worship and fall down before the King, our God. O Come, let us worship and fall down before Christ, the King, our God. O Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -1220,7 +1194,7 @@ Glory. Both now. Alleluia.
 
 Then at once:
 
-** Glory, **the Apolytikion of the day,**
+Glory, **the Apolytikion of the day,**
 
 Both now,
 
@@ -1232,10 +1206,7 @@ What shall we call you, O Full of grace? Heaven? For you made the Sun of justice
 
 And immediately:
 
-Direct my steps according to your word, and let no iniquity lord it over me.
-Deliver me from the slander of men, and I shall keep your commandments.
-Let your face shine on your servant, and teach me your statutes.
-Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour.
+Direct my steps according to your word, and let no iniquity lord it over me. Deliver me from the slander of men, and I shall keep your commandments. Let your face shine on your servant, and teach me your statutes. Let my mouth be filled with your praise, O Lord, that I may hymn your glory, all day long your splendour.
 
 ****
 
@@ -1261,7 +1232,7 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Reader:
 
-** Amen. ****
+Amen. ****
 
 The Kontakion of the Saint, if there is one, or of the current Feast.
 
@@ -1269,7 +1240,7 @@ But on Sunday we say the Hypakoï of the Tone.
 
 Then:
 
-** Lord, have mercy. **(x40)**
+Lord, have mercy. **(x40)**
 
 At every time and at every hour, in heaven and on earth worshipped and glorified, Christ God, long-suffering, great in mercy, great in compassion, loving the just and merciful to sinners, calling all to salvation by the promise of the blessings to come; do you, Lord, yourself accept our entreaties at this hour, and direct our lives to your commandments. Sanctify our souls, purify our bodies, correct our thoughts, cleanse our ideas and deliver us from every distress, evil, and pain. Wall us about with your holy Angels, that protected and guided by their host we may reach the unity of the faith and the knowledge of your unapproachable glory; for you are blessed to the ages of ages. Amen.
 
@@ -1303,23 +1274,21 @@ Glory to you, Christ God, our hope, glory to you.
 
 ****
 
-Reader: ****
+Reader:
 
-Glory. Both now. Lord, have mercy. **(x3)** ** Give the blessing. ****
+Glory. Both now. Lord, have mercy. **(x3)** Give the blessing. ****
 
 Priest:
 
-** May \[**on Sunday** ** he who rose from the dead\] <sup></sup> Christ our true God, at the prayers of his most pure and spotless Mother; of the holy, glorious and all-praised Apostles; of the holy, glorious and triumphant Martyrs; of our venerable and God-bearing Fathers; of Saint **N***.* \[**the patron of the church**\]; \[of Saint **N***.*, whose memory we celebrate; of the holy and righteous forebears of God, Joachim and Anne;\] and of all the Saints, have mercy and save us, for he is good and loves humankind.
+May \[**on Sunday** he who rose from the dead\] Christ our true God, at the prayers of his most pure and spotless Mother; of the holy, glorious and all-praised Apostles; of the holy, glorious and triumphant Martyrs; of our venerable and God-bearing Fathers; of Saint **N***.* \[**the patron of the church**\]; \[of Saint **N***.*, whose memory we celebrate; of the holy and righteous forebears of God, Joachim and Anne;\] and of all the Saints, have mercy and save us, for he is good and loves humankind.
 
 Through the prayers of our holy fathers, Lord Jesus Christ, have mercy on us and save us
 
 ****
 
-Reader: ****
+Reader:
 
 Amen.
-
-------------------------------------------------------------------------
 
 APPENDICES
 ==========
@@ -1327,8 +1296,7 @@ APPENDICES
 1. THE RESURRECTION EXAPOSTILARIA
 ---------------------------------
 
-**A Composition by the Emperor Constantine,
-son of Leo the Wise.**
+**A Composition by the Emperor Constantine, son of Leo the Wise.**
 
 EXAPOSTILARION 1
 
@@ -1537,76 +1505,11 @@ Servants of the Lord, Alleluia.
 
 Psalm 134
 
-Praise the name of the Lord, praise the Lord his servants. Alleluia.
-Who stand in the house of the Lord, in the courts of the house of our God. Alleluia.
-Praise the Lord, for the Lord is good. Alleluia.
-Sing to his name, for it is fair. Alleluia.
-For the Lord has chosen Jacob for himself; Alleluia.
-Israel for his own possession. Alleluia.
-For I know that the Lord is great. Alleluia.
-And our Lord is above all gods. Alleluia.
-Whatever he wished, the Lord has done, Alleluia.
-In heaven and on earth, Alleluia.
-In the seas and in all the deeps. Alleluia.
-He brings up the clouds from the end of the earth. Alleluia.
-He has made lightnings into rain. Alleluia.
-He brings winds out of his treasuries, Alleluia.
-He who smote the first born of Egypt, Alleluia.
-From humans to beasts of burden. Alleluia.
-He sent signs and wonders into your midst, O Egypt, Alleluia.
-Among Pharao and all his servants; Alleluia.
-He who smote many nations, Alleluia.
-And killed mighty kings, Alleluia.
-Sion, King of the Amorites, Alleluia.
-And Og, King of Basan, Alleluia.
-And all the kingdoms of Canaan. Alleluia.
-And he gave their land as a heritage, Alleluia.
-A heritage to Israel his people. Alleluia.
-O Lord, your name is for ever, Alleluia.
-And your memorial to generation and generation. Alleluia.
-For the Lord will judge his people, Alleluia.
-And he will comfort his servants. Alleluia.
-The idols of the nations are silver and gold, works of human hands. Alleluia.
-They have a mouth, but they will not speak. Alleluia.
-They have eyes, but they will not see. Alleluia.
-They have ears, but they will not hear. Alleluia.
-There is no breath in their mouth. Alleluia.
-Let all those who make them become like them, Alleluia.
-And all those who trust in them. Alleluia.
-House of Israel, bless the Lord. Alleluia.
-House of Aaron, bless the Lord. Alleluia.
-House of Levi, bless the Lord. Alleluia.
-You who fear the Lord, bless the Lord. Alleluia.
-Blessed be the Lord from Sion, he who dwells in Jerusalem. Alleluia. ****
+Praise the name of the Lord, praise the Lord his servants. Alleluia. Who stand in the house of the Lord, in the courts of the house of our God. Alleluia. Praise the Lord, for the Lord is good. Alleluia. Sing to his name, for it is fair. Alleluia. For the Lord has chosen Jacob for himself; Alleluia. Israel for his own possession. Alleluia. For I know that the Lord is great. Alleluia. And our Lord is above all gods. Alleluia. Whatever he wished, the Lord has done, Alleluia. In heaven and on earth, Alleluia. In the seas and in all the deeps. Alleluia. He brings up the clouds from the end of the earth. Alleluia. He has made lightnings into rain. Alleluia. He brings winds out of his treasuries, Alleluia. He who smote the first born of Egypt, Alleluia. From humans to beasts of burden. Alleluia. He sent signs and wonders into your midst, O Egypt, Alleluia. Among Pharao and all his servants; Alleluia. He who smote many nations, Alleluia. And killed mighty kings, Alleluia. Sion, King of the Amorites, Alleluia. And Og, King of Basan, Alleluia. And all the kingdoms of Canaan. Alleluia. And he gave their land as a heritage, Alleluia. A heritage to Israel his people. Alleluia. O Lord, your name is for ever, Alleluia. And your memorial to generation and generation. Alleluia. For the Lord will judge his people, Alleluia. And he will comfort his servants. Alleluia. The idols of the nations are silver and gold, works of human hands. Alleluia. They have a mouth, but they will not speak. Alleluia. They have eyes, but they will not see. Alleluia. They have ears, but they will not hear. Alleluia. There is no breath in their mouth. Alleluia. Let all those who make them become like them, Alleluia. And all those who trust in them. Alleluia. House of Israel, bless the Lord. Alleluia. House of Aaron, bless the Lord. Alleluia. House of Levi, bless the Lord. Alleluia. You who fear the Lord, bless the Lord. Alleluia. Blessed be the Lord from Sion, he who dwells in Jerusalem. Alleluia. ****
 
 Psalm 135
 
-Give thanks to the Lord, for he is good, alleluia: for his mercy endures forever, alleluia.
-Give thanks to the God of gods, alleluia: for his mercy endures forever, alleluia.
-Give thanks to the Lord of lords, alleluia: for his mercy endures forever, alleluia.
-To him who alone has done great wonders, alleluia: for his mercy endures forever, alleluia.
-To him who made the heavens with understanding, alleluia: for his mercy endures forever, alleluia.
-To him who set the earth on the waters, alleluia: for his mercy endures forever, alleluia.
-To him who alone made the great lights, alleluia: for his mercy endures for ever, alleluia.
-The sun to rule the day, alleluia: for his mercy endures for ever, alleluia.
-The moon and the stars to rule the night, alleluia: for his mercy endures forever, alleluia.
-To him who smote Egypt with their first born, alleluia: for his mercy endures forever, alleluia.
-And led Israel out of their midst, alleluia: for his mercy endures forever, alleluia.
-With a mighty hand and upraised arm, alleluia: for his mercy endures forever, alleluia.
-To him who divided the Red Sea in two, alleluia: for his mercy endures forever, alleluia.
-And led Israel through its midst, alleluia: for his mercy endures forever, alleluia.
-And shook off Pharao and his power into the Red Sea, alleluia: for his mercy endures forever, alleluia.
-To him who led his people through the desert, alleluia: for his mercy endures forever, alleluia.
-To him who smote great kings, alleluia: for his mercy endures forever, alleluia.
-And slew mighty kings, alleluia: for his mercy endures for ever, alleluia.
-Sion, King of the Amorites, alleluia: for his mercy endures for ever, alleluia.
-And Og, King of Basan, alleluia: for his mercy endures forever, alleluia.
-And who gave their land as a heritage, alleluia: for his mercy endures forever, alleluia.
-A heritage for Israel his servant, alleluia: for his mercy is for ever, alleluia.
-For the Lord remembered us in our humiliation, alleluia: for his mercy endures forever, alleluia.
-And redeemed us from our foes, alleluia: for his mercy endures for ever, alleluia.
-Who gives food to all flesh, alleluia: for his mercy is for ever, alleluia.
-Give thanks to the God of heaven, alleluia: for his mercy endures forever, alleluia. ****
+Give thanks to the Lord, for he is good, alleluia: for his mercy endures forever, alleluia. Give thanks to the God of gods, alleluia: for his mercy endures forever, alleluia. Give thanks to the Lord of lords, alleluia: for his mercy endures forever, alleluia. To him who alone has done great wonders, alleluia: for his mercy endures forever, alleluia. To him who made the heavens with understanding, alleluia: for his mercy endures forever, alleluia. To him who set the earth on the waters, alleluia: for his mercy endures forever, alleluia. To him who alone made the great lights, alleluia: for his mercy endures for ever, alleluia. The sun to rule the day, alleluia: for his mercy endures for ever, alleluia. The moon and the stars to rule the night, alleluia: for his mercy endures forever, alleluia. To him who smote Egypt with their first born, alleluia: for his mercy endures forever, alleluia. And led Israel out of their midst, alleluia: for his mercy endures forever, alleluia. With a mighty hand and upraised arm, alleluia: for his mercy endures forever, alleluia. To him who divided the Red Sea in two, alleluia: for his mercy endures forever, alleluia. And led Israel through its midst, alleluia: for his mercy endures forever, alleluia. And shook off Pharao and his power into the Red Sea, alleluia: for his mercy endures forever, alleluia. To him who led his people through the desert, alleluia: for his mercy endures forever, alleluia. To him who smote great kings, alleluia: for his mercy endures forever, alleluia. And slew mighty kings, alleluia: for his mercy endures for ever, alleluia. Sion, King of the Amorites, alleluia: for his mercy endures for ever, alleluia. And Og, King of Basan, alleluia: for his mercy endures forever, alleluia. And who gave their land as a heritage, alleluia: for his mercy endures forever, alleluia. A heritage for Israel his servant, alleluia: for his mercy is for ever, alleluia. For the Lord remembered us in our humiliation, alleluia: for his mercy endures forever, alleluia. And redeemed us from our foes, alleluia: for his mercy endures for ever, alleluia. Who gives food to all flesh, alleluia: for his mercy is for ever, alleluia. Give thanks to the God of heaven, alleluia: for his mercy endures forever, alleluia. ****
 
 Then the Selection according to the Feast.
 
@@ -1620,27 +1523,15 @@ Both now.
 
 Your people, O Christ, brings your Mother to intercede; at her entreaties grant us your pity, that we may glorify you, Loving Lord, who dawned for us from the grave.
 
-------------------------------------------------------------------------
-
 ****
 
 The following Psalm of the Polyeleos is sung on the two Sundays before Lent, Meat Sunday and Cheese Sunday. When this Psalm is sung Psalm 118 is not sung, but in its place Psalm 134. Psalm 136 takes the place of the Selection. We also light the Polyeleos. Note that in the Russian use Psalm 136 is also used on the two preceding Sundays, those of the Prodigal Son and of the Last Judgement.
 
 Psalm 136
 
-By the rivers of Babylon, there we sat down and we when we remembered Sion. Alleluia.
-On the willows in the midst of it we hung up our instruments. Alleluia.
-For there our captors asked us for songs, and those who had led us away for a hymn, saying, ‘Sing us one of the songs of Sion!’ Alleluia.
-How could we sing the Lord’s song in a foreign land? Alleluia.
-If I forget you, Jerusalem, let my right hand be forgotten! Alleluia.
-Let my tongue stick to my throat, if I do not remember you, if I do not set Jerusalem above my highest joy. Alleluia.
-Remember, Lord, against the Edomites the day of Jerusalem’s fall, how they said, ‘Tear it down! Tear it down! Down to its foundations!’ Alleluia.
-O daughter of Babylon, the wretched! Blessed is the one who requites you as you have requited us! Alleluia.
-Blessed is the one who seizes your little children and dashes them against the rock! Alleluia.
+By the rivers of Babylon, there we sat down and we when we remembered Sion. Alleluia. On the willows in the midst of it we hung up our instruments. Alleluia. For there our captors asked us for songs, and those who had led us away for a hymn, saying, ‘Sing us one of the songs of Sion!’ Alleluia. How could we sing the Lord’s song in a foreign land? Alleluia. If I forget you, Jerusalem, let my right hand be forgotten! Alleluia. Let my tongue stick to my throat, if I do not remember you, if I do not set Jerusalem above my highest joy. Alleluia. Remember, Lord, against the Edomites the day of Jerusalem’s fall, how they said, ‘Tear it down! Tear it down! Down to its foundations!’ Alleluia. O daughter of Babylon, the wretched! Blessed is the one who requites you as you have requited us! Alleluia. Blessed is the one who seizes your little children and dashes them against the rock! Alleluia.
 
 Glory. Both now. Alleluia.
-
-------------------------------------------------------------------------
 
 ****
 
@@ -1650,35 +1541,25 @@ Psalm 44
 
 A Good Word. Alleluia.
 
-My heart has uttered a good Word.
-Hail, all-praised Queen of all, Mother of our God. Alleluia.
+My heart has uttered a good Word. Hail, all-praised Queen of all, Mother of our God. Alleluia.
 
-I tell my works to the King.
-Hail, Queen of Angels, Sovereign of the world. Alleluia.
+I tell my works to the King. Hail, Queen of Angels, Sovereign of the world. Alleluia.
 
-My tongue is the pen of ready writer.
-Hail, proclamation of the Prophets, glory of Patriarchs. Alleluia.
+My tongue is the pen of ready writer. Hail, proclamation of the Prophets, glory of Patriarchs. Alleluia.
 
-You are lovely with a beauty beyond the sons of men.
-Hail, pure Virgin, Sovereign Lady, Bride of God. Alleluia.
+You are lovely with a beauty beyond the sons of men. Hail, pure Virgin, Sovereign Lady, Bride of God. Alleluia.
 
-Grace has poured from your lips.
-Hail, spotless, undefiled, incorrupt, All-holy. Alleluia.
+Grace has poured from your lips. Hail, spotless, undefiled, incorrupt, All-holy. Alleluia.
 
-Therefore God has blessed you for ever.
-Hail, hope of those without hope, and help of those embattled. Alleluia.
+Therefore God has blessed you for ever. Hail, hope of those without hope, and help of those embattled. Alleluia.
 
-Gird your sword on your thigh, mighty warrior.
-Hail, full of grace. The Lord is with you, and through you with us. Alleluia.
+Gird your sword on your thigh, mighty warrior. Hail, full of grace. The Lord is with you, and through you with us. Alleluia.
 
-In your splendour and beauty.
-Hail, blessed are you among women, and blessed is the fruit of your womb. Alleluia.
+In your splendour and beauty. Hail, blessed are you among women, and blessed is the fruit of your womb. Alleluia.
 
-Draw your bow and prosper, and reign.
-Hail, Virgin Mother of God, blessed among women. Alleluia.
+Draw your bow and prosper, and reign. Hail, Virgin Mother of God, blessed among women. Alleluia.
 
-In the cause of truth and meekness and justice.
-Hail, Mary, Lady of us all, the Lord of powers is with you. Alleluia.
+In the cause of truth and meekness and justice. Hail, Mary, Lady of us all, the Lord of powers is with you. Alleluia.
 
 ****
 
@@ -1692,11 +1573,9 @@ You have loved right and hated wrong.
 
 **\]**
 
-Therefore God your God has anointed you.
-Hail, throne formed of fire, more glorious than the four living creatures. Alleluia.
+Therefore God your God has anointed you. Hail, throne formed of fire, more glorious than the four living creatures. Alleluia.
 
-With the oil of gladness beyond your fellows.
-Hail, Mary, Lady of us all. Hail, Mother of life. Alleluia.
+With the oil of gladness beyond your fellows. Hail, Mary, Lady of us all. Hail, Mother of life. Alleluia.
 
 ****
 
@@ -1708,18 +1587,15 @@ Kings’ daughters are in your train.
 
 **\]**
 
-The Queen stood at your right hand.
-Hail, highly blessed, highly glorified. Alleluia.
+The Queen stood at your right hand. Hail, highly blessed, highly glorified. Alleluia.
 
 Arrayed in gold, wrought with many colours.
 
 Hail, immaculate Mother of God, for you gave birth to the Saviour of our souls. Alleluia.
 
-Listen my daughter and see, and incline your ear.
-Hail, Paradise most holy. Hail, Bride without bridegroom. Alleluia.
+Listen my daughter and see, and incline your ear. Hail, Paradise most holy. Hail, Bride without bridegroom. Alleluia.
 
-And forget your people and your father’s house.
-Hail, greater holy of holies. Hail, Bride without bridegroom. Alleluia.
+And forget your people and your father’s house. Hail, greater holy of holies. Hail, Bride without bridegroom. Alleluia.
 
 ****
 
@@ -1731,8 +1607,7 @@ And the daughter of Tyre will worship you with gifts.
 
 **\]**
 
-The richest of the people will entreat your favour.
-All-holy Virgin, listen to the voice of your unprofitable servant. Guide me to offer you without ceasing the groanings of my heart, Sovereign Lady. Alleluia.
+The richest of the people will entreat your favour. All-holy Virgin, listen to the voice of your unprofitable servant. Guide me to offer you without ceasing the groanings of my heart, Sovereign Lady. Alleluia.
 
 ****
 
@@ -1748,8 +1623,7 @@ Instead of your fathers, sons are born to you. You will make them rulers over al
 
 **\]**
 
-I will remember your name throughout all generations.
-All-holy Virgin, Bride of God, accept my pitiable service and bring it to God the compassionate, that rejoicing I may give you glory, O All-blameless. Hail, Bride without bridegroom. Alleluia.
+I will remember your name throughout all generations. All-holy Virgin, Bride of God, accept my pitiable service and bring it to God the compassionate, that rejoicing I may give you glory, O All-blameless. Hail, Bride without bridegroom. Alleluia.
 
 ****
 
@@ -1767,7 +1641,7 @@ Alleluia, Alleluia, Alleluia. Glory to your our God, glory to you.
 
 Anavathmi.
 
-** A series of short hymns, based on the Psalms of Ascents (Greek *Anavathmi*), nos. 119-133, which are sung at Matins on Sundays, and Feasts with a Gospel. On Sundays they are divided into three Antiphons, except for Tone Eight, which has four. They are sung immediately before the *Prokeimenon.* On Feasts the first Antiphon of Tone Four is always used, and hence the *Prokeimenon* on Feasts is always sung in that Tone. Some places use the final hymn from the Second Antiphon in Tone Four, rather than repeat the third one. The latter is more correct, but for convenience we give the alternative as well. ****
+A series of short hymns, based on the Psalms of Ascents (Greek *Anavathmi*), nos. 119-133, which are sung at Matins on Sundays, and Feasts with a Gospel. On Sundays they are divided into three Antiphons, except for Tone Eight, which has four. They are sung immediately before the *Prokeimenon.* On Feasts the first Antiphon of Tone Four is always used, and hence the *Prokeimenon* on Feasts is always sung in that Tone. Some places use the final hymn from the Second Antiphon in Tone Four, rather than repeat the third one. The latter is more correct, but for convenience we give the alternative as well. ****
 
 Apolytikion.
 
@@ -1787,7 +1661,7 @@ A series of hymns divided into nine Odes, each linked to one of the nine Biblica
 
 Canonarch.
 
-** The monk whose task it is to see that the sin*g*ers sing the correct texts in the correct Tone. He also reads the verses of the Prokeimenon and similar texts. In Slav use these duties have been taken over by the Deacon. ****
+The monk whose task it is to see that the sin*g*ers sing the correct texts in the correct Tone. He also reads the verses of the Prokeimenon and similar texts. In Slav use these duties have been taken over by the Deacon. ****
 
 Doxology.
 
@@ -1823,7 +1697,7 @@ A convenient word used to indicate those parts of the office which are tradition
 
 Ikos.
 
-** See **Kontakion***.* ****
+See **Kontakion***.* ****
 
 Irmos.
 
@@ -1831,7 +1705,7 @@ The verse which gives the tune to which the following Ode of a Canon is to be su
 
 Kalymafchion.
 
-** Also called in monastic language a *skoupho,* or ‘bonnet’. The familiar ‘stove pot’ hat of Orthodox bishops, priests and deacons. In Greek use those of the secular clergy have a brim on top. Monks, whether priests or not, wear a cowl (Greek *koukoulli*, from Latin *cucullus*) over their *skoupho.* When worn by secular Archimandrites and Bishops it is called an *Epanokalymafchion* or ‘over kalymafchion’. The Russian cowl is permanently attached to the *skoupho*, and the whole is called a *klobuk*, but the Greek cowl can be removed separately, and the rules for when to wear what are quite complicated. ****
+Also called in monastic language a *skoupho,* or ‘bonnet’. The familiar ‘stove pot’ hat of Orthodox bishops, priests and deacons. In Greek use those of the secular clergy have a brim on top. Monks, whether priests or not, wear a cowl (Greek *koukoulli*, from Latin *cucullus*) over their *skoupho.* When worn by secular Archimandrites and Bishops it is called an *Epanokalymafchion* or ‘over kalymafchion’. The Russian cowl is permanently attached to the *skoupho*, and the whole is called a *klobuk*, but the Greek cowl can be removed separately, and the rules for when to wear what are quite complicated. ****
 
 Katavasia.
 
@@ -1847,7 +1721,7 @@ Originally a ‘verse sermon’ consisting of a *Proemium* followed by a series 
 
 Megalynarion.
 
-** A short verse containing, either at the beginning or end, the words ‘We magnify’ ** (Greek *megalynomen*). On the Feasts of the Lord a series of *megalynaria* is provided to be sung with the Ninth Ode of the Canon. In Russian use *megalynaria* are sung with the third part of the *Polyeleos.* The best known is the one that on most days accompanies the *Magnificat* and which begins ‘Greater in honour than the Cherubim’*.* ****
+A short verse containing, either at the beginning or end, the words ‘We magnify’ (Greek *megalynomen*). On the Feasts of the Lord a series of *megalynaria* is provided to be sung with the Ninth Ode of the Canon. In Russian use *megalynaria* are sung with the third part of the *Polyeleos.* The best known is the one that on most days accompanies the *Magnificat* and which begins ‘Greater in honour than the Cherubim’*.* ****
 
 Menaion.
 
@@ -1859,7 +1733,7 @@ A low bow in which the right hand touches the ground. Slavonic *poklon.* Also us
 
 Orarion.
 
-** The Deacon’s stole. It is worn on the left shoulder and sometimes taken across diagonally under the right arm and again over the left shoulder. It is also worn crossed on the back by readers and sub-deacons. ****
+The Deacon’s stole. It is worn on the left shoulder and sometimes taken across diagonally under the right arm and again over the left shoulder. It is also worn crossed on the back by readers and sub-deacons. ****
 
 Phelonion.
 
@@ -1867,7 +1741,7 @@ The Eastern equivalent of the Western chasuble. The rubrics direct that the prie
 
 Polyeleos.
 
-Psalms 134 and 135 which are sung as the third Kathisma of the Psalter on major Feasts. They are so called because of the many (*poly*) repetitions of the word ‘mercy’ (*eleos*) in Psalm 135. The third section consists of selected psalm verses for each major feast. In Russian use these are usually to reduced to one or two, accompanied by a *Megalynarion.* The word *Polyeleos* is also the name given to the great chandelier which hangs directly beneath the central dome of the choir. It symbolizes Christ, the ‘most merciful’. When furnished with oil lamps it also uses ‘much oil’ (Greek *poly elaion*). On the Holy Mountain the *Polyeleos* is lighted and swung, to spectacular effect, at ‘Lord, I have cried’ and during the *Polyeleos* at great Vigils. It is also lighted at the Great Entrance on major Feasts, and also at funerals. Around the *polyeleos* there ** often hangs a great metal circle, decorated with icons, normally including the twelve Apostles, and surmounted by candles. This is known as a *choros.* ****
+Psalms 134 and 135 which are sung as the third Kathisma of the Psalter on major Feasts. They are so called because of the many (*poly*) repetitions of the word ‘mercy’ (*eleos*) in Psalm 135. The third section consists of selected psalm verses for each major feast. In Russian use these are usually to reduced to one or two, accompanied by a *Megalynarion.* The word *Polyeleos* is also the name given to the great chandelier which hangs directly beneath the central dome of the choir. It symbolizes Christ, the ‘most merciful’. When furnished with oil lamps it also uses ‘much oil’ (Greek *poly elaion*). On the Holy Mountain the *Polyeleos* is lighted and swung, to spectacular effect, at ‘Lord, I have cried’ and during the *Polyeleos* at great Vigils. It is also lighted at the Great Entrance on major Feasts, and also at funerals. Around the *polyeleos* there often hangs a great metal circle, decorated with icons, normally including the twelve Apostles, and surmounted by candles. This is known as a *choros.* ****
 
 Prokeimenon.
 
@@ -1875,7 +1749,7 @@ A refrain from a Psalm, sung together with one or more verses from the Psalm, th
 
 Royal Office.
 
-** The short office that precedes the Six Psalms at Matins. It originated in the monasteries of ‘royal foundation’, as an intercession for the Imperial Family. ****
+The short office that precedes the Six Psalms at Matins. It originated in the monasteries of ‘royal foundation’, as an intercession for the Imperial Family. ****
 
 Sticharion.
 
@@ -1883,7 +1757,7 @@ A tunic-like vestment, resembling the Western dalmatic when worn by servers, rea
 
 Sticheron.
 
-A hymn that follows a verse, in Greek *stichos*, from the Psalms. At Vespers there are always stichera at ‘Lord, I have cried’, but at Lauds at ‘Let everything that has breath, ** only on Sundays and feasts. At the *Aposticha* one sticheron is sung before the first psalm verse. The Aposticha at Vespers on Sundays form an alphabetical acrostic, three letters each week, but the first sticheron in each Tone does not form part of the series. ****
+A hymn that follows a verse, in Greek *stichos*, from the Psalms. At Vespers there are always stichera at ‘Lord, I have cried’, but at Lauds at ‘Let everything that has breath, only on Sundays and feasts. At the *Aposticha* one sticheron is sung before the first psalm verse. The Aposticha at Vespers on Sundays form an alphabetical acrostic, three letters each week, but the first sticheron in each Tone does not form part of the series. ****
 
 Synaxarion.
 
@@ -1905,9 +1779,6 @@ Ypakoï.
 
 A short hymn that takes the place of the third poetic *Kathisma* at Matins on Sundays and some greater Feasts. It is normally read and not sung. In Greek use it is also read at the Hours on Sundays in place of the *Kontakion*. In strict Athonite use it is sung at the Liturgy after the *Apolytikia* and before the *Kontakia*.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

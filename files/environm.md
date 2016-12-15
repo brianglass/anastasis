@@ -6,9 +6,6 @@
 Office of supplication to our God and Saviour Jesus Christ, who loves humankind, for our environment and for the welfare of the whole creation.
 -----------------------------------------------------------------------------------------------------------------------------------------------
 
-<img src="City031.gif" width="384" height="288" />
---------------------------------------------------
-
 INTRODUCTION
 ------------
 
@@ -21,8 +18,6 @@ The following translation was originally made at the request of the European Cou
 In my original translation I added some five dozen footnotes giving references to the many quotations and allusions to Holy Scripture in which the text abounds. I have not added them here, so as not to clutter the text, but I may do so when I move the office to the Geniza. The translations from Holy Scripture are my own. In the Old Testament readings there are a number of differences from the Hebrew and even, in the reading from Isaias taken from the Menaion for 1 September, from the standard text of the Septuagint. I have not attempted to reproduce the acrostic of Canon.
 
 The present Patriarch of Constantinople, His All-Holiness Bartolomew I, has maintained and developed the interest and concern of the Patriarchate for the problems of the environment and this office is now used by a number of Orthodox Churches, either on the 1 September itself or on the first Sunday of September.
-
-------------------------------------------------------------------------
 
 AT VESPERS
 ----------
@@ -53,23 +48,19 @@ Who will not call you blessed, All-holy Virgin? Who will not sing the praise of 
 
 **Entrance,** O Joyful Light, **the Prokeimenon of the day and the Readings**.
 
-The Reading is from Leviticus.
-\[**26:3-12, 14-17, 19-20, 22, 33, 23-24**\]
+The Reading is from Leviticus. \[**26:3-12, 14-17, 19-20, 22, 33, 23-24**\]
 
 **T**he Lord spoke to the children of Israel saying, ‘If you walk in my ordinances and keep my commandments and do them, I will give you rain in its season and the earth will give its produce and the trees of the plains their fruit. Your threshing time will overtake the vintage, and the vintage will overtake the sowing. You will eat your bread to the full and dwell in safety on your land; and no one shall make you afraid. And I will destroy the evil wild beasts from your lands, and war shall not pass through your land, and enemies will fall before you. Five of you will pursue a hundred and a hundred of you will pursue tens of thousands. And I will look upon you and bless you and make you increase and multiply and I will establish my covenant with you. And you will eat what is old and very old, and bring out the old to make way for the new. And my soul will not abhor you, and I will walk among you, and I will be your God and you shall be my people. But if you will not listen to me, nor observe these ordinances of mine, but disobey them, and if your soul loathes my judgements, so that you do not keep all my commandments, I in turn will treat you like this: I will bring distress upon you, and you will sow your seed in vain and your enemies will devour your labours. And I will set my face against you and you will fall before your foes and they will pursue you and you will flee though no one pursues you; and I will smash the arrogance of your pride. And I will make the heaven like iron for you and your earth like solid bronze. And your strength will be in vain and your land will not give its fruit, and the trees of the field will not give their fruit. And I will send the wild beasts of the earth against you, and they will consume your cattle, and the sword will come against you and make you few in number. And your land will be desert and your farms will be desert; because you have walked against me crookedly, and I will walk against you with crooked rage, says the Lord God, the Holy One of Israel’.
 
-The Reading is from the Prophecy of Isaias.
-\[**63:15-64:5a, 8-9**\]
+The Reading is from the Prophecy of Isaias. \[**63:15-64:5a, 8-9**\]
 
 **L**ook down, Lord, from heaven and see, from your holy house and your glory. Where is the abundance of your mercy and of your acts of pity, that you have withheld yourself from us? For you are our Father, because Abraham has not known us, nor Israel acknowledged us. But do you, Lord, our Father, deliver us; from the beginning your name is upon us. Why have you made us wander from your way, Lord? Why have you hardened our hearts not to fear you? Return for the sake of your servants, for the sake of the tribes that are your heritage, that in a little while we may inherit your holy mountain. Our enemies have trampled down your sanctuary, we have become as at the beginning when you did not rule over us, nor had your name been invoked upon us. If you open the heaven, trembling from you will seize the mountains and they will melt as wax melts before the fire, and fire will burn up your adversaries, and your name will be manifest among your adversaries; nations will be troubled at your presence. When you do glorious deeds, trembling from you will seize the mountains. From eternity we have not heard, nor have our eyes seen any God but you. And your works are true, and you will perform mercy for those who wait for you. For mercy will meet with those who do right and remember your ways. And now, Lord, you are our Father, while we are clay and you are our Fashioner. We are all the work of your hands. Do not be exceedingly angry with us, Lord, and do not remember our sins for ever. And now, look upon us, Lord, because we are all your people.
 
-The Reading is from the Prophecy of Jeremias.
-\[**2:1-12**\]
+The Reading is from the Prophecy of Jeremias. \[**2:1-12**\]
 
 **T**hus says the Lord: ‘I have remembered the mercy of your youth and the love of your marriage, of your following the Holy One of Israel, says the Lord, the Holy One of Israel. The beginning of his produce was for the Lord. All those who devoured him will offend and evils will come upon them, says the Lord. Hear the word of the Lord, house of Jacob, and every family of the house of Israel. Thus says the Lord, What offence did your fathers find in me, that they revolted far from me and went after vanities and became vain? And they did not say, ‘Where is the Lord who brought us up out of the land of Egypt, who guided us in the wilderness, in a boundless and trackless land, in a land without water or fruit, and in the shadow of death, in a land through which no man had passed, nor had any son of man dwelt there?‘ And I led you to Carmel to eat its fruits and its good things; and you went in and you defiled my land and made my inheritance an abomination. The priests did not say ‘Where is the Lord?‘ And those who cling to the law did not know me, and the shepherds acted impiously towards me, and the prophets prophesied by Baal and went after that which does not profit. Therefore I will be brought to trial before you again, says the Lord, and I will be brought to trial before your children’s children. Cross to the islands of the Kittim and look, and to Kedar and send and observe carefully; and see if such things have been done; if the nations will change their gods, though they are no gods. But my people have changed their glory for something from which they will gain nothing. Heaven was amazed at this and trembled exceedingly, says the Lord.
 
-**At the Liti, Idiomela.
-Tone 1.**
+**At the Liti, Idiomela. Tone 1.**
 
 Lord, who created the universe at the beginning and gave to each thing its own rank, do not despise the works of your hands, but with an eye of mercy look from heaven upon this vine and restore it according to your will, turning aside from it every purpose that brings corruption and every destroyer; for you are our Shepherd, Deliverer and Saviour, and from you, Master, we receive help in mercy and acts of compassion, as we glorify you.
 
@@ -89,8 +80,7 @@ Both now. **Theotokion.**
 
 From dangers of every kind protect your servants, blessed Mother of God, that we may glorify you, the hope of our souls.
 
-**At the Aposticha, Prosomia.
-Tone 5. Hail, of ascetic struggles.**
+**At the Aposticha, Prosomia. Tone 5. Hail, of ascetic struggles.**
 
 Merciful God, who love mankind, look with an eye of compassion on the works of your hands and set free the expanse of the atmosphere from dread destruction and death-dealing emissions and every poisonous pollution, through which death and danger threaten. Take pity then on what you have fashioned and give to all the prudence not to act senselessly, whose result is corruption, and grant to all pardon, salvation and your divine mercy.
 
@@ -119,8 +109,7 @@ The mystery hidden from all eternity and unknown to Angels has been revealed to 
 AT MATINS
 ---------
 
-**After the 1st Reading from the Psalter, Kathisma.
-Tone 1. The soldiers watching.**
+**After the 1st Reading from the Psalter, Kathisma. Tone 1. The soldiers watching.**
 
 O Lord, as God you sustain all things by a word, and keep them all in perfect harmony. As you are compassionate keep unaltered the environment which enwraps creation and by your ineffable power turn away from the earth every harm.
 
@@ -128,8 +117,7 @@ O Lord, as God you sustain all things by a word, and keep them all in perfect ha
 
 All-blameless Virgin, beyond nature you conceived God and gave birth to him in the flesh. Through the abundance of your mercy take pity on those who glorify you in faith and by the streams of your grace cleanse our minds and hearts from sins of many kinds.
 
-**After the 2nd Reading, Kathisma.
-Tone 4. Joseph was amazed.**
+**After the 2nd Reading, Kathisma. Tone 4. Joseph was amazed.**
 
 In the beginning, Saviour, universal King, you founded the earth, while the heavens are the works of your hands, and the stars also with the sun and the moon. All things proclaim your greatness and your strength. Keep their harmony and majesty untroubled, for all things, O Word, are subject to your almighty will.
 
@@ -137,8 +125,7 @@ In the beginning, Saviour, universal King, you founded the earth, while the heav
 
 Ineffably, Mary, you conceived in your womb without change and without confusion the God who is beyond being; and beyond nature you brought forth for those in the world the One who delivers us from condemnation. Therefore we sing the praise of your many mighty works and glorify with faith your child-bearing beyond understanding. But, O Virgin who bore God, deliver us from every affliction.
 
-**After the Polyeleos, Kathisma.
-Tone 8. The Wisdom and Word.**
+**After the Polyeleos, Kathisma. Tone 8. The Wisdom and Word.**
 
 Lord, Lover of mankind, King of all creation, who bring all things into being from nothing, keep unharmed the order which you established and grant your servants temperate climates. Therefore too, diffusing mild airs, disperse all noxious pollutions from the earth, all-powerful Giver of life, and grant your peace to all the nations, that we may all sing the praise of your goodness.
 
@@ -152,8 +139,7 @@ Lord, our Lord, how wonderful is your name in all the earth. \[**Ps. 8:1**\]
 
 **Verse:** For I will consider the heavens the works of your fingers; the moon and the stars which you established. \[**Ibid. 3**\]
 
-The Reading is from the Holy Gospel according to Luke.
-\[**18:2-8**\]
+The Reading is from the Holy Gospel according to Luke. \[**18:2-8**\]
 
 **T**he Lord spoke this parable: In a certain city there was a judge who neither feared God nor had respect for people. In that city there was a widow who kept coming to him and saying, ‘Grant me justice against my opponent‘. For a while he refused; but later he said to himself, ‘Though I have no fear of God and no respect for anyone, yet because this widow keeps pestering me, I will grant her justice, so that she may not wear me out by continually coming’. And the Lord said: Listen to what the unjust judge says. Will God not grant justice also to his chosen ones who cry to him day and night? Will he delay long in helping them? I tell you, he will quickly grant them justice.
 
@@ -173,7 +159,7 @@ Have mercy on me, O God, in accordance with your great mercy. According to the f
 
 Lord, who with wisdom keep, maintain and direct all things for our government and sure guidance in the paths of your commandments, accept our suppliant entreaties and rescue us from impending dangers and from all change for the worse of the bounds of nature, and save our souls.
 
-**Deacon:** ** O God, save your people…
+**Deacon:** O God, save your people…
 
 **Then the Canon, of which the Acrostic is:**
 
@@ -279,9 +265,7 @@ Loving Saviour, we praise the manifestations of your providence and your many sa
 
 On the same day, the beginning of the Indiction, we entreat our God, who loves mankind, for the welfare of the earth on which we live and for the whole creation.
 
-**Verses**
-We fall before you, Master, as we cry:
-O Saviour, from pollutions free the earth.
+**Verses** We fall before you, Master, as we cry: O Saviour, from pollutions free the earth.
 
 To him be glory and might to the ages. Amen.\]
 
@@ -343,8 +327,7 @@ You once stretched out the heavens at your command, Lord, as the Prophet says, a
 
 The Maker of creation through his goodness took human form from you, and was created beyond nature from your pure blood. As his all-pure Mother, O all-immaculate, ask him for us, we beg, that we may find salvation.
 
-**At Lauds we insert 4 Stichera and sing the following Prosomia.
-Tone 4. You have given us a sign.**
+**At Lauds we insert 4 Stichera and sing the following Prosomia. Tone 4. You have given us a sign.**
 
 With compunction we offer you our praise, Lover of mankind, and with faith we cry out to you: As Creator you hold fast the ends of the earth, and you maintain and govern them. From noxious emanations and from dire pollutions that harbour bitter death, rescue humanity which you fashioned, for you are pitying and compassionate.
 
@@ -375,8 +358,7 @@ Great is our God, and great is his strength.
 
 **Verse:** Praise the Lord, for psalmody is good: let praise be given sweetly to our God.
 
-The Reading is from the 1st Epistle of Paul to Timothy.
-\[**2:1-7**\]
+The Reading is from the 1st Epistle of Paul to Timothy. \[**2:1-7**\]
 
 **C**hild Timothy, first of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for everyone, for kings and all who are in high positions, so that we may lead a quiet and peaceable life in all godliness and dignity. This is right and is acceptable in the sight of God our Saviour, who desires all to be saved and to come to the knowledge of the truth. For there is one God; there is also one mediator between God and humanity, a human being, Christ Jesus, who gave himself as a ransom for all; this was attested at the right time. For this I was appointed a herald and an apostle (I am telling the truth in Christ, I am not lying), a teacher of the Gentiles in faith and truth.
 
@@ -388,8 +370,7 @@ Alleluia in the 4th Tone. \[**Psalm 64**\]
 
 **Verse 2:** We shall be filled with good things of your house.
 
-The Reading is from the holy Gospel according to Luke.
-\[**4:16-22**\]
+The Reading is from the holy Gospel according to Luke. \[**4:16-22**\]
 
 **A**t that time Jesus came to Nazareth, where he had been brought up, he went to the synagogue on the Sabbath day, as was his custom. He stood up to read, and the scroll of the prophet Isaias was given to him. He unrolled the scroll and found the place where it was written: The Spirit of the Lord is upon me, because he has anointed me to bring good news to the poor. He has sent me to proclaim release to the captives and recovery of sight to the blind, to let the oppressed go free, to proclaim the year of the Lord’s favour. And he rolled up the scroll, gave it back to the attendant, and sat down. The eyes of all in the synagogue were fixed on him. Then he began to say to them: Today this scripture has been fulfilled in your hearing. All spoke well of him and were amazed at the gracious words that came from his mouth.
 
@@ -403,21 +384,10 @@ Praise the Lord from the heavens, praise him in the highest. Alleluia!
 
 At all times keep unharmed the whole creation we beg you, O Redeemer, and grant us breaths of winds and breezes moist with dew for our safety and salvation, O Lover of mankind.
 
-------------------------------------------------------------------------
-
-**Distich.**
-Gerasimos, O Master, cries with faith:
-Grant to creation a mild atmosphere.
-
-<img src="Mount026.gif" width="384" height="288" />
-
-------------------------------------------------------------------------
+**Distich.** Gerasimos, O Master, cries with faith: Grant to creation a mild atmosphere.
 
 Translation © Archimandrite Ephrem 1997
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

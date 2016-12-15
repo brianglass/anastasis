@@ -160,9 +160,6 @@ Theotokion.
 
 Show me to be a light formed temple of your single Divinity of triple light, that in purity I may worship you, the Creator of all things; show me to be one who in spirit contemplates your ineffable glory, at the prayers of the only Mother of God; whom fittingly we magnify as greatly glorious.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

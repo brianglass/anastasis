@@ -5,7 +5,7 @@
 AT GREAT VESPERS
 ================
 
-**After the Opening Psalm, the 1st Section of** ** Blessed is the man. **At** ** Lord I have cried **we insert 8 stichera, and we sing 4 Idiomels of the Dedication and 4 Prosomia of the patron Saint.**
+**After the Opening Psalm, the 1st Section of** Blessed is the man. **At** Lord I have cried **we insert 8 stichera, and we sing 4 Idiomels of the Dedication and 4 Prosomia of the patron Saint.**
 
 Of the Dedication. Tone 6.
 
@@ -33,7 +33,7 @@ Glory.
 
 **Of the Saint of the Church.**
 
-Both now. **
+Both now.
 
 **Tone 2. By Anatolios.**
 
@@ -71,7 +71,7 @@ With wisdom God founded the earth. He prepared the heavens with understanding. W
 
 Then the Litany as usual and after it
 
-** Let us complete our evening prayer… ****
+Let us complete our evening prayer… ****
 
 Aposticha. Idiomels of the Dedication.
 
@@ -83,7 +83,7 @@ Be renewed, be renewed, O new Jerusalem; for your light has come and the glory o
 
 Verse:
 
-** Glorious things have been said of you, City of God. **\[Psalm 86,3\]**
+Glorious things have been said of you, City of God. **\[Psalm 86,3\]**
 
 The same tone. By Anatolios.
 
@@ -93,7 +93,7 @@ Of old when Solomon dedicated the temple he offered you, Lord, sacrifices and ho
 
 Verse:
 
-** The Lord loves the gates of Sion, more than all the tabernacles of jacob. ****
+The Lord loves the gates of Sion, more than all the tabernacles of jacob. ****
 
 \[Psalm 86,2\]
 
@@ -105,17 +105,17 @@ Glory.
 
 **Of the Saint of the Church.**
 
-Both now. **
+Both now.
 
 **Of the Dedication. Tone 3.**
 
-Come back to yourself, O mortal; become new instead of old; feast the rededication of your soul. While there is time, let life be renewed for you, the road of every way of living. The ancient things have passed away. See, all things have become new. <sup></sup> Bear this fruit for the feast, making the change to a fair change. In this way a person is renewed, in this way the day of Dedication is honoured.
+Come back to yourself, O mortal; become new instead of old; feast the rededication of your soul. While there is time, let life be renewed for you, the road of every way of living. The ancient things have passed away. See, all things have become new. Bear this fruit for the feast, making the change to a fair change. In this way a person is renewed, in this way the day of Dedication is honoured.
 
 ****
 
 After
 
-** Now, Master**, the Trisagion***,* All-Holy Trinity, Our Father. ****
+Now, Master**, the Trisagion***,* All-Holy Trinity, Our Father. ****
 
 Apolytikion of the Dedication. Tone 4.
 
@@ -159,11 +159,11 @@ Greater in honour than the Cherubim, and beyond compare more glorious than the S
 
 Celebrant:
 
-** Glory to you, Christ God, our hope. Glory to you. ****
+Glory to you, Christ God, our hope. Glory to you. ****
 
 Reader:
 
-** Glory to the Father and to the Son and to the Holy Spirit, both now and for ever, and to the ages of ages. Amen. Lord, have mercy. Lord, have mercy. Lord, have mercy. Holy Master, give the blessing. ****
+Glory to the Father and to the Son and to the Holy Spirit, both now and for ever, and to the ages of ages. Amen. Lord, have mercy. Lord, have mercy. Lord, have mercy. Holy Master, give the blessing. ****
 
 Celebrant.
 
@@ -173,15 +173,12 @@ May
 
 Bishop:
 
-** Through the prayers of our holy Fathers, Lord Jesus Christ, our God, have mercy upon us. Amen. ****
+Through the prayers of our holy Fathers, Lord Jesus Christ, our God, have mercy upon us. Amen. ****
 
 reader:
 
-** Through the prayers of our holy Master, Lord Jesus Christ, our God, have mercy upon us. Amen.
+Through the prayers of our holy Master, Lord Jesus Christ, our God, have mercy upon us. Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

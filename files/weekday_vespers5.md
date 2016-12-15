@@ -9,8 +9,7 @@ ON SUNDAY EVENING
 
 At
 
-Lord, I have cried, **Prosomia of the Lord.
-O marvellous wonder!**
+Lord, I have cried, **Prosomia of the Lord. O marvellous wonder!**
 
 Oh, how I continue without a care! Heedlessly I pass the time I have for life, not thinking of my many sins, nor the dread threat of death and the impartiality of the trial. Oh, who will deliver me from the everlasting fire, unless you, my God, alone most good, take pity on me?
 
@@ -20,8 +19,7 @@ As long as the time of this present life is there for you, O soul, repent and to
 
 ****
 
-Other Prosomia, of the Bodiless Powers.
-Lord, though at the judgement seat.
+Other Prosomia, of the Bodiless Powers. Lord, though at the judgement seat.
 
 O Lord, the ranks of the Bodiless Ones glorify you without ceasing, filled with joy at your beauty and richly irradiated by your inexpressible loveliness and three-sunned radiance. At their prayers and intercessions, Saviour, save our souls.
 
@@ -31,8 +29,7 @@ O Lord, the Seraphim hymn you, Powers and Angels, Principalities, Dominions, Thr
 
 Glory. Both now.
 
-**Theotokion.
-O marvellous wonder!**
+**Theotokion. O marvellous wonder!**
 
 Hail, destruction of demons; hail, daughter of Adam, who truly flowered with the flower that does not fade; hail glory of your servants; hail all-unblemished, release from dangers; hail gift given by God; preservation of the world of those who call upon you; hail, Holy one. Hail, Sovereign Lady, glory of those who glorify you.
 
@@ -52,8 +49,7 @@ Martyrs of the Lord, you hallow every place and heal every disease; and now we b
 
 Glory. Both now.
 
-**Theotokion.
-O marvellous wonder!**
+**Theotokion. O marvellous wonder!**
 
 Hail living palace, spiritual dove, hail city of your Creator; hail refuge and bulwark of the faithful, the protection, the salvation and the redemption of those who trust in you; hail bridge leading all across to heaven; hail all-blessed, holy Sovereign Lady!
 
@@ -66,8 +62,7 @@ Hail living palace, spiritual dove, hail city of your Creator; hail refuge and b
 
 At
 
-Lord, I have cried, **Prosomia of the Lord.
-Tone 8. O marvellous wonder!**
+Lord, I have cried, **Prosomia of the Lord. Tone 8. O marvellous wonder!**
 
 To what have you been likened, my soul, who have passed your life in great idleness, and weighed down by the profound sleep of a harsh fall? Run, hurry, and fall down before the one who knows all things; weep and ask time for repentance for yourself, before, unhappy wretch, you become fuel for the unquenchable fire.
 
@@ -77,8 +72,7 @@ I have squandered my whole livelihood and my life shamefully and prodigally, mak
 
 ****
 
-Other stichera, of the Forerunner.
-The same melody.
+Other stichera, of the Forerunner. The same melody.
 
 Shoot of the barren, plant of purity, adornment of mortals, the Master’s Forerunner, all-praised John, the godly guardian of my lowly soul, give me your intercession and help, delivering me from the wiles of the serpent and from his evil attack and assault.
 
@@ -121,8 +115,7 @@ Your protection, Virgin Mother of God, is a spiritual surgery; for when we take 
 
 At
 
-Lord, I have cried, **we insert 6 stichera and sing Prosomia of the Cross.
-Tone 8. O marvellous wonder.**
+Lord, I have cried, **we insert 6 stichera and sing Prosomia of the Cross. Tone 8. O marvellous wonder.**
 
 O Word of God, supremely good, as one condemned hanged on a Cross for us, snatch us from the fire to come, from dread condemnation and from every other penalty, at the entreaties of the Mother of God. For day after day by thoughts we all anger you, O Christ, supremely good and lover of humankind.
 
@@ -140,7 +133,7 @@ Hail, Mother of God, all-pure! Hail, source of life! Hail, heavenly Ladder! Hail
 
 Hail, Lady, Mother of God! Hail, only hope and assistance of mortals! Hail, refuge! Hail, Lamp-stand of light! Hail, resplendent Palace! Hail, light-bearing Lamp-holder! Hail, unsullied boast of virginity! Hail, Source, pouring out healings for those who draw near you!
 
-Glory. Both now. **
+Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
@@ -160,7 +153,7 @@ Of the Martyrs. Model melody.
 
 You Martyrs, Lord, forgetting the things of this life and despising torments for the sake of life to come, were declared its inheritors. Therefore they rejoice too with the Angels. At their intercessions, grant your people your great mercy.
 
-Glory. Both now. **
+Glory. Both now.
 
 **Cross-Theotokion.**
 
@@ -175,8 +168,7 @@ ON WEDNESDAY EVENING
 
 At
 
-** Lord, I have cried*,* **Prosomia of the Apostles.
-Tone 8. Lord, though at the judgement seat.**
+Lord, I have cried*,* **Prosomia of the Apostles. Tone 8. Lord, though at the judgement seat.**
 
 Lord, with the beam of the Spirit you enlightened your Apostles, and set them as beacons, lighting the inhabited world with the spiritual illumination of your knowledge, Master; and so we worship your great goodness.
 
@@ -214,8 +206,7 @@ It there is any virtue, and if there is any praise, it belongs to the Saints; fo
 
 Glory. Both now.
 
-**Theotokion.
-O Saints, what shall we call you?**
+**Theotokion. O Saints, what shall we call you?**
 
 Those who were found worthy to look on God in bodily form, proclaimed you Bride and Virgin of the Father’s dignity and Godhead, Mother of the Word and God, and dwelling of the Holy Spirit; for in you, Maiden, the whole fullness of the Godhead dwelt in bodily form, when grace was full and perfect.
 
@@ -228,8 +219,7 @@ ON THURSDAY EVENING
 
 At
 
-** Lord, I have cried*,* **we sing Prosomia of the Cross.
-Tone 8. Your Angel, Lord.**
+Lord, I have cried*,* **we sing Prosomia of the Cross. Tone 8. Your Angel, Lord.**
 
 The lawless people condemned you, my Jesu, the Lord and Creator of the whole world, to be crucified between lawless men; and when it saw their shameless deed the whole earth quaked, revealing you, Master, to be the Maker of all things.
 
@@ -338,9 +328,6 @@ Pure Virgin, Gate of the Word, Mother of our God, intercede that we may be saved
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

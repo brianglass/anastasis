@@ -50,9 +50,7 @@ Lord, have mercy, (
 
 **x12**), Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -100,8 +98,7 @@ Lord, who at the third hour…
 
 \[
 
-**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses.
-**Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\]
+**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses.** Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\]
 
 Glory. Both now.
 
@@ -177,22 +174,19 @@ Reader:
 
 Amen. ****
 
-On Monday
-Kontakion. Tone 8.
+On Monday Kontakion. Tone 8.
 
 Jacob lamented the loss of Joseph, and the noble one was seated in a chariot, honoured like a king; for as he had not been slave to the pleasures of the Egyptian woman, he was glorified in return by the one who sees the hearts of men, and bestows an incorruptible crown.
 
 ****
 
-On Tuesday
-Kontakion. Tone 2
+On Tuesday Kontakion. Tone 2
 
 Think, miserable soul, on the hour of the end, and made fearful by the cutting down of the fig tree, work with love of toil at the talent given you, as you watch and cry: May we not be left outside Christ’s bridal chamber!
 
 ****
 
-On Wednesday
-Kontakion. Tone 4. Lifted up on the Cross.
+On Wednesday Kontakion. Tone 4. Lifted up on the Cross.
 
 I have transgressed far more than the harlot, O Good One, yet have never brought you showers of tears; but entreating in silence I fall before you, as I kiss your immaculate feet with love, that as Master you may grant me forgiveness of offences, as I cry out, my Saviour, ‘Deliver me from the filth of my works’.
 
@@ -200,7 +194,7 @@ I have transgressed far more than the harlot, O Good One, yet have never brought
 
 Then:
 
-Lord, have mercy. **** (**x40**)
+Lord, have mercy. (**x40**)
 
 At every time and at every hour, in heaven and on earth worshipped and glorified, Christ God, long-suffering, great in mercy, great in compassion, loving the just and merciful to sinners, calling all to salvation by the promise of the good things to come; do you, Lord, yourself accept our entreaties at this hour, and direct our lives to your commandments. Sanctify our souls, purify our bodies, correct our thoughts, cleanse our ideas and deliver us from every distress, evil, and pain. Wall us about with your holy Angels, that protected and guided by their host we may reach the unity of the faith and the knowledge of your unapproachable glory; for you are blessed to the ages of ages. Amen.
 
@@ -240,9 +234,7 @@ And at once we start the Sixth Hour.
 
 SIXTH HOUR
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -284,8 +276,7 @@ I cried to God and the Lord heard me.
 
 \[
 
-**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses.
-**Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\]
+**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses.** Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\]
 
 Glory. Both now.
 
@@ -297,8 +288,7 @@ Because we have no boldness because of our many sins, entreat the One born of yo
 
 Then the Troparion of the Prophecy, the Prokeimenon and the Prophecy.
 
-On Monday
-Troparion of the Prophecy. Tone 6
+On Monday Troparion of the Prophecy. Tone 6
 
 With contrite soul we fall before you, and we pray to you, Saviour of the world. For you are the God of those who repent.
 
@@ -320,8 +310,7 @@ Verse:
 
 Then was our mouth filled with joy, and our tongue with rejoicing.
 
-The Reading is from the Prophecy of Ezekiel.
-\[
+The Reading is from the Prophecy of Ezekiel. \[
 
 **1:1-20**\]
 
@@ -337,8 +326,7 @@ Verse:
 
 If the Lord does not guard the city, in vain has the guard kept vigil. ****
 
-On Tuesday
-Troparion of the Prophecy. Tone 1.
+On Tuesday Troparion of the Prophecy. Tone 1.
 
 Those who offend beyond measure pardon richly, O Saviour. Count us worthy without condemnation to worship your holy Resurrection, at the prayers of most pure Mother, O alone full of mercy.
 
@@ -360,8 +348,7 @@ Verse:
 
 Out of the depths I have cried to you, O Lord; Lord, hear my voice.
 
-The Reading is from the Prophecy of Ezekiel.
-\[**1:21-28\]**
+The Reading is from the Prophecy of Ezekiel. \[**1:21-28\]**
 
 When the living creatures moved, the wheels also moved; when they stopped, the others stopped; and when they rose from the earth, the wheels rose along with them; for the spirit of life was in the wheels. Over the heads of the living creatures was the likeness of a firmament, shining like crystal, spread out above their wings. Under the firmament their wings were stretched out straight, one toward another; and each of the creatures had two wings covering its body. When they moved, I heard the sound of their wings like the sound of mighty waters, like the voice of God Sadday, a sound of speech like the sound of an army; when they stopped, they let down their wings. And there came a voice from above the firmament over their heads; when they stopped, they let down their wings. And above the firmament over their heads there was the likeness of a throne, in appearance like sapphire; and seated above the likeness of a throne was the likeness of a human form. Upward from what appeared like the loins I saw something like gleaming amber, something that looked like fire enclosed all around; and downward from what looked like the loins I saw something that looked like fire, and there was a splendour all around. Like the bow in a cloud on a rainy day, such was the appearance of the splendour all around. This was the appearance of the likeness of the glory of the Lord.
 
@@ -373,10 +360,9 @@ Let Israel hope in the Lord, \* from henceforth and for evermore.
 
 Verse:
 
-** Lord, my heart has not been exalted, nor have my eyes become lofty. ****
+Lord, my heart has not been exalted, nor have my eyes become lofty. ****
 
-On Wednesday
-Troparion of the Prophecy. Tone 2.
+On Wednesday Troparion of the Prophecy. Tone 2.
 
 To-day the evil Sanhedrin has assembled and meditated vain things against you; to-day Judas from his agreement receives a noose as pledge; Caiaphas unwillingly confesses that one man will accept the voluntary passion for the sake of all. Christ God, our Redeemer, glory to you.
 
@@ -398,8 +384,7 @@ Verse:
 
 Come now, bless the Lord, all you servants of the Lord.
 
-The Reading is from the Prophecy of Ezekiel.
-\[**2:3-3:3\]**
+The Reading is from the Prophecy of Ezekiel. \[**2:3-3:3\]**
 
 The Lord said to me, Son of man, I am sending you to the people of Israel, to a nation of rebels who have rebelled against me; they and their ancestors have transgressed against me to this very day. The descendants are impudent and stubborn. I am sending you to them, and you shall say to them, ‘Thus says the Lord.’ Whether they hear or tremble (for they are a rebellious house), they shall know that you are a prophet among them. And you, son of man, do not be afraid of them, and do not be amazed at their looks, for they will provoke and rise up against you round about, and you live among scorpions; do not be afraid of their words, and do not be dismayed at their looks, for they are a rebellious house. You shall speak my words to them, whether they hear or tremble; for they are a rebellious house. But you, son of man, hear what I say to you; do not be rebellious like that rebellious house; open your mouth and eat what I give you. I looked, and a hand was stretched out to me, and a written scroll was in it. He spread it before me; it had writing on the front and on the back, and written on it were words of lamentation and mourning and woe. He said to me, son of man, eat this scroll, and go, speak to the house of Israel. So I opened my mouth, and he gave me the scroll to eat. He said to me, Son of man, your mouth eats this scroll that is given you and your belly will be filled with it. Then I ate it; and in my mouth it was as sweet as honey.
 
@@ -479,22 +464,19 @@ Reader:
 
 Amen. ****
 
-On Monday
-Kontakion. Tone 8.
+On Monday Kontakion. Tone 8.
 
 Jacob lamented the loss of Joseph, and the noble one was seated in a chariot, honoured like a king; for as he had not been slave to the pleasures of the Egyptian woman, he was glorified in return by the one who sees the hearts of men, and bestows an incorruptible crown.
 
 ****
 
-On Tuesday
-Kontakion. Tone 2
+On Tuesday Kontakion. Tone 2
 
 Think, miserable soul, on the hour of the end, and made fearful by the cutting down of the fig tree, work with love of toil at the talent given you, as you watch and cry: May we not be left outside Christ’s bridal chamber!
 
 ****
 
-On Wednesday
-Kontakion. Tone 4. Lifted up on the Cross.
+On Wednesday Kontakion. Tone 4. Lifted up on the Cross.
 
 I have transgressed far more than the harlot, O Good One, yet have never brought you showers of tears; but entreating in silence I fall before you, as I kiss your immaculate feet with love, that as Master you may grant me forgiveness of offences, as I cry out, my Saviour, ‘Deliver me from the filth of my works’.
 
@@ -502,7 +484,7 @@ I have transgressed far more than the harlot, O Good One, yet have never brought
 
 Then:
 
-Lord, have mercy. **** (**x40**)
+Lord, have mercy. (**x40**)
 
 At every time and at every hour, in heaven and on earth worshipped and glorified, Christ God, long-suffering, great in mercy, great in compassion, loving the just and merciful to sinners, calling all to salvation by the promise of the good things to come; do you, Lord, yourself accept our entreaties at this hour, and direct our lives to your commandments. Sanctify our souls, purify our bodies, correct our thoughts, cleanse our ideas and deliver us from every distress, evil, and pain. Wall us about with your holy Angels, that protected and guided by their host we may reach the unity of the faith and the knowledge of your unapproachable glory; for you are blessed to the ages of ages. Amen.
 
@@ -548,9 +530,7 @@ It is truly right to call you blessed, who gave birth to God, ever-blessed and m
 
 NINTH HOUR
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -600,8 +580,7 @@ O Good One, who was born of a Virgin for our sakes and endured crucifixion; who 
 
 \[
 
-**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses.
-**Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\] ****
+**The current Greek books prescribe the Troparion** Behold the Bridegroom**, as at Matins, for the Hours on the first three days of Holy Week, rather than the Lenten verses.** Behold, the Bridegroom comes in the middle of the night, and blessed is that servant whom he finds watching; but unworthy is the one whom he finds slothful. Take care then, my soul, not to be overcome with sleep, lest you be given up to death, and be shut out of the kingdom; but rouse yourself and cry: Holy, holy, holy are you, O God; through the Mother of God, have mercy on us.\] ****
 
 Priest:
 
@@ -649,20 +628,17 @@ Trisagion,
 
 All-holy Trinity. Our Father. For yours. ****
 
-On Monday
-Kontakion. Tone 8
+On Monday Kontakion. Tone 8
 
 Jacob lamented the loss of Joseph, and the noble one was seated in a chariot, honoured like a king; for as he had not been slave to the pleasures of the Egyptian woman, he was glorified in return by the one who sees the hearts of men, and bestows an incorruptible crown.
 
 ****
 
-On Tuesday
-Kontakion. Tone 2
+On Tuesday Kontakion. Tone 2
 
 Think, miserable soul, on the hour of the end, and made fearful by the cutting down of the fig tree, work with love of toil at the talent given you, as you watch and cry: May we not be left outside Christ’s bridal chamber!
 
-**On Wednesday
-Kontakion. Tone 4. Lifted up on the Cross**
+**On Wednesday Kontakion. Tone 4. Lifted up on the Cross**
 
 I have transgressed far more than the harlot, O Good One, yet have never brought you showers of tears; but entreating in silence I fall before you, as I kiss your immaculate feet with love, that as Master you may grant me forgiveness of offences, as I cry out, O Saviour. ‘Deliver me from the filth of my works’.
 
@@ -714,25 +690,13 @@ Glory. Both now. **At each** Remember **we make a small metania.**
 
 In your kingdom remember us, O Lord, when you come in your kingdom. Blessed are the poor in spirit, for theirs is the kingdom of heaven.
 
-Blessed are those who mourn, for they shall be comforted.
-Blessed are the meek, for they shall inherit the earth.
-Blessed are they who hunger and thirst after justice, for they shall be filled.
-Blessed are the merciful, for they shall obtain mercy.
-Blessed are the pure in heart, for they shall see God.
-Blessed are the peacemakers, for they shall be called the children of God.
-Blessed are those who are persecuted for justice’s sake, for theirs is the kingdom of heaven.
-Blessed are you when men shall revile you and persecute you and say all manner of evil against you falsely for my sake.
-Rejoice and be glad, for great is your reward in heaven.
-Glory be to the Father, and to the Son, and to the Holy Spirit.
-Both now and ever and to ages of ages. Amen.
+Blessed are those who mourn, for they shall be comforted. Blessed are the meek, for they shall inherit the earth. Blessed are they who hunger and thirst after justice, for they shall be filled. Blessed are the merciful, for they shall obtain mercy. Blessed are the pure in heart, for they shall see God. Blessed are the peacemakers, for they shall be called the children of God. Blessed are those who are persecuted for justice’s sake, for theirs is the kingdom of heaven. Blessed are you when men shall revile you and persecute you and say all manner of evil against you falsely for my sake. Rejoice and be glad, for great is your reward in heaven. Glory be to the Father, and to the Son, and to the Holy Spirit. Both now and ever and to ages of ages. Amen.
 
 ****
 
 The choirs unite and the following are sung more solemnly and we make a full metania at each one.
 
-Remember us, O Lord, when you come in your kingdom.
-Remember us, O Master, when you come in your kingdom.
-Remember us, O Holy One, when you come in your kingdom.
+Remember us, O Lord, when you come in your kingdom. Remember us, O Master, when you come in your kingdom. Remember us, O Holy One, when you come in your kingdom.
 
 The heavenly choir hymns you and says: Holy, Holy, Holy, Lord Sabaoth, heaven and earth are full of your glory.
 
@@ -760,8 +724,7 @@ Remit, forgive, pardon, O God, our offences, willing and unwilling, in deed and 
 
 \[
 
-**If there is no Presanctified:**
-Our Father… ****
+**If there is no Presanctified:** Our Father… ****
 
 Priest:
 
@@ -771,22 +734,19 @@ Reader:
 
 Amen.\] ****
 
-On Monday
-Kontakion. Tone 8.
+On Monday Kontakion. Tone 8.
 
 Jacob lamented the loss of Joseph, and the noble one was seated in a chariot, honoured like a king; for as he had not been slave to the pleasures of the Egyptian woman, he was glorified in return by the one who sees the hearts of men, and bestows an incorruptible crown.
 
 ****
 
-On Tuesday
-Kontakion. Tone 2
+On Tuesday Kontakion. Tone 2
 
 Think, miserable soul, on the hour of the end, and made fearful by the cutting down of the fig tree, work with love of toil at the talent given you, as you watch and cry: May we not be left outside Christ’s bridal chamber!
 
 ****
 
-On Wednesday
-Kontakion. Tone 4. Lifted up on the Cross
+On Wednesday Kontakion. Tone 4. Lifted up on the Cross
 
 I have transgressed far more than the harlot, O Good One, yet have never brought you showers of tears; but entreating in silence I fall before you, as I kiss your immaculate feet with love, that as Master you may grant me forgiveness of offences, as I cry out, O Saviour. ‘Deliver me from the filth of my works’.
 
@@ -874,7 +834,7 @@ Bless, Fathers, and pardon me a sinner. ****
 
 And the Brothers:
 
-May ** God pardon you, holy Father. **And the Brothers begin two by two, one from either Choir according to rank, to do the same, and to ask and receive pardon until all have done so.**
+May God pardon you, holy Father. **And the Brothers begin two by two, one from either Choir according to rank, to do the same, and to ask and receive pardon until all have done so.**
 
 The ceremony of mutual forgiveness also takes place here in Athonite monasteries.
 
@@ -888,9 +848,6 @@ People:
 
 Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 18 April 2008**

@@ -43,8 +43,7 @@ By your voluntary and life-giving death, O Christ, you smashed the gates of Hell
 
 ****
 
-The Anavathmi of the Tone.
-Antiphon 1.
+The Anavathmi of the Tone. Antiphon 1.
 
 I lift my eyes to you, O Word, in heaven; take pity on me that I may live for you.
 
@@ -96,8 +95,7 @@ Having seen the Resurrection of Christ**, Ps.50 etc.**
 
 Then the Canons: of the Resurrection with the Irmi to 4, of the Assumption to 4 and of the Fathers to 6.
 
-Canon of the Resurrection. Tone 6.
-Ode 1. Irmos.
+Canon of the Resurrection. Tone 6. Ode 1. Irmos.
 
 ‘Marching on foot in the deep as on dry land, Israel saw Pharao their pursuer drowning and cried out, Let us sing to God a hymn of victory’.
 
@@ -117,9 +115,7 @@ Having received your own creator, beyond understanding incarnate from your womb 
 
 ****
 
-Canon of the Assumption. Tone 5.
-A composition of Monk John.
-Ode 1. Irmos. To God the Saviour
+Canon of the Assumption. Tone 5. A composition of Monk John. Ode 1. Irmos. To God the Saviour
 
 All peoples let us sing a hymn of victory to Christ who has been taken up with glory on the shoulders of the Cherubim, and seated us at the Father’s right hand; for he has been glorified.
 
@@ -137,30 +133,25 @@ Immaculate Mother of God, without ceasing implore the God who was incarnate of y
 
 Canon of the Holy Fathers. Tone 6. Its Acrostic is:
 
-I sing the first assembly of Pastors.**
-Ode 1. Marching on foot in the deep.**
+I sing the first assembly of Pastors. **Ode 1. Marching on foot in the deep.**
 
-<img src="dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />praise the all-holy Council of the holy Fathers as I cry out: O Christ, I implore you, guard closely in me its all-holy revelation.
+praise the all-holy Council of the holy Fathers as I cry out: O Christ, I implore you, guard closely in me its all-holy revelation.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />hining like lightning the godbearing Fathers, having come together today, confessed you clearly, O Christ, as alike without beginning and consubstantial with the Father.
+hining like lightning the godbearing Fathers, having come together today, confessed you clearly, O Christ, as alike without beginning and consubstantial with the Father.
 
-<img src="dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />llustrious are the groomsmen of your bride the Church, O Master, who wisely laid down the definition of the faith and adorned her as with fair adornment of gold.
+llustrious are the groomsmen of your bride the Church, O Master, who wisely laid down the definition of the faith and adorned her as with fair adornment of gold.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ear her own Son and God the holy Queen stands clothed in many colours with divine glory, interceding for the salvation of our souls.
+ear her own Son and God the holy Queen stands clothed in many colours with divine glory, interceding for the salvation of our souls.
 
 ****
 
 Katavasia.
 
-The slow of tongue, hidden in divine darkness,
-Proclaimed the law written by God;
-For shaking the dust from his mind’s eye,
-He sees the One Who Is, and is initiated
-Into knowledge of the Spirit, giving praise with songs inspired.
+The slow of tongue, hidden in divine darkness, Proclaimed the law written by God; For shaking the dust from his mind’s eye, He sees the One Who Is, and is initiated Into knowledge of the Spirit, giving praise with songs inspired.
 
 ****
 
@@ -204,32 +195,27 @@ Intercede unceasingly, pure Lady, with him who came forth from your womb, that t
 
 Of the Fathers. None is holy.
 
-<img src="dropcap-g.gif" alt="dropcap-g.gif (1071 bytes)" width="36" height="44" />rafting impiously flux and change and separation onto the divine begetting, the wicked and demented Arius is cut off by the separating sword of the Fathers.
+rafting impiously flux and change and separation onto the divine begetting, the wicked and demented Arius is cut off by the separating sword of the Fathers.
 
-<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he holy heralds of God, all marching to battle like godly Abraham of old, mightily destroyed your raving foes, O Good one, by your sovereign power.
+he holy heralds of God, all marching to battle like godly Abraham of old, mightily destroyed your raving foes, O Good one, by your sovereign power.
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />olily the first, applauded gathering of your Priests, O Saviour, proclaimed that you were begotten consubstantial with the Father who is without beginning and maker of all.
+olily the first, applauded gathering of your Priests, O Saviour, proclaimed that you were begotten consubstantial with the Father who is without beginning and maker of all.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />qual no word, no tongue of mortals to praise you worthily, O Virgin; for from you, All-pure, Christ the giver of life was well pleased to become incarnate without seed.
+qual no word, no tongue of mortals to praise you worthily, O Virgin; for from you, All-pure, Christ the giver of life was well pleased to become incarnate without seed.
 
 ****
 
 Katavasia.
 
-‘Only the prayer of the prophetess Anna
-Of old, who brought a broken spirit
-To the Mighty One and God of knowledge,
-Broke the fetters of a childless womb
-And the harsh insult of one with many children.’
+‘Only the prayer of the prophetess Anna Of old, who brought a broken spirit To the Mighty One and God of knowledge, Broke the fetters of a childless womb And the harsh insult of one with many children.’
 
 ****
 
-Kontakion of the Assumption. Tone 8.
-*\[*By St Romanos*\]*
+Kontakion of the Assumption. Tone 8. *\[*By St Romanos*\]*
 
 When you had fulfilled the dispensation for our sake and united things on earth with those of heaven, you were taken up in glory, Christ our God, in no way parted, but remaining undivided and crying to those who love you: ‘I am with you, and no one against you.’
 
@@ -291,27 +277,23 @@ The Virgin gave birth, and did not know a mother’s pangs; but she is Mother, y
 
 Of the Fathers. Christ is my power.
 
-<img src="dropcap-f.gif" alt="dropcap-f.gif (1036 bytes)" width="36" height="44" />rom the Church the ill-famed Arius, who corrupted the orthodox Faith with his senseless mind, has been exiled as a rotten limb by the votes of the Fathers.
+rom the Church the ill-famed Arius, who corrupted the orthodox Faith with his senseless mind, has been exiled as a rotten limb by the votes of the Fathers.
 
-<img src="dropcap-i.gif" alt="dropcap-i.gif (962 bytes)" width="23" height="44" />n your behalf, O Master, the choir of Fathers struggled and grievously wounded your enemies; and they glorified you as sharing the same nature as the Father and the Spirit.
+n your behalf, O Master, the choir of Fathers struggled and grievously wounded your enemies; and they glorified you as sharing the same nature as the Father and the Spirit.
 
-<img src="dropcap-r.gif" alt="dropcap-r.gif (1080 bytes)" width="34" height="43" />eally God and man, you have become the Mediator between God and men; therefore, O Christ, the Inspired Fathers, acknowledging you the Son to be one, proclaimed you to exist in two natures.
+eally God and man, you have become the Mediator between God and men; therefore, O Christ, the Inspired Fathers, acknowledging you the Son to be one, proclaimed you to exist in two natures.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ampling a plant showed me to be a corpse; for the tree of life which appeared from you, All-pure one, raised me and established me as heir to the delight of Paradise.
+ampling a plant showed me to be a corpse; for the tree of life which appeared from you, All-pure one, raised me and established me as heir to the delight of Paradise.
 
 ****
 
 Katavasia.
 
-‘Monarch of monarchs, Alone from the Alone,
-Word who came forth from the Father without cause,
-As Benefactor you have unerringly sent out
-Your Spirit, equal in strength, to the Apostles,
-As they sing: Glory to your might, O Lord.’
+‘Monarch of monarchs, Alone from the Alone, Word who came forth from the Father without cause, As Benefactor you have unerringly sent out Your Spirit, equal in strength, to the Apostles, As they sing: Glory to your might, O Lord.’
 
 ****
 
@@ -353,27 +335,23 @@ Mother of God, we praise you as Virgin after bearing child; for you bore for the
 
 Of the Fathers. Shine with your divine radiance.
 
-<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />ruly beautiful are the feet of those who preach you the peace which surpasses every mind, of all Angels and of mortals, O Christ, and by abundance of peace unites the world.
+ruly beautiful are the feet of those who preach you the peace which surpasses every mind, of all Angels and of mortals, O Christ, and by abundance of peace unites the world.
 
-<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />s Wisdom and power of the Father, as hypostatic Word, they proclaimed you, O Christ, the godlike Teachers who had come together, sealed with the law of the all-holy priesthood.
+s Wisdom and power of the Father, as hypostatic Word, they proclaimed you, O Christ, the godlike Teachers who had come together, sealed with the law of the all-holy priesthood.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />treams of pure waters of Christ’s teaching you gave the Church to drink, and now you take delight by the waters of rest, rejoicing eternally.
+treams of pure waters of Christ’s teaching you gave the Church to drink, and now you take delight by the waters of rest, rejoicing eternally.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ince we know you, O all pure, to be the shining lamp which has shed on all Christ the Sun of righteousness, we call upon your ever-present protection, only pure Mother of God.
+ince we know you, O all pure, to be the shining lamp which has shed on all Christ the Sun of righteousness, we call upon your ever-present protection, only pure Mother of God.
 
 ****
 
 Katavasia.
 
-‘O light-formed children of the Church,
-Receive the Spirit’s fire-breathing dew,
-A redeeming purification of offences;
-For now a law has gone out from Sion,
-The torch-tongue-formed grace of the Spirit.’
+‘O light-formed children of the Church, Receive the Spirit’s fire-breathing dew, A redeeming purification of offences; For now a law has gone out from Sion, The torch-tongue-formed grace of the Spirit.’
 
 ****
 
@@ -415,27 +393,23 @@ Fittingly we glorify you as Bush unburned, mountain and living ladder and heaven
 
 Of the Fathers. Watching life’s sea.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />scape the mystery of providence he could not, the sower of tares, who was called by the surname Lunacy; for having rivalled Judas, like him the wholly evil one was split asunder.
+scape the mystery of providence he could not, the sower of tares, who was called by the surname Lunacy; for having rivalled Judas, like him the wholly evil one was split asunder.
 
-<img src="dropcap-m.gif" alt="dropcap-m.gif (1201 bytes)" width="46" height="50" />aster, the revered, godly assembly of the Fathers proclaimed you as the only-begotten brightness shining from the Father’s essence, and as the Son begotten before all things.
+aster, the revered, godly assembly of the Fathers proclaimed you as the only-begotten brightness shining from the Father’s essence, and as the Son begotten before all things.
 
-<img src="dropcap-b.gif" alt="dropcap-b.gif (1094 bytes)" width="46" height="50" />urst open was the belly, the source which poured out the foul and undrinkable water of impious heresies, by the ploughshare of the intercession of the inspired Priests.
+urst open was the belly, the source which poured out the foul and undrinkable water of impious heresies, by the ploughshare of the intercession of the inspired Priests.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-l.gif" alt="dropcap-l.gif (1018 bytes)" width="46" height="50" />ampstand, ark, table and jar, so Moses, greatest of the prophets, wrote of you of old, in symbols signifying the incarnation from you of the Most High, O Virgin Mother.
+ampstand, ark, table and jar, so Moses, greatest of the prophets, wrote of you of old, in symbols signifying the incarnation from you of the Most High, O Virgin Mother.
 
 ****
 
 Katavasia.
 
-‘O Christ, the Master, you shone from the Virgin
-As pardon and salvation for us,
-That like the prophet Jonas from the breast
-Of the sea beast, you might snatch from corruption
-The whole fallen race of Adam.’
+‘O Christ, the Master, you shone from the Virgin As pardon and salvation for us, That like the prophet Jonas from the breast Of the sea beast, you might snatch from corruption The whole fallen race of Adam.’
 
 ****
 
@@ -459,13 +433,11 @@ On the same day, the seventh Sunday from Pascha, we celebrate the First Ecumenic
 
 Verses
 
-O spiritual firmament’s light-bearing stars,
-My mind illumine with your shining rays. ****
+O spiritual firmament’s light-bearing stars, My mind illumine with your shining rays. ****
 
 Against Arius.
 
-The Son the Father’s Essence does not share,
-Said Arius: may he not share God’s glory.
+The Son the Father’s Essence does not share, Said Arius: may he not share God’s glory.
 
 We celebrate the present feast for the following reason. Since our Lord Jesus Christ, who had put on our flesh, had ineffably accomplished the whole dispensation and be reinstated on his Father’s throne, the Saints, wishing to show that the Son of God had truly become man and that as perfect man God had been assumed and had sat down at the right of the Majesty on high and because this synod of the holy Fathers had thus proclaimed and confessed him to be consubstantial and identical in honour with the Father; for this reason they appointed this present Feast after the glorious Assumption, as it were putting forward the assembly of so many Fathers proclaiming this, that the one who was taken up in the flesh was God and in the flesh perfect man.
 
@@ -521,27 +493,23 @@ You were born of a Virgin, whom you made Mother of God; blessed are you the God 
 
 Of the Fathers. An Angel made the furnace.
 
-<img src="dropcap-y.gif" alt="dropcap-y.gif (1057 bytes)" width="46" height="50" />ou defeated Arius, whose surname is Frenzy, who raved and spoke the grossest impieties of God; for he refused to cry out to the Son: Blessed are you, the God of our fathers.
+ou defeated Arius, whose surname is Frenzy, who raved and spoke the grossest impieties of God; for he refused to cry out to the Son: Blessed are you, the God of our fathers.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> inspired ones, imitating the son of thunder, with your fiery mouths you teach all to cry to the Word without beginning like the Father and equal in majesty: Blessed are you, the God of our fathers.
+inspired ones, imitating the son of thunder, with your fiery mouths you teach all to cry to the Word without beginning like the Father and equal in majesty: Blessed are you, the God of our fathers.
 
-<img src="dropcap-f.gif" alt="dropcap-f.gif (1036 bytes)" width="36" height="44" />lying as though on wings you came, blessed of God, to help the Word; for the Holy Spirit gathered you from the ends of the world to cry out: Blessed are you, the God of our fathers.
+lying as though on wings you came, blessed of God, to help the Word; for the Holy Spirit gathered you from the ends of the world to cry out: Blessed are you, the God of our fathers.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />refiguring your giving birth, the furnace did not burn the three youths; for the divine fire without burning you dwelt in you, and enlightened all to cry: Blessed are you who bore God in the flesh.
+refiguring your giving birth, the furnace did not burn the three youths; for the divine fire without burning you dwelt in you, and enlightened all to cry: Blessed are you who bore God in the flesh.
 
 ****
 
 Katavasia.
 
-‘Harmonious melody of instruments decreed
-Reverence to the lifeless idol wrought of gold.
-But the Comforter’s life-bearing grace
-Inspires with reverence to cry: Only Trinity,
-Equal in strength, without beginning, blessed are you.’
+‘Harmonious melody of instruments decreed Reverence to the lifeless idol wrought of gold. But the Comforter’s life-bearing grace Inspires with reverence to cry: Only Trinity, Equal in strength, without beginning, blessed are you.’
 
 ****
 
@@ -583,27 +551,23 @@ You were revealed, pure Mother of God, as higher than the Cherubim, for you carr
 
 Of the Fathers. From the flame.
 
-<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />flame with the rays of your Godhead your goodly Shepherds confessed you to be creator of all things and Lord, whom we highly exalt to all the ages.
+flame with the rays of your Godhead your goodly Shepherds confessed you to be creator of all things and Lord, whom we highly exalt to all the ages.
 
-<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />ssembled with godly mind, the all-honoured choir of Shepherds now acknowledging the uncreated Trinity as God, teaches all to cry out: We highly exalt you to all the ages.
+ssembled with godly mind, the all-honoured choir of Shepherds now acknowledging the uncreated Trinity as God, teaches all to cry out: We highly exalt you to all the ages.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />hepherds most admirable, the Hierarchs enlighten Christ’s Church, each in his different place making her shine and highly exalting her to all the ages.
+hepherds most admirable, the Hierarchs enlighten Christ’s Church, each in his different place making her shine and highly exalting her to all the ages.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he Prophets in images all mystically foresaw you bearing the Word; for having taken flesh from you, he came forth dual in natures, whom we highly exalt to all the ages.
+he Prophets in images all mystically foresaw you bearing the Word; for having taken flesh from you, he came forth dual in natures, whom we highly exalt to all the ages.
 
 ****
 
 Katavasia.
 
-‘The triple radiant type of Godhead’s source
-Looses the bonds and turns the flame to dew;
-Youths give praise; while all created nature
-Blesses the only Saviour and Creator
-Of all as Benefactor.’
+‘The triple radiant type of Godhead’s source Looses the bonds and turns the flame to dew; Youths give praise; while all created nature Blesses the only Saviour and Creator Of all as Benefactor.’
 
 ****
 
@@ -645,27 +609,23 @@ Hail, Mother of God, Mother of Christ God; as to-day you saw him whom you bore f
 
 Of the Fathers. It is impossible.
 
-<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he Word before the ages, like the Father without beginning and equal in majesty, having found you to be allies, assembled you, arming you with the mighty power of the Spirit; whom now, All-hallowed ones, with the heavenly hosts you ever glorify.
+he Word before the ages, like the Father without beginning and equal in majesty, having found you to be allies, assembled you, arming you with the mighty power of the Spirit; whom now, All-hallowed ones, with the heavenly hosts you ever glorify.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> sacred ministers, as physicians of souls and bodies you halted the spread of the foul heresy of Arius, sacredly promulgating for all the Symbol of the faith; as we now hold fast to it we ever glorify your memory.
+sacred ministers, as physicians of souls and bodies you halted the spread of the foul heresy of Arius, sacredly promulgating for all the Symbol of the faith; as we now hold fast to it we ever glorify your memory.
 
-<img src="dropcap-r.gif" alt="dropcap-r.gif (1080 bytes)" width="34" height="43" />escue my soul, O Christ, as you are light immaculate, from the mist of the passions, at the prayers of your Ministers, O Master, who have now proclaimed you to be without beginning, uncreated, creator of all things and God without beginning together with the Father.
+escue my soul, O Christ, as you are light immaculate, from the mist of the passions, at the prayers of your Ministers, O Master, who have now proclaimed you to be without beginning, uncreated, creator of all things and God without beginning together with the Father.
 
 ****
 
 Theotokion.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />ince life, clad in flesh, has shone forth for all from you, O Sovereign Lady, Mother of God, and clearly abolished the gloom of death, resurrection has been granted to the dead through your ineffable and inexpressible child-bearing.
+ince life, clad in flesh, has shone forth for all from you, O Sovereign Lady, Mother of God, and clearly abolished the gloom of death, resurrection has been granted to the dead through your ineffable and inexpressible child-bearing.
 
 ****
 
 Katavasia.
 
-‘Hail, Queen, glorious virgin mother;
-For every fluent, every eloquent mouth
-With oratory has not the strength to sing you worthily;
-But every mind is dizzy when it seeks to understand
-Your giving birth; therefore with one accord we glorify you.’
+‘Hail, Queen, glorious virgin mother; For every fluent, every eloquent mouth With oratory has not the strength to sing you worthily; But every mind is dizzy when it seeks to understand Your giving birth; therefore with one accord we glorify you.’
 
 ******
 
@@ -715,15 +675,13 @@ Welding together all the knowledge of the soul, and examining it together by the
 
  
 
-**
-
 Verse:
 
 Blessed are you, O Lord, the God of our Fathers.
 
 Receiving all the spiritual brilliance of the Holy Spirit, as heralds of Christ the blessed champions of the gospel doctrines and the devout traditions inspired by God proclaimed the supernatural oracle, short in words, but rich in meaning, having received on high the clear revelation of them, and enlightened they set forth a definition taught by God.
 
-******
+****
 
 Verse:
 
@@ -749,9 +707,6 @@ Before the First Hour Eothinon 10. Tone 6.
 
 After your descent into Hell and your Resurrection from the dead, O Christ, the Disciples, losing heart as was natural at your separation from them, turned back to their trade: and once again there were boats and nets and a catch nowhere. But you appeared, O Saviour, and as Master of all things ordered them to cast their nets on the right hand side: and at once the word was deed, and there was a great multitude of fish, and a strange supper ready on land. Your Disciples partook of it then; make us also worthy to enjoy it now in spirit, O Lover of humankind.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

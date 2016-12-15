@@ -40,8 +40,7 @@ Your pure Mother who knew not wedlock, seeing you hanging dead upon the Tree, mo
 
 ****
 
-After the 3rd reading from the Psalter others.
-Τὴν ὡραιότητα. Awed by the beauty.
+After the 3rd reading from the Psalter others. Τὴν ὡραιότητα. Awed by the beauty.
 
 Dishonoured you endured the Cross, O Master beyond all creation, that you might honour me, of old dreadfully dishonoured; with a lance you were pierced in your side, O Longsuffering, as you wished to ransom me, your fashioning, from corruption. I hymn your great compassion and your goodness, O Lover of humankind. ****
 
@@ -393,9 +392,6 @@ Glory, Both now.
 
 Seeing you hanging on the tree, my Christ, supremely good, the All-blameless lamented and cried out as a mother: my Son so greatly loved, how has the lawless nation condemned you to the tree?
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

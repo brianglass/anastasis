@@ -19,8 +19,7 @@ Lord, though to the fire your chaste Protomartyr was condemned, yet she was not 
 
 Glory.
 
-**Tone 6.
-By Anatolios. Some say Andrew of Jerusalem.**
+**Tone 6. By Anatolios. Some say Andrew of Jerusalem.**
 
 All-blessed Thekla, companion of Paul and fellow-athlete of Stephen, by your athletic struggles you trampled down the foe, and as a martyr having smashed his devices, you escaped Thamyris and were wedded to Christ, the true lover. Protomartyr of Christ among women, as you have boldness, rescue from dangers the souls of us who faithfully celebrate your memory.
 
@@ -225,9 +224,7 @@ On the 24th of the same month, Commemoration of the Holy Great Martyr and Equal 
 
 Verses.
 
-He saved you, Thekla, when he rent the rock,
-He at whose passion once the rocks were rent.
-‘Twas on the twenty fourth day that a rock enfolded great Thekla.
+He saved you, Thekla, when he rent the rock, He at whose passion once the rocks were rent. ‘Twas on the twenty fourth day that a rock enfolded great Thekla.
 
 She was from the city of Iconium; her mother was Theokleia of a noble and famous family. She was instructed in the word of the faith by the great Apostle Paul, when he was teaching in the house of Onesiphoros. When she came to the faith she was eighteen years old and betrothed to one Thamyris. Despising the fire into which she was cast, and her mother and her suitor, she followed Paul. After this, when at Antioch, she was condemned to the beasts by Alexander and cast to the bulls to be torn apart; but Christ delivered her from them all by his grace. She preached the Lord Jesus Christ in different cities and brought many people to faith in Christ, finally she came to her own fatherland. There she lived on one of the mountains and left this life, a rock opening up and receiving her. The whole span of her life was ninety years.
 
@@ -237,8 +234,7 @@ On the same day, Commemoration of our venerable Father Copris.
 
 Verses.
 
-No dung was Copris \[dung\], but another bunch
-Of grapes that brought fair blossom to the Lord.
+No dung was Copris \[dung\], but another bunch Of grapes that brought fair blossom to the Lord.
 
 He was born on a dung heap outside the monastery of the great Theodosios, the Koinoviarch, of a woman who was being pursued by the Hagarenes with a large number of others of the neighbourhood, who fled to the Saint for safety. After the passage of the infidels the monks found the new born child on the dung-heap and, on the order of the great Theodosios, they adopted him and named him Copris; he was nurtured on the milk of a goat. When it reckoned that the time had come to suckle the child it would come down of its own from the mountain, and after it had suckled him, it returned again. This it did until the child was strong enough for stronger food.
 
@@ -328,8 +324,7 @@ We, who have been saved through you, rightly confess you, Lady, to be Mother of 
 
 ****
 
-At Lauds, Idiomel Stichera.
-Tone 1. By Anatolios.
+At Lauds, Idiomel Stichera. Tone 1. By Anatolios.
 
 The stadium of the contest lies before us to-day. Peoples, let us dance and let us observe the wondrous deeds that are accomplished there; for a spotless lamb, the fair virgin and bride of God Thekla is brought out for slaughter for the sake of Christ our God who was slaughtered; and so by the faith of the Trinity she destroyed the godlessness of tyrants and, as she dances with the Angels, she intercedes with the Saviour that our souls may be saved.
 
@@ -399,9 +394,6 @@ NOTE
 
 Many of the texts for this office are inspired by the apocryphal Acts of Paul and Thekla. For details of a modern version of this text see the [Canon of Saint Thekla](TheklaCan.md).
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

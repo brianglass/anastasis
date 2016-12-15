@@ -65,8 +65,7 @@ Beloved, since therefore Christ suffered for us in the flesh, arm yourselves wit
 
 ****
 
-At the Liti, Idiomel Stichera. Tone 1.
-By Andrew of Jerusalem.
+At the Liti, Idiomel Stichera. Tone 1. By Andrew of Jerusalem.
 
 The First-called Disciple and imitator of your passion, the Apostle Andrew, conformed to you, Lord, having drawn out with the fish-hook of your Cross those once gone astray in the deep of ignorance, brought them to you. At his prayers, O supremely Good, make our lives peaceful and save our souls.
 
@@ -90,8 +89,7 @@ When you saw the God so longed for walking the earth, O First-called, who saw Go
 
 Glory.
 
-**Tone 8.
-By Andrew of Jerusalem; or, according to others, Anatolios.**
+**Tone 8. By Andrew of Jerusalem; or, according to others, Anatolios.**
 
 Let us all sing the praise of Andrew, the herald of the faith and servant of the Word; for he fishes men from the deep, grasping in his hands the Cross for a rod, and lowering power like a line he brings souls up from the error of the foe and offers them as an acceptable gift to God. Let us the faithful ever sing his praise with the choir of Christ’s Disciples, that he may intercede with him so that he may be merciful to us on the day of judgement.
 
@@ -155,8 +153,7 @@ AT MATINS
 
 ****
 
-After the 1st Reading from the Psalter, Kathisma.
-Tone 1. The soldiers watching.
+After the 1st Reading from the Psalter, Kathisma. Tone 1. The soldiers watching.
 
 As a godly Disciple and First-called of all the Disciples of Christ, with love we praise you, Apostle Andrew, and faithfully we cry out to you: Deliver your flock, with which you were entrusted by God, from every tribulation, from constraints and stumblings, and every evil
 
@@ -190,8 +187,7 @@ You became the divine tabernacle of the Word, Mother of God alone all-pure, surp
 
 ****
 
-After the Polyeleos, Kathisma.
-Tone 5. Let us believers.
+After the Polyeleos, Kathisma. Tone 5. Let us believers.
 
 Let us all sing the praise of the Apostle as eye-witness and godlike herald of the Word, and truly spiritual fisher of nations; because Andrew inspired of God brought us to knowledge of Christ, and now he intercedes without ceasing that our souls may be saved.
 
@@ -263,9 +259,7 @@ With your light, O all-blameless, dispel the blackness of my mind, you who bore 
 
 ****
 
-First Canon of the Apostle.
-A Composition of the Monk John.
-Ode 1. Tone 1. Your triumphant right hand.
+First Canon of the Apostle. A Composition of the Monk John. Ode 1. Tone 1. Your triumphant right hand.
 
 Purify my soul, muddied by thoughts and words, Andrew, herald of Christ, by the divine grace which dwells in you, that in purity I may offer you a worthy hymn.
 
@@ -281,8 +275,7 @@ Hail, fount of grace. Hail, ladder and gate of heaven. Hail, lampstand and golde
 
 ****
 
-Second Canon of the Apostle.
-Ode 1. Tone 1. Through a pillar if fire.
+Second Canon of the Apostle. Ode 1. Tone 1. Through a pillar if fire.
 
 With the rod of the Gospel, Andrew all-praised, you drew from the deep of error and caught peoples, as Christ had promised, who taught you to trawl men as you had caught fish.
 
@@ -586,9 +579,7 @@ On the 30th day of the same month: Commemoration of the holy, glorious and all-p
 
 Verses.
 
-Inverted crucifixion Andrew bears,
-Appears in truth feet upward, not in shadow.
-Andrew the First-called endured a cross on the last of November.
+Inverted crucifixion Andrew bears, Appears in truth feet upward, not in shadow. Andrew the First-called endured a cross on the last of November.
 
 On the same day, Commemoration of our Father Frumentios, Bishop of India \[Ethiopia\].
 
@@ -596,8 +587,7 @@ On the same day, Commemoration of our Father Frumentios, Bishop of India \[Ethio
 
 Verses.
 
-Framed by the Trinity’s protecting grace
-Frumentios showed that error was a fraud.
+Framed by the Trinity’s protecting grace Frumentios showed that error was a fraud.
 
 At the prayers of your Saints, O God, have mercy on us. Amen.
 
@@ -803,9 +793,7 @@ All-blameless Virgin, implore God, to whom you gave birth, for all who devoutly 
 
 ****
 
-At Lauds.
-We insert 4 Stichera, and we sing Prosomia.
-Tone 1. Joy of the heavenly hosts.
+At Lauds. We insert 4 Stichera, and we sing Prosomia. Tone 1. Joy of the heavenly hosts.
 
 Bethsaida now be glad; for in you there flowered from a mystic pool two sweet scented lilies, Peter and Andrew, who spread the fragrant proclamation of the faith to the whole world by the grace of Christ, whose sufferings too they imitated.
 
@@ -837,23 +825,16 @@ Communion.
 
 His sound has gone out into all the earth, and his words to the ends of the world.
 
-------------------------------------------------------------------------
-
 <sup></sup>
 
 1
 
 The text appears to be corrupt. Bartholomew has a note, ‘Formerly the reading was *calling*, which is unsuitable. Some people correct this to *having been called*; but this contradicts both the story and what is said in the first troparion of the third Ode, *You ran forward with thirst, not called … but of your own free will*. Therefore the word has been changed to *came*. But choose the best yourself’.
 
-------------------------------------------------------------------------
-
 NOTE
 
 Although the Orthodox rite does not have a liturgical season of Advent, from the feast of the Entry of the Mother of God \[21 November\], when for the first time the Katavasias at Matins are those of Christmas, hymns which prepare for the coming feast of the Nativity feature increasingly in the offices for the major feasts. In the office of St Andrew a number of the Theotokia for Vespers and Matins, including those for the two Canons of the Apostle, are texts which prepare for the Nativity. On 22 November, the feast of St Caecilia, the Canon is written to be sung to the melodies of the Christmas Canon, though, being a minor feast, the Katavasias themselves are not sung.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

@@ -16,13 +16,8 @@ December 21
 
 Acrobat Reader can be downloaded free from Adobe:
 
-[<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)
-
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 18 April 2008**

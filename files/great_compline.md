@@ -41,9 +41,7 @@ Lord, have mercy. (
 
 **x12**). Glory to the Father and to the Son and to the Holy Spirit, both now and for ever and to the ages of ages. Amen.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ, the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ, the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -219,16 +217,7 @@ As I pass to the end of the day, I praise you, Holy One, and I ask that the even
 
 Then the two Choirs together sing the following:
 
-The bodiless nature, the Cherubim, glorifies you with never silent hymns.
-The six-winged living creatures, the Seraphim, exalt you with unceasing voices.
-The whole army of the Angels, praises you with thrice-holy songs.
-For before all you are the Father, the One Who Is, and you have your Son likewise without beginning.
-And as you bear the Spirit of life, equal in honour, you show that the Trinity is undivided.
-All-holy Virgin, Mother of God, eye-witnesses and servants of the Word,
-All choirs of Prophets and Martyrs, as you have immortal life,
-Intercede fervently for us all, for we are all in troubles.
-That delivered from the error of evil, we may cry aloud the Angels’ song.
-Holy, Holy, Holy, Thrice-holy Lord, have mercy and save us. Amen.
+The bodiless nature, the Cherubim, glorifies you with never silent hymns. The six-winged living creatures, the Seraphim, exalt you with unceasing voices. The whole army of the Angels, praises you with thrice-holy songs. For before all you are the Father, the One Who Is, and you have your Son likewise without beginning. And as you bear the Spirit of life, equal in honour, you show that the Trinity is undivided. All-holy Virgin, Mother of God, eye-witnesses and servants of the Word, All choirs of Prophets and Martyrs, as you have immortal life, Intercede fervently for us all, for we are all in troubles. That delivered from the error of evil, we may cry aloud the Angels’ song. Holy, Holy, Holy, Thrice-holy Lord, have mercy and save us. Amen.
 
 ****
 
@@ -244,27 +233,19 @@ And in the Holy Spirit, the Lord, the Giver of life, who proceeds from the Fathe
 
 Then the following Verses, of which the first is sung three times and the rest twice, except for the last, which is sung once only. The second Choir begins:
 
-All-holy Lady, Mother of God, intercede for us sinners.
-All-holy Lady, Mother of God, intercede for us sinners.
-All-holy Lady, Mother of God, intercede for us sinners.
+All-holy Lady, Mother of God, intercede for us sinners. All-holy Lady, Mother of God, intercede for us sinners. All-holy Lady, Mother of God, intercede for us sinners.
 
-All you heavenly Powers of Angels and Archangels, intercede for us sinners.
-All you heavenly Powers of Angels and Archangels, intercede for us sinners.
+All you heavenly Powers of Angels and Archangels, intercede for us sinners. All you heavenly Powers of Angels and Archangels, intercede for us sinners.
 
-Holy John, Prophet, Forerunner and Baptist of our Lord Jesus Christ, intercede for us sinners.
-Holy John, Prophet, Forerunner and Baptist of our Lord Jesus Christ, intercede for us sinners.
+Holy John, Prophet, Forerunner and Baptist of our Lord Jesus Christ, intercede for us sinners. Holy John, Prophet, Forerunner and Baptist of our Lord Jesus Christ, intercede for us sinners.
 
-Holy, glorious Apostles, Prophets and Martyrs, and All you Saints, intercede for us sinners.
-Holy, glorious Apostles, Prophets and Martyrs, and All you Saints, intercede for us sinners.
+Holy, glorious Apostles, Prophets and Martyrs, and All you Saints, intercede for us sinners. Holy, glorious Apostles, Prophets and Martyrs, and All you Saints, intercede for us sinners.
 
-Our Venerable, God-bearing Fathers, Shepherds and Teachers of the whole world, intercede for us sinners.
-Our Venerable, God-bearing Fathers, Shepherds and Teachers of the whole world, intercede for us sinners.
+Our Venerable, God-bearing Fathers, Shepherds and Teachers of the whole world, intercede for us sinners. Our Venerable, God-bearing Fathers, Shepherds and Teachers of the whole world, intercede for us sinners.
 
-Unconquerable, indestructible and divine power of the precious and life-giving Cross, do not abandon us sinners.
-Unconquerable, indestructible and divine power of the precious and life-giving Cross, do not abandon us sinners.
+Unconquerable, indestructible and divine power of the precious and life-giving Cross, do not abandon us sinners. Unconquerable, indestructible and divine power of the precious and life-giving Cross, do not abandon us sinners.
 
-O God, cleanse us sinners.
-O God, cleanse us sinners.
+O God, cleanse us sinners. O God, cleanse us sinners.
 
 And have mercy on us.
 
@@ -286,7 +267,7 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages.
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages.
 
 Reader: Amen.
 
@@ -342,9 +323,7 @@ Prayer of Saint Basil the Great
 
 Lord, Lord, who deliver us from the arrow that flies by day, deliver us also from every deed that walks in darkness. Accept the lifting up of our hands as an evening sacrifice. Grant that we may also pass through the stadium of night without blame, untried by evils, and deliver us from every trouble and from the fear that comes to us from the devil. Grant our souls compunction, our thoughts care concerning the examination in your dread and just judgement. Nail down our flesh from fear of you, and deaden our members upon earth, that in the calm of sleep, we may be made bright in the contemplation of your judgements. Take from us every unseemly imagination and harmful desire. Raise us up at the hour of prayer, strengthened in the faith and advancing in your commandments; through the good-pleasure and goodness of your only-begotten Son, with whom you are blessed, together with your all-holy, good and life-giving Spirit, now and always and to the ages of ages. Amen.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -382,7 +361,7 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Reader:
 
-** Amen. ****
+Amen. ****
 
 And the following Troparia. Tone 6
 
@@ -408,9 +387,7 @@ A Prayer of Saint Mardarios
 
 God and Master, Father almighty, Lord, only begotten Son, Jesus Christ and Holy Spirit, one godhead, one power, have mercy on me a sinner; and by the judgements which you know, save me your unworthy servant; for you are blessed to the ages of ages. Amen.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -556,7 +533,7 @@ Lord, have mercy (
 
 Priest:
 
-** May God take pity on us and bless us, and shed the light of his countenance on us and have mercy on us. ****
+May God take pity on us and bless us, and shed the light of his countenance on us and have mercy on us. ****
 
 And we make the three great metanias, saying to ourselves at each a line of the Prayer of St Ephrem:
 
@@ -586,8 +563,7 @@ Spotless, undefiled, incorrupt, immaculate, pure Virgin, Bride of God and Lady, 
 
 ****
 
-Prayer to Our Lord Jesus Christ
-by the monk Antiochus.
+Prayer to Our Lord Jesus Christ by the monk Antiochus.
 
 And grant us, Master, as we go to our sleep, rest of body and soul; and guard us from the gloomy sleep of sin and from every dark pleasure of the night. Calm the assaults of the passions, quench the fiery arrows of the evil one that are cunningly aimed at us, put down the rebellions of our flesh and still our every earthly and material thought. And grant us, O God, a watchful mind, chaste thought, a wakeful heart, sleep that is light and free from every satanic fantasy. Rouse us at the time for prayer strengthened in your commandments and holding firmly within us the memory of your judgements. Grant that we may sing your glory all night long and so hymn, bless and glorify your all honoured and majestic name, of Father, Son and Holy Spirit, now and for ever and to the ages of ages. Amen.
 
@@ -605,11 +581,11 @@ All my hope I lay on you, O Mother of God, guard me beneath your shelter.
 
 Priest:
 
-** Glory to you, Christ God, our hope, glory to you. ****
+Glory to you, Christ God, our hope, glory to you. ****
 
 Reader:
 
-** Glory. Both now. Lord, have mercy (**x3). Holy Father, bless.** ****
+Glory. Both now. Lord, have mercy (**x3). Holy Father, bless.** ****
 
 Priest:
 
@@ -617,7 +593,7 @@ Peace to all. ****
 
 Reader:
 
-** And to your spirit. ******
+And to your spirit. ******
 
 Priest:
 
@@ -625,7 +601,7 @@ Let us bow our heads to the Lord. ****
 
 Reader:
 
-** To you, O Lord. ****
+To you, O Lord. ****
 
 Priest:
 
@@ -637,11 +613,11 @@ Bless, Fathers, and pardon me a sinner. ****
 
 And the Brothers:
 
-** God pardon you, holy Father. **And the Brothers begin two by two, one from either Choir according to rank, to do the same, and to ask and receive pardon until all have done so. The Priest says:**
+God pardon you, holy Father. **And the Brothers begin two by two, one from either Choir according to rank, to do the same, and to ask and receive pardon until all have done so. The Priest says:**
 
 Let us pray for the peace of the world.
 
-**Reader:** ** Lord, have mercy.
+**Reader:** Lord, have mercy.
 
 For our Archbishop
 
@@ -715,9 +691,6 @@ To those who hate us and wrong us, Lord, give pardon. To those who do good, do g
 
 There, we have set out accurately one day of the holy Fast and put down with our love the quantity of psalmody and the prostrations that have been prescribed by the holy Fathers. It is not allowed to cheat over these, or to defraud the holy lawgiver. The total number of prostrations in Church for the night and day office, excluding the Midnight Office, is three hundred. We have received the tradition in Palestine also to chant the Psalter in our own cells, those who can, the whole Psalter once every twenty four hours, others three times in the week, others twice. Each is make the number of prostrations that the Superior has given him according to his own ability.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

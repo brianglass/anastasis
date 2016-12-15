@@ -122,7 +122,7 @@ ON TUESDAY EVENING
 
 At
 
-** Lord, I have cried, **prosomia of the Lord.**
+Lord, I have cried, **prosomia of the Lord.**
 
 Hail, of ascetics.
 
@@ -174,7 +174,7 @@ ON WEDNESDAY EVENING
 
 At
 
-** Lord, I have cried*,* **Prosomia of the Apostles.**
+Lord, I have cried*,* **Prosomia of the Apostles.**
 
 Tone 6. Hail of Ascetics.
 
@@ -228,7 +228,7 @@ At,
 
 Lord, I have cried, **Prosomia of the Cross.**
 
-Hail of ascetics.**
+Hail of ascetics.
 
 Lord supremely good, my Saviour, wishing to put an end to the toils and shames of mortals, you endure crucifixion. You tasted shameful slaughter and gall in your forbearance, taking away all our bitterness. You were pierced in your immaculate side by a lance, as Master healing our wounds. Therefore we now sing the praise of your glorious crucifixion, and bowing down we honour the lance, sponge and reed, through which you granted your world your peace and great mercy.
 
@@ -246,7 +246,7 @@ A fierce storm of sins has seized my on the ocean of life, and a tempest and bil
 
 Having amassed the matter of grievous sins, I have treasured them up for myself and I tremble before the face of your Son. How shall I endure the tribunal then? For river of fire draws me before the judgement seat and tens of thousands of Angels stand around it, casting away those who have done wrong. Therefore, before my departure from life, All-Immaculate, I implore you to intercede for me to the Judge who loves mankind to have mercy and grant me pardon and great mercy.
 
-Glory. Both now. **
+Glory. Both now.
 
 **Cross-Theotokion. Same melody.**
 
@@ -332,9 +332,6 @@ Glory. Both now.
 
 We beg you, Blessed One, as Mother of God, intercede that we may be saved.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

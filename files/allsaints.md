@@ -63,22 +63,19 @@ Entrance,
 
 O Joyful Light. **After the Prokeimenon of the day, the Readings.**
 
-The Reading is from the Prophecy of Isaias.
-\[
+The Reading is from the Prophecy of Isaias. \[
 
 **43:9-14<sup>a</sup>**\]
 
 Thus says the Lord: All the nations have been assembled and rulers from them shall be assembled; who will declare these things among them? or who will make heard to you the things from the beginning? Let them bring their witnesses and let them be justified, and them hear and let them speak what is true. Be my witnesses, and I too am a witness, says the Lord God, and my servant whom I have chosen; that you may know and believe me, and understand that I AM; before me there was no other God, and after me there will not be. I am God, and apart from me there is none who saves. I have declared and I have saved; I reproved, and there was no strange god among you. You are my witnesses and I am a witness, says the Lord God. Again from the beginning I AM, and there is none who can deliver from my hands; I will make, and who will turn it back? Thus says the Lord God who redeems us, the holy one of Israel.
 
-The Reading is from the Wisdom of Solomon.
-\[
+The Reading is from the Wisdom of Solomon. \[
 
 **3:1-9**\]
 
 The souls of the just are in the hand of God, and no torment will touch them. In the eyes of fools they seemed to die and their departure was reckoned a disaster and their going from us their destruction; but they are at peace. For though in the sight of men they were punished, their hope is full of immortality. Having been disciplined a little, they will receive great good, because God tested them and found them worthy of himself. Like gold in the furnace he tried them and like a whole burnt offering he accepted them. And in the time of their visitation they will shine forth, and will run like sparks through stubble. They will judge nations and rule over peoples, and the Lord will reign over them forever. Those who trust in him will understand truth, and the faithful will abide with him in love, because grace and mercy are upon his holy ones and visitation on his elect.
 
-The Reading is from the Wisdom of Solomon.
-\[
+The Reading is from the Wisdom of Solomon. \[
 
 **5:16-6:3<sup>b</sup>**\]
 
@@ -106,8 +103,7 @@ Both now.
 
 **Theotokion.**
 
-At the Aposticha Resurrection Stichera.
-Tone 8.
+At the Aposticha Resurrection Stichera. Tone 8.
 
 O Jesu, who came down from heaven, you ascended the Cross; you came, the immortal Life, to death; the true Light, to those in darkness; the Resurrection of all, to those who had fallen. Our illumination and our Saviour, glory to you.
 
@@ -273,8 +269,7 @@ Let everything that has breath.
 
 The Canons: of the Resurrection to 4, of the Cross and Resurrection to 2, of the Mother of God to 2 and of the Saints to 6.
 
-Canon of All Saints. The same Tone.
-Its Acrostic is:
+Canon of All Saints. The same Tone. Its Acrostic is:
 
 Many the names of the ranks of All Saints in whose honour I sing this. ****
 
@@ -466,8 +461,7 @@ You appeared as the one who unites things that were parted; for through you huma
 
 ****
 
-Exapostilarion 1, from the Oktoichos. Model melody. Tone 2.
-Another, of the Saints. Same melody.
+Exapostilarion 1, from the Oktoichos. Model melody. Tone 2. Another, of the Saints. Same melody.
 
 Let us as is fitting crown with hymns the Baptist and Forerunner, the Apostles, Prophets, Martyrs, Hierarchs, Ascetics and Holy Ones, with Martyr Priests, God-loving Women and all the Just, and the ranks of Angels, imploring that we may attain the glory which they have from Christ the Saviour.
 
@@ -531,9 +525,6 @@ You are most blessed.
 
 Great Doxology and Resurrection Troparion.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -7,8 +7,6 @@ The ceremony of the Washing of the Feet on Holy Thursday is very ancient, and is
 
 This provisional version has been made from the text in the Greek Mega Euchologion, since the rite is no longer included in the printed Triodia in either Greek or Slavonic. In the French version published by P. Denis Guillaume the first Gospel is set out in dramatic form, with the Abbot speaking the words of Christ and the Bursar those of Saint Peter. Without at least a Deacon to read the Gospel while the Priest does the actual washing, it is difficult to perform the ceremony correctly, which may be one reason why it has fallen into desuetude.
 
-------------------------------------------------------------------------
-
 SERVICE OF THE DIVINE AND SACRED WASHING
 ========================================
 
@@ -62,7 +60,7 @@ In peace, let us pray to the Lord.
 
 People:
 
-** Lord, have mercy. **And so after each petition.**
+Lord, have mercy. **And so after each petition.**
 
 For the peace from on high and for the salvation of our souls, let us pray to the Lord.
 
@@ -100,7 +98,7 @@ Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God 
 
 People:
 
-** To you, O Lord. ****
+To you, O Lord. ****
 
 Ekphonesis by the Priest
 
@@ -110,9 +108,7 @@ For you are cleansing of our souls, and to you we give glory, together with your
 
 People:
 
-** Amen. ****
-
- 
+Amen. ** **
 
 Deacon:
 
@@ -120,7 +116,7 @@ Let us pray to the Lord. ****
 
 People:
 
-** Lord, have mercy. ****
+Lord, have mercy. ****
 
 Priest (Aloud):
 
@@ -132,19 +128,19 @@ For to you belong all glory, honour and worship, with your Father who has no beg
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Priest:
 
-** Peace to all. ****
+Peace to all. ****
 
 People:
 
-** And to your spirit. ****
+And to your spirit. ****
 
 Deacon:
 
-** Bow your heads to the Lord. ****
+Bow your heads to the Lord. ****
 
 People:
 
@@ -166,11 +162,11 @@ Amen. ****
 
 After the Ekphonesis, when the Priest says,
 
-And that he would count us worthy*,* **those whose feet are be washed take their places on the benches provided. And as the Priest begins to read the 1st Gospel for the Washing, the Superior stands and does as the Gospel directs. When it says,** He laid aside his garments*,* **he takes off the mandyas. At,** ** Taking a towel, he girded himself*,* **he takes the apron and girds himself. At,** ** He poured water for the washing*,* **he too pours warm water. And again at,** ** He began to wash his Disciples’ feet*,* **he too begins to wash the feet of the 12 persons, starting with the Porter and ending with the Bursar and the Ecclesiarch, and to dry the feet of each of those whose feet have been washed and to kiss them. When he reaches the Bursar, the Priest reads the rest of the Gospel,** He comes then to Simon Peter, who says to him. **And then he completes what follows of the same Gospel, beginning,** And that he would count us worthy, **etc.**
+And that he would count us worthy*,* **those whose feet are be washed take their places on the benches provided. And as the Priest begins to read the 1st Gospel for the Washing, the Superior stands and does as the Gospel directs. When it says,** He laid aside his garments*,* **he takes off the mandyas. At,** Taking a towel, he girded himself*,* **he takes the apron and girds himself. At,** He poured water for the washing*,* **he too pours warm water. And again at,** He began to wash his Disciples’ feet*,* **he too begins to wash the feet of the 12 persons, starting with the Porter and ending with the Bursar and the Ecclesiarch, and to dry the feet of each of those whose feet have been washed and to kiss them. When he reaches the Bursar, the Priest reads the rest of the Gospel,** He comes then to Simon Peter, who says to him. **And then he completes what follows of the same Gospel, beginning,** And that he would count us worthy, **etc.**
 
 Priest:
 
-** And that he would count us worthy to listen to the holy Gospel, let us pray to the Lord God. ****
+And that he would count us worthy to listen to the holy Gospel, let us pray to the Lord God. ****
 
 Reader:
 
@@ -182,7 +178,7 @@ Wisdom. Stand upright. Let us listen to the holy Gospel. Peace to all. ****
 
 Reader:
 
-** And to your Spirit. ****
+And to your Spirit. ****
 
 Priest:
 
@@ -194,7 +190,7 @@ Glory to you, Lord, glory to you! ****
 
 Priest:
 
-** Let us attend.
+Let us attend.
 
 \[
 
@@ -276,9 +272,6 @@ Then the Antidoron is given out and the Dismissal follows. As we enter the Refec
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

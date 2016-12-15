@@ -1,11 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](triodion.md) \] \[ [Readings](readLent.md) \] \[ [Tax Collector and Pharisee](PubPharE.md) \] \[ [Prodigal Son](ProdigalE.md) \] \[ [Cheese Week](cheese_week.md) \] \[ [Sunday of Orthodoxy](sunday_of_orthodoxy.md) \] \[ [Sunday of the Cross](sunday_of_the_cross.md) \] \[ [Palm Sunday](palm.md) \] \[ Holy Week \] \[ [Carnival Week](carnival_week.md) \]
 
-[Holy Monday](holyMon.md)
-[Holy Tuesday](holyTues.md)
-[Holy Wednesday](holyWed.md)
-[Holy Thursday](holyThu.md)
-[Holy Friday](holyFri.md)
-[Holy Saturday](holy.md)
+[Holy Monday](holyMon.md) [Holy Tuesday](holyTues.md) [Holy Wednesday](holyWed.md) [Holy Thursday](holyThu.md) [Holy Friday](holyFri.md) [Holy Saturday](holy.md)
 
 HOLY AND GREAT WEEK
 ===================
@@ -22,9 +17,6 @@ As there are many local variations in the way the services are celebrated, it is
 
 I have indicated in a number of places the instructions in the Russian Typikon, particularly with regard to the patristic readings. Most have these have disappeared from the Greek books.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

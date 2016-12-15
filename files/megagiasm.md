@@ -29,22 +29,19 @@ At the voice of the one crying in the desert, ‘Prepare the way of the Lord’,
 
 And immediately the Readings.
 
-The Reading is from the Prophecy of Isaias.
-\[
+The Reading is from the Prophecy of Isaias. \[
 
 **35,1-10**\]
 
 Thus says the Lord: Thirsty desert rejoice, let the desert exult and flower like a lily. And the deserts of Jordan will flower and be overgrown and exult. And the glory of Lebanon has been given to it and the honour of Carmel. And my people will see the glory of the Lord and the majesty of God. Be strong, enfeebled hands and palsied knees. Give comfort and say to the faint-hearted, ‘Be strong and do not fear. See, our God is giving judgement and will give it. He himself will come and save us. Then the eyes of the blind will be opened and the ears of the deaf will hear. Then the lame will leap like a deer and the tongue of stammerers will speak clearly, because water has broken out in the desert and a channel in a thirsty land. And the waterless land will become pools and there will be a spring of water for the thirsty land. There will be joy of birds there, folds for flocks and reed beds and pools. And there will be a pure way there, and it will be called a holy way, and no one unclean may pass along it. There will be no unclean way there. But the scattered will walk upon it and not go astray. There will be no lion there, nor will any evil wild beasts go up on it or be found there. But the redeemed and gathered by the Lord will walk on it. And they will return and come to Sion with joy and exultation, and everlasting joy will be upon their head. And on their head praise and exultation and joy will possess them. Pain, grief and sighing have fled away.
 
-The Reading is from the Prophecy of Isaias.
-\[
+The Reading is from the Prophecy of Isaias. \[
 
 **55,1-13**\]
 
 Thus says the Lord: You that thirst, go for water. And as many of you as have no money, make your way and buy. And eat and drink wine and fat without money and price. Why do you spend money on what is not food, and toil for what does not satisfy? Hear me, and eat what is good, and your soul will delight in good things. Give heed with your ears and follow in my ways. Listen to me and your soul will live among good things. And I will make an eternal Covenant with you, the sure mercies of David. See, I have given him as a testimony among the Nations, a ruler and commander among the Nations. See, Nations who do not know you will call upon you, and peoples who are not acquainted with you will take refuge with you, for the sake of the Lord your God and the Holy One of Israel, because he has glorified you. Seek the Lord, and when you find him, call upon him. But when he comes near you, let the impious abandon his ways and a lawless man his plans. And return to the Lord and you will find mercy, and cry out, for he will abundantly forgive your sins. For my plans are not like your plans, nor are my ways like your ways, says the Lord. But as far as heaven is from earth, so far is my way from your ways and your thoughts from my mind. For as rain or snow comes down from heaven and does not return until it has saturated the earth and it brings forth and sprouts and gives seed to the sower and bread for food, so will my word be. Whatever comes out of my mouth will not return to me empty, until everything that I wished has been fulfilled. And I will make my ways and my commands prosper. You will go out with gladness and be taught with joy. For the mountains and hills will leap up, welcoming you with joy, and all the trees of the field will clap with their branches. And instead of brambles cypress will come up, and instead of nettles myrtle will come up. And there shall be for the Lord a name and an everlasting sign, and it will not fail.
 
-The Reading is from the Prophecy of Isaias.
-\[
+The Reading is from the Prophecy of Isaias. \[
 
 **12,3-6**\]
 
@@ -62,8 +59,7 @@ Verse:
 
 The Lord is the defender of my life. Of whom shall I be afraid?
 
-The Reading is from the 1st Epistle of Paul to the Corinthians.
-\[
+The Reading is from the 1st Epistle of Paul to the Corinthians. \[
 
 **10,1-4**\]
 
@@ -81,8 +77,7 @@ Verse 2:
 
 The God of glory thundered upon the waters.
 
-The Reading is from the holy Gospel according to Mark.
-\[
+The Reading is from the holy Gospel according to Mark. \[
 
 **1,9-11**\]
 
@@ -274,11 +269,6 @@ Blessed be the name of the Lord **as usual and then the Psalm** \[**33**\], I wi
 
 Then the full Dismissal.
 
-****
-
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

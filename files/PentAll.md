@@ -1,7 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](pentecos.md) \] \[ [Pascha Midnight](PaschaN.md) \] \[ [Pascha All](pascha.md) \] \[ [Sunday of Thomas](ThomasSun.md) \] \[ [Sunday of the Myrrhbearers](myrrh-sun.md) \] \[ [Sunday of The Paralysed Man](ParalSun.md) \] \[ [Midpentecost](midpent.md) \] \[ [Sunday of the Samaritan Woman](SamarSun.md) \] \[ [Sunday of the Blind man](blindsunday.md) \] \[ [Assumption](assumpti.md) \] \[ [Fathers of Nicea](fathers.md) \] \[ Pentecost \] \[ [All Saints](allsaints.md) \]
 
-SUNDAY
-OF THE HOLY PENTECOST
+SUNDAY OF THE HOLY PENTECOST
 
 ON SATURDAY EVENING
 ===================
@@ -96,8 +95,7 @@ Let us sing the praise of the consubstantial Trinity, Father and Son with the Ho
 
 Glory. Both now.
 
-**Tone 8.
-By the Emperor Leo.**
+**Tone 8. By the Emperor Leo.**
 
 Come, you peoples, let us worship the Godhead in three persons, the Son in the Father, with the Holy Spirit; for the Father timelessly begot the Son, co-eternal and co-reigning, and the Holy Spirit was in the Father, glorified with the Son; one power, one essence, one Godhead, whom we all worship as we say: Holy God, who created all things through the Son, with the co-operation of the Holy Spirit. Holy Strong, through whom we have come to know the Father, and through whom the Holy Spirit came into the world. Holy Immortal, the Advocate Spirit, who proceeds from the Father and rests in the Son. Holy Trinity, glory to you.
 
@@ -107,22 +105,19 @@ Entrance
 
 . O joyful Light, **the Prokeimenon of the day and the Readings.**
 
-The Reading is from Numbers.
-\[
+The Reading is from Numbers. \[
 
 **11:16-17, 24-29**\]
 
 The Lord said to Moses: Gather to me seventy men of the elders of the people, whom you know to be elders of the people, and their scribes; and you shall bring to the Tent of Witness, and they shall stand there with you. And I shall come down and speak with you there, and I shall take of the Spirit which is upon you and place it upon them, and they shall bear the burden of the people with you, and you shall not bear them alone. And Moses gathered seventy men of the elders of the people, and stood them around the Tent. And the Lord came down in a cloud and spoke to Moses, and he took of the Spirit which was upon him and placed it upon the seventy men, the elders. But as the Spirit rested upon them, they too prophesied in the camp, and then did so no longer. And two men had been left behind in the camp; the name of one was Eldad and the name of the second was Modad, and the Spirit rested upon them; and they were of those who had been listed, but they had not come to the Tent; and they prophesied in the camp. And the youth ran and told Moses, and said to him: Eldad and Modad are prophesying in the camp. And Jesus, son of Navi, who was Moses’ assistant, his chosen one, said: My Lord Moses, stop them. And Moses said to him: Why, are you jealous for me? And who would not give that all the Lord’s people were prophets, whenever the Lord should put his Spirit upon them?
 
-The Reading is from the Prophecy of Joel.
-\[
+The Reading is from the Prophecy of Joel. \[
 
 **2:23-32**\]
 
 Thus says the Lord: Children of Sion rejoice, and be glad in the Lord your God, because he has given you food for justice; and he will send the early and the latter rain for you, as before; and the threshing floors will be full of corn, and the presses overflowing with wine and oil. And I shall repay you for the years that the locust has devoured, the crawling locust, the consuming locust, the chewing locust and my great power which I sent against you. And eating you shall eat and be filled, and praise the name of the Lord your God, who has done wondrous things with you, and my people shall no longer be ashamed for ever. And you shall know that I the Lord your God am in the midst of Israel, and there is none beside me, and my people shall no longer be ashamed for ever. And it shall be after these things that I will pour out of my Spirit upon all flesh, and your sons and your daughters will prophesy and your elders will dream dreams and your youths see visions. And upon my servants and my maid servants I shall pour out of my Spirit in those days, and they will prophesy; and I shall show wonders in the heaven above and signs in the earth beneath, blood and fire and the vapour of smoke; the sun will be transformed to darkness and the moon to blood, before the great and manifest day of the Lord comes; and it shall be that everyone who calls on the name of the Lord will be saved.
 
-The Reading is from the Prophecy of Ezekiel.
-\[
+The Reading is from the Prophecy of Ezekiel. \[
 
 **36:24-28**\]
 
@@ -187,15 +182,13 @@ The Lord is God.
 AT MATINS
 =========
 
-**After the 1st Reading from the Psalter, Kathisma.
-Tone 4. Joseph was amazed.**
+**After the 1st Reading from the Psalter, Kathisma. Tone 4. Joseph was amazed.**
 
 Believers, let us radiantly celebrate the post-festal and final feast; for this is Pentecost, fulfilment of the promise and the appointed time; for on this day the fire of the Advocate came down immediately to earth, as in the form of tongues, and enlightened the Disciples, and revealed them as initiates of heaven. The light of the Advocate has come and enlightened the world. (
 
 **Twice**) ****
 
-After the 2nd Reading, Kathisma.
-Same melody.
+After the 2nd Reading, Kathisma. Same melody.
 
 The well-spring of the Spirit, coming down on those on earth and parted into fire-bearing rivers, spiritually bedewed the Apostles and guided them to light; and the fire became for them a cloud of dew and a flame of rain enlightening them, through whom we have received grace through fire and water. The light of the Advocate has come and enlightened the world. (
 
@@ -263,15 +256,13 @@ Glory. Both now. Alleluia.
 
 ****
 
-After the Polyeleos, Kathisma. Tone 8.
-Taking knowledge.
+After the Polyeleos, Kathisma. Tone 8. Taking knowledge.
 
 After your Rising from the tomb, O Christ, and your divine Assumption to the height of heaven, you sent down your glory to your Disciples who had seen God, renewing a right spirit within them, O Merciful Saviour; therefore as a tuneful lyre they mystically made clear as with a divine plectrum your melodies and your dispensation. (
 
 **Twice**) ****
 
-The 1st Antiphon of the Anavathmi in Tone 4.
-Prokeimenon. Tone 4.
+The 1st Antiphon of the Anavathmi in Tone 4. Prokeimenon. Tone 4.
 
 Your good Spirit will lead me in an upright land.
 
@@ -313,8 +304,7 @@ We celebrate Pentecost
 
 ****
 
-A Composition of Monk Kosmas.
-Ode 1. Tone 7. Irmos.
+A Composition of Monk Kosmas. Ode 1. Tone 7. Irmos.
 
 He who brings wars to nothing with his upraised arm covered Pharao and his chariots in the deep; let us sing to him, for he has been glorified.
 
@@ -330,44 +320,27 @@ That which was proclaimed of old in Law and Prophets has been fulfilled; for to-
 
 Another Canon, in Iambics, whose acrostic is contained in the following elegiac couplets:
 
-Only-begotten of God, from the heart of the Father you sent to
-Those upon earth once again other Advocate, Spirit divine,
-Bringing, in tongues made of fire, of the pure, immaterial Godhead,
-Sign of your nature and grace for those who are minstrels of praise.
+Only-begotten of God, from the heart of the Father you sent to Those upon earth once again other Advocate, Spirit divine, Bringing, in tongues made of fire, of the pure, immaterial Godhead, Sign of your nature and grace for those who are minstrels of praise.
 
 ****
 
-A Composition of Kyr John Arklas.
-Ode 1. Tone 4. Irmos.
+A Composition of Kyr John Arklas. Ode 1. Tone 4. Irmos.
 
-The slow of tongue, covered in divine darkness,
-Proclaimed the law written by God;
-For shaking the dust from his mind’s eye,
-He sees the One Who Is, and is initiated
-Into knowledge of the Spirit, as he gives praise with songs inspired.
+The slow of tongue, covered in divine darkness, Proclaimed the law written by God; For shaking the dust from his mind’s eye, He sees the One Who Is, and is initiated Into knowledge of the Spirit, as he gives praise with songs inspired.
 
 ****
 
 Troparia
 
-The revered and august mouth spoke:
-For you my friends there will be no absence.
-For I, once seated on my Father’s highest throne,
-Will pour out the unstinted grace of the Spirit
-To shine on those who yearn.
+The revered and august mouth spoke: For you my friends there will be no absence. For I, once seated on my Father’s highest throne, Will pour out the unstinted grace of the Spirit To shine on those who yearn.
 
-The firm Definition, most precise Word,
-Brings calm perfection to the heart;
-For, his work accomplished, Christ gladdened his friends,
-With a mighty wind and tongues of fire,
-Apportioning the Spirit, as he had promised.
+The firm Definition, most precise Word, Brings calm perfection to the heart; For, his work accomplished, Christ gladdened his friends, With a mighty wind and tongues of fire, Apportioning the Spirit, as he had promised.
 
 ****
 
 Katavasias
 
-He who brings wars.
-The slow of tongue.
+He who brings wars. The slow of tongue.
 
 ****
 
@@ -385,32 +358,19 @@ When the power of the divine Spirit came down, it divinely united in one harmony
 
 Another Irmos.
 
-Only the prayer of the prophetess Anna
-Of old, who brought a broken spirit
-To the Mighty One and God of knowledge,
-Broke the fetters of a childless womb
-And the harsh insult of one with many children.
+Only the prayer of the prophetess Anna Of old, who brought a broken spirit To the Mighty One and God of knowledge, Broke the fetters of a childless womb And the harsh insult of one with many children.
 
 Troparia
 
-Inapprehensible is the blaze of the Godhead;
-For it revealed the unlettered to be orators,
-Bridling the mouths of sophists in abundance with a word,
-And raising from deep night
-Unnumbered peoples by the Spirit’s lightning flash.
+Inapprehensible is the blaze of the Godhead; For it revealed the unlettered to be orators, Bridling the mouths of sophists in abundance with a word, And raising from deep night Unnumbered peoples by the Spirit’s lightning flash.
 
-From the unbegotten light proceeded
-The imperishable Splendour, illuminating with almighty operation,
-Whose fiery sound now reveals the consubstantial beacon
-Of the Father’s authority through the Son
-In Sion to the nations.
+From the unbegotten light proceeded The imperishable Splendour, illuminating with almighty operation, Whose fiery sound now reveals the consubstantial beacon Of the Father’s authority through the Son In Sion to the nations.
 
 ****
 
 Katavasias
 
-You told your Disciples.
-Only the prayer.
+You told your Disciples. Only the prayer.
 
 ****
 
@@ -436,34 +396,21 @@ Bearing the sign of the Godhead, the Spirit was divided among the Apostles by fi
 
 Another Irmos.
 
-Monarch of monarchs, Alone from the Alone,
-Word who came forth from the Father without cause,
-As Benefactor you have unerringly sent out
-Your Spirit, equal in strength, to the Apostles,
-As they sing: Glory to your might, O Lord.
+Monarch of monarchs, Alone from the Alone, Word who came forth from the Father without cause, As Benefactor you have unerringly sent out Your Spirit, equal in strength, to the Apostles, As they sing: Glory to your might, O Lord.
 
 ****
 
 Troparia.
 
-Having mixed the divine laver of regeneration
-By a word for a compounded nature,
-You rain down upon me a stream from your undefiled
-Pierced side, O Word of God,
-Sealing me with the fervour of the Spirit.
+Having mixed the divine laver of regeneration By a word for a compounded nature, You rain down upon me a stream from your undefiled Pierced side, O Word of God, Sealing me with the fervour of the Spirit.
 
-All things bend the knee to the Advocate
-To the Offspring of the Father, to the consubstantial Father;
-For they know in three Persons one
-Unerring, unapproachable, timeless Essence;
-For light has shone, the grace of the Spirit.
+All things bend the knee to the Advocate To the Offspring of the Father, to the consubstantial Father; For they know in three Persons one Unerring, unapproachable, timeless Essence; For light has shone, the grace of the Spirit.
 
 ****
 
 Katavasias
 
-The Prophet, O Christ.
-Monarch of monarchs.
+The Prophet, O Christ. Monarch of monarchs.
 
 ****
 
@@ -481,34 +428,21 @@ The strength which has come down to-day is the good Spirit, Spirit of the Wisdom
 
 Another Irmos.
 
-O light-formed children of the Church,
-Receive the Spirit’s fire-breathing dew,
-A redeeming purification of offences;
-For now a law has gone out from Sion,
-The torch-tongue-formed grace of the Spirit.
+O light-formed children of the Church, Receive the Spirit’s fire-breathing dew, A redeeming purification of offences; For now a law has gone out from Sion, The torch-tongue-formed grace of the Spirit.
 
 ****
 
 Troparia
 
-As he was well-pleased of his own authority
-The un-mastered Spirit comes down from the Father,
-Making the Apostles wise with tongues,
-Might of the Father, one in form, setting the seal
-Upon the life-bearing word, which the Saviour spoke.
+As he was well-pleased of his own authority The un-mastered Spirit comes down from the Father, Making the Apostles wise with tongues, Might of the Father, one in form, setting the seal Upon the life-bearing word, which the Saviour spoke.
 
-God the Word, all-sovereign, healed the minds
-Of the Apostles of sin, and made ready
-An immaculate dwelling for himself;
-Now the light of the Spirit dwells in them,
-Equal in strength and consubstantial.
+God the Word, all-sovereign, healed the minds Of the Apostles of sin, and made ready An immaculate dwelling for himself; Now the light of the Spirit dwells in them, Equal in strength and consubstantial.
 
 ****
 
 Katavasias
 
-Through fear of you.
-O light-formed children.
+Through fear of you. O light-formed children.
 
 ****
 
@@ -526,34 +460,21 @@ From your Spirit, Lord, as you said, you have poured out richly on all flesh, an
 
 Another Irmos.
 
-O Christ, the Master, you shone from the Virgin
-As pardon and salvation for us,
-That like the prophet Jonas from the belly
-Of the sea beast, you might snatch from corruption
-The whole fallen race of Adam.
+O Christ, the Master, you shone from the Virgin As pardon and salvation for us, That like the prophet Jonas from the belly Of the sea beast, you might snatch from corruption The whole fallen race of Adam.
 
 ****
 
 Troparia
 
-Almighty, renew a cherished, a right Spirit
-Within us, to hold it eternally,
-Who is ever united and proceeding from the Father,
-Purging minds of hateful matter, of burning
-Defilements and filth.
+Almighty, renew a cherished, a right Spirit Within us, to hold it eternally, Who is ever united and proceeding from the Father, Purging minds of hateful matter, of burning Defilements and filth.
 
-For the Apostles who awaited your coming
-In Sion you establish with fiery wind
-A longed for dignity, O Spirit,
-Knowledge of the Word begotten of the Father,
-Swiftly exposing the wild chatter of the nations’ babblings.
+For the Apostles who awaited your coming In Sion you establish with fiery wind A longed for dignity, O Spirit, Knowledge of the Word begotten of the Father, Swiftly exposing the wild chatter of the nations’ babblings.
 
 ****
 
 Katavasias
 
-Sick on the rolling swell.
-O Christ, the Master.
+Sick on the rolling swell. O Christ, the Master.
 
 ****
 
@@ -577,9 +498,7 @@ On the same day, the eighth Sunday from Pascha, we celebrate the holy Pentecost.
 
 Verses.
 
-With mighty wind, in form like tongues of fire
-Christ gives God’s Spirit now to the Apostles.
-Spirit on this great day on fishers poured.
+With mighty wind, in form like tongues of fire Christ gives God’s Spirit now to the Apostles. Spirit on this great day on fishers poured.
 
 This feast we also took from the Hebrew Bible; for just as they celebrate Pentecost, honouring the number seven, and that when they had passed through fifty days from Pascha they received the Law, so we too as we celebrate for fifty days after Pascha receive the all-holy Spirit, who gives laws and guides into all truth and lays down what is pleasing to God.
 
@@ -611,40 +530,23 @@ With right belief we confess the undivided nature, God the Father without beginn
 
 Another Irmos.
 
-Harmonious melody of instruments decreed
-Reverence to the lifeless idol wrought of gold.
-But the Advocate’s life-bearing grace
-Inspires with reverence to cry: Only Trinity,
-Equal in strength, without beginning, blessed are you.
+Harmonious melody of instruments decreed Reverence to the lifeless idol wrought of gold. But the Advocate’s life-bearing grace Inspires with reverence to cry: Only Trinity, Equal in strength, without beginning, blessed are you.
 
 ****
 
 Troparia
 
-Fools did not recognise the voice spoken
-In prophecy, called it drunkenness from wine,
-When they heard the Apostles sayings in strange tongues;
-We the devout, inspired, cry out to you:
-Renewer of the universe, blessed are you.
+Fools did not recognise the voice spoken In prophecy, called it drunkenness from wine, When they heard the Apostles sayings in strange tongues; We the devout, inspired, cry out to you: Renewer of the universe, blessed are you.
 
-The seer Joel, inspired, thundered an oracle
-Spoken by the divine Word:
-Those on whom I pour my Spirit
-Will cry out together: Nature,
-Shining with threefold splendour, blessed are you.
+The seer Joel, inspired, thundered an oracle Spoken by the divine Word: Those on whom I pour my Spirit Will cry out together: Nature, Shining with threefold splendour, blessed are you.
 
-The third hour was made rich with grace,
-That it might indicate the worship of
-Three Persons in singleness of authority;
-But now on the one Sovereign of days,
-Son, Father, Spirit, blessed are you.
+The third hour was made rich with grace, That it might indicate the worship of Three Persons in singleness of authority; But now on the one Sovereign of days, Son, Father, Spirit, blessed are you.
 
 ****
 
 Katavasias
 
-Cast into the furnace.
-Harmonious melody.
+Cast into the furnace. Harmonious melody.
 
 ****
 
@@ -664,40 +566,23 @@ As we advance to the mountain which must not be touched, unafraid of the terrify
 
 Another Irmos.
 
-The triple radiant type of Godhead’s source
-Looses the bonds and turns the flame to dew;
-Youths give praise; while all created nature
-Blesses the only Saviour and Creator
-Of all as Benefactor.
+The triple radiant type of Godhead’s source Looses the bonds and turns the flame to dew; Youths give praise; while all created nature Blesses the only Saviour and Creator Of all as Benefactor.
 
 ****
 
 Troparia
 
-Coming to rest in the form of tongues of fire,
-The Spirit, wrought remembrance of the saving words
-Which Christ heard from the Father and told
-To the Apostles. Creation, once estranged,
-Now reconciled, sings of you as blessed.
+Coming to rest in the form of tongues of fire, The Spirit, wrought remembrance of the saving words Which Christ heard from the Father and told To the Apostles. Creation, once estranged, Now reconciled, sings of you as blessed.
 
-As Saviour, coming of your own authority,
-Light shining of itself and provider of light,
-You came as a precious wind;
-While to your servants you distribute
-The Spirit so earnestly prayed for.
+As Saviour, coming of your own authority, Light shining of itself and provider of light, You came as a precious wind; While to your servants you distribute The Spirit so earnestly prayed for.
 
-The spirit-filled mouth of Prophets sang
-Of your sojourning, high Lord, in bodily form.
-And your Spirit proceeding from the Father’s bosom,
-Uncreated-cofashioning-cothroned,
-You send to believers for the worship of the incarnation.
+The spirit-filled mouth of Prophets sang Of your sojourning, high Lord, in bodily form. And your Spirit proceeding from the Father’s bosom, Uncreated-cofashioning-cothroned, You send to believers for the worship of the incarnation.
 
 ****
 
 Katavasias.
 
-Unconsumed by fire.
-The triple-radiant type.
+Unconsumed by fire. The triple-radiant type.
 
 ****
 
@@ -717,34 +602,21 @@ A strange thing, outside the law of nature, has been heard: for when the one voi
 
 Another Irmos.
 
-Hail, Queen, glorious virgin mother;
-For every fluent, every eloquent mouth
-With oratory has not the strength to sing you worthily;
-But every mind is dizzy when it seeks to understand
-Your giving birth; therefore with one accord we glorify you.
+Hail, Queen, glorious virgin mother; For every fluent, every eloquent mouth With oratory has not the strength to sing you worthily; But every mind is dizzy when it seeks to understand Your giving birth; therefore with one accord we glorify you.
 
 ****
 
 Troparia.
 
-It is right to tell of the Maiden who produced life;
-For she alone concealed in her round womb the Word,
-Who heals the sick nature of mortals;
-Who now, seated on the throne on the right hand
-Of the Father, has sent the grace of the Spirit.
+It is right to tell of the Maiden who produced life; For she alone concealed in her round womb the Word, Who heals the sick nature of mortals; Who now, seated on the throne on the right hand Of the Father, has sent the grace of the Spirit.
 
-On as many as the grace which flows from God has breathed,
-Resplendent, dazzling, transformed,
-With a strange, most glorious transformation,
-We have come to know the Essence of equal might, indivisible,
-Wise, of triple radiance; and we give glory.
+On as many as the grace which flows from God has breathed, Resplendent, dazzling, transformed, With a strange, most glorious transformation, We have come to know the Essence of equal might, indivisible, Wise, of triple radiance; and we give glory.
 
 ****
 
 Katavasias
 
-Conceiving without knowing.
-Hail, Queen.
+Conceiving without knowing. Hail, Queen.
 
 ****
 
@@ -803,8 +675,7 @@ Their sound has gone out into all the earth: and their words to the ends of the 
 
 At the prayers of the Mother of God, O Saviour save us.
 
-Glory. Both now.
-At the prayers of the Mother of God, O Saviour save us.
+Glory. Both now. At the prayers of the Mother of God, O Saviour save us.
 
 ****
 
@@ -824,8 +695,7 @@ May he remember your every sacrifice: and accept your burnt offering.
 
 Good Paraclete, save us who sing to you: Alleluia.
 
-Glory. Both now.
-Only-begotten Son and Word of God.
+Glory. Both now. Only-begotten Son and Word of God.
 
 ****
 
@@ -1168,7 +1038,7 @@ Again and again, on bended knees, let us pray to the Lord.
 
 The Priest prays as before:
 
-<span id="Thur12June"></span>Lord Jesus Christ our God, who, while still present with us in this life, gave your peace to humankind, and ever grant the gift of the all-holy Spirit to the faithful as an inheritance which cannot be taken away, you sent down this grace today in a more manifest form to your Disciples and Apostles and gave eloquence to their lips with tongues of fire, through which we, every race of humankind, having received the knowledge of God in our own language by the hearing of the ear, have been enlightened by the light of the Spirit, delivered from the darkness of error and, by the distribution and supernatural force of the perceptible tongues of fire, have been taught faith in you and have been illumined to speak of you as God with the Father and the holy Spirit in one Godhead, power and authority.
+Lord Jesus Christ our God, who, while still present with us in this life, gave your peace to humankind, and ever grant the gift of the all-holy Spirit to the faithful as an inheritance which cannot be taken away, you sent down this grace today in a more manifest form to your Disciples and Apostles and gave eloquence to their lips with tongues of fire, through which we, every race of humankind, having received the knowledge of God in our own language by the hearing of the ear, have been enlightened by the light of the Spirit, delivered from the darkness of error and, by the distribution and supernatural force of the perceptible tongues of fire, have been taught faith in you and have been illumined to speak of you as God with the Father and the holy Spirit in one Godhead, power and authority.
 
 Do you, then, the radiance of the Father, the unchangeable and unalterable stamp of his Essence and nature, the source of salvation and grace, open also the lips of me, a sinner, and teach me how I should and for whom I ought to pray, for you know the multitude of my sins, but your compassion will overcome their measureless number. For see, with fear I stand before you, having cast away despair of my soul into the sea of your mercy. Govern my life, by the ineffable power of your wisdom, you who govern all creation by a word, who are the fair haven of the storm-tossed, and make known to me the way in which I shall walk.
 
@@ -1392,9 +1262,6 @@ Reader:
 
 Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -5,15 +5,13 @@
 AT MATINS
 ---------
 
-**After the 1st Reading from the Psalter Kathisma.
-Tone 4.**
+**After the 1st Reading from the Psalter Kathisma. Tone 4.**
 
 The One who knows the thoughts of every heart, stood in the midst of the Temple and cried aloud, speaking truth to the liars: Why do you seek to arrest me, the Giver of Life? as he cried out at the mid-point of the Feast: Lawless ones, do not pass judgement by appearances! (**Twice)**
 
 ****
 
-After the 2nd Reading from the Psalter, Kathisma.
-Tone 5. The Word without beginning.
+After the 2nd Reading from the Psalter, Kathisma. Tone 5. The Word without beginning.
 
 The Master of all things, standing in the Temple at the mid-point of the feast of sacred Pentecost, addresses the Hebrews and as King and God clearly refutes their tyrannous daring: but through compassion he gives us all his great mercy.
 
@@ -25,8 +23,7 @@ Having seen the Resurrection of Christ **and Psalm 50, the Canons; that in Tone 
 
 The Canon in Tone 4, whose Acrostic is
 
-The Midpoint of great feasts I sing
-**A composition of Theophanes.** ****
+The Midpoint of great feasts I sing **A composition of Theophanes.** ****
 
 Ode 1. The Irmos.
 
@@ -320,8 +317,7 @@ On the Wednesday of the Paralysed Man we feast the feast of Mid-Pentecost.
 
 Verses.
 
-Christ, the Messias, mid the teachers stands,
-And teaches at the mid-point of the feast.
+Christ, the Messias, mid the teachers stands, And teaches at the mid-point of the feast.
 
 We celebrate this feast in honour of the two great feasts, of Pascha, I mean, and Pentecost, as it unites and binds them both. It occurred in this way. After Christ had performed the supernatural wonder on the Paralytic, the Jews, scandalized indeed because of the Sabbath (for it took place on the Sabbath), sought to kill him. He therefore fled to Galilee, and as he was sojourning on the mountains there, he performed the marvel of the five loaves and two fishes, nourishing five thousand men, not counting women and children. Afterwards at the feast of Tabernacles (this too is a great feast for the Jews) he went up to Jerusalem and went about in secret. About the mid-point of the feast he went up into the Temple and began to teach, and all were amazed at his teaching; but being envious of him they said: How does this man know letters, never having learned? For being the New Adam he knew, being filled with all wisdom as the first one, and again because he was God. Therefore they all murmured and we for slaying him. But Christ confused them, acting as though they were contending about the Sabbath, and said: Why do you seek to kill me? But he again referred to what had gone before, saying: If you contend for the Law, why are angry at me? Because I made a man whole on the Sabbath, when Moses who laid down the law on these things says that it is to be set aside for the sake of circumcision. He argued with them at length over this and showed that he himself had given the Law and that he was equal with the Father. And especially on the last day of the feast he was stoned by them; but not a single stone so much as touched him. And when he was passing by from there he found the man born blind and gave him his sight.
 
@@ -537,9 +533,6 @@ Brethren, enlightened by the Resurrection of the Saviour Christ, and having reac
 
 Great Doxology and Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

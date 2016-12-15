@@ -9,7 +9,7 @@ About the ninth hour the Lamplighter strikes the ninth hour and we assemble in t
 
 After the Blessing by the Priest the Reader
 
-\[**in Athonite use the Superior**\] ** **begins:**
+\[**in Athonite use the Superior**\] **begins:**
 
 Amen. Glory to you, our God, glory to you.
 
@@ -33,15 +33,13 @@ Our Father, in heaven, may your name be hallowed; your kingdom come; your will b
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 Reader:
 
 Amen. Lord, have mercy (**x12**), Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -137,7 +135,7 @@ Remember us, O Lord, when you come in your Kingdom.
 
 Likewise after the
 
-Glory **and the** ** Both now. **We make a small prostration after each** Remember.
+Glory **and the** Both now. **We make a small prostration after each** Remember.
 
 The Beatitudes. \[
 
@@ -281,7 +279,7 @@ May God take pity on us… ****
 
 We say the Prayer of St Ephrem with 4 full and 12 small metanias. Then Trisagion,
 
-** All-holy Trinity, Our Father. For yours. Lord, have mercy (**x12**) **and the Superior says the following prayer:**
+All-holy Trinity, Our Father. For yours. Lord, have mercy (**x12**) **and the Superior says the following prayer:**
 
 Prayer of Saint Basil the Great
 
@@ -293,9 +291,6 @@ Then the Lamplighter goes out and strikes the large simandron. We pray quietly a
 
 Come, let us worship (***x3***) **and 3 prostrations and we chant Psalm 103 of Vespers.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -9,8 +9,7 @@ Acrostic in the 9th Ode:
 
 Joseph ****
 
-Composition of Joseph of Thessaloniki.
-Ode 1. The Irmos. Tone 3.
+Composition of Joseph of Thessaloniki. Ode 1. The Irmos. Tone 3.
 
 O God, you are glorious in your wonders; you do marvels; you turned the deep into dry land, covered chariots and saved a people who sing to you, as God our redeemer.
 
@@ -180,7 +179,7 @@ Glory.
 
 O Trinity, save from every kind of danger those who in faith hymn you as God of all and Master, and make them sharers in your good things.
 
-******
+****
 
 Both now. Theotokion.
 
@@ -226,29 +225,26 @@ In the bush on Mount Sinai Moses saw you, who received in your womb unburned the
 
 Troparia.
 
-<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />esu, lifted up upon the Tree, you lifted us up with you. Laid willingly in a tomb, you raised from the graves all the dead, who praise your incomprehensible might and your invincible power.
+esu, lifted up upon the Tree, you lifted us up with you. Laid willingly in a tomb, you raised from the graves all the dead, who praise your incomprehensible might and your invincible power.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> Word most fair, you dawned most fair from the grave like a bridegroom from his chamber. You abolished the gloom of Hell, and delivered the prisoners, who sang in concert: Glory to your glory! Glory, Jesu our God, to your Rising!
+Word most fair, you dawned most fair from the grave like a bridegroom from his chamber. You abolished the gloom of Hell, and delivered the prisoners, who sang in concert: Glory to your glory! Glory, Jesu our God, to your Rising!
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />wiftly the women came to the all-holy grave, bringing sighs and tears with sweet spices, and with faith they were taught Christ’s Rising, which we celebrate, as we rejoice with gladness of soul.
+wiftly the women came to the all-holy grave, bringing sighs and tears with sweet spices, and with faith they were taught Christ’s Rising, which we celebrate, as we rejoice with gladness of soul.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />nergy of body followed your order, O Christ, and the man who was once paralysed was seen going by in haste, carrying the bed on which he had lain for many years, and praising your great power.
+nergy of body followed your order, O Christ, and the man who was once paralysed was seen going by in haste, carrying the bed on which he had lain for many years, and praising your great power.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />lead for enlightenment for us, holy and great Chief Captain, who always stand in the great light, and give peace to our life, forever shaken by the assaults of the serpent and by life’s troubles.
+lead for enlightenment for us, holy and great Chief Captain, who always stand in the great light, and give peace to our life, forever shaken by the assaults of the serpent and by life’s troubles.
 
 Glory.
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly, Holy, Holy, I cry with the powers on high, as with all reverence I glorify you, light and lights, life and lives, Father, Word and Holy Spirit, three-personned Unity, inseparable might, unconfused Godhead.
+oly, Holy, Holy, I cry with the powers on high, as with all reverence I glorify you, light and lights, life and lives, Father, Word and Holy Spirit, three-personned Unity, inseparable might, unconfused Godhead.
 
-Both now. **
+Both now.
 
 **Theotokion.**
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />e came from your light-bearing womb, Christ the great Sun, and enlightened the world with his bright rays, O Immaculate, and removed the darkness of the transgression; therefore we sing your praise as cause of all good, O bride of God.
+e came from your light-bearing womb, Christ the great Sun, and enlightened the world with his bright rays, O Immaculate, and removed the darkness of the transgression; therefore we sing your praise as cause of all good, O bride of God.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -36,8 +36,7 @@ See, the moment of our salvation has drawn near. Cave, make ready, the Virgin dr
 
 ****
 
-At the Aposticha, Idiomels.
-Tone 1. By Anatolios.
+At the Aposticha, Idiomels. Tone 1. By Anatolios.
 
 You peoples, let us celebrate the Eve of Christ’s Nativity; and raising our minds on high let us go up in spirit to Bethlehem; and with the eyes of the soul let us look on the Virgin as she hastens to give birth in a Cave to our God, the Lord of all things. Joseph, when he looked on the greatness of his wonders, thought that what he saw was a mortal, wrapped in swaddling clothes as a babe; but from all that came to pass he understood that it was the true God, who grants our souls his great mercy.
 
@@ -77,9 +76,6 @@ Mary once, with aged Joseph, went to be enrolled in Bethlehem, for they were of 
 
 Three times, and Dismissal.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

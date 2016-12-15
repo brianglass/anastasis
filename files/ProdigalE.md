@@ -1,78 +1,72 @@
 \[ [Home](index.md) \] \[ [Up](triodion.md) \] \[ [Readings](readLent.md) \] \[ [Tax Collector and Pharisee](PubPharE.md) \] \[ Prodigal Son \] \[ [Cheese Week](cheese_week.md) \] \[ [Sunday of Orthodoxy](sunday_of_orthodoxy.md) \] \[ [Sunday of the Cross](sunday_of_the_cross.md) \] \[ [Palm Sunday](palm.md) \] \[ [Holy Week](holyweek.md) \] \[ [Carnival Week](carnival_week.md) \]
 
-<span style="mso-bidi-font-size: 10.0pt">SUNDAY OF THE PROFLIGATE SON</span>
-============================================================================
+<span style="mso-bidi-font-size: 10.0pt">SUNDAY OF THE PROFLIGATE SON </span>
+=============================================================================
 
 ### <span style="mso-bidi-font-size: 10.0pt; font-weight: normal; mso-bidi-font-weight: bold"></span>
 
 ON SATURDAY EVENING
 ===================
 
-<span style="mso-bidi-font-size: 10.0pt; font-weight: normal; mso-bidi-font-weight: bold">AT VESPERS</span>
------------------------------------------------------------------------------------------------------------
+<span style="mso-bidi-font-size: 10.0pt; font-weight: normal; mso-bidi-font-weight: bold">AT VESPERS </span>
+------------------------------------------------------------------------------------------------------------
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-color:red;mso-bidi-font-style:italic">After the Opening Psalm and the usual reading from the Psalter, at</span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> </span>*<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Lord, I have cried<span style="color:red;mso-bidi-font-style:italic">, we insert ten stichera: six of the Resurrection in the Tone of the week from the Octoichos, and the following two Idiomels from the Triodion, doubling them.</span></span>
+color:red;mso-bidi-font-style:italic">After the Opening Psalm and the usual reading from the Psalter, at</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Lord, I have cried<span style="color:red;mso-bidi-font-style:italic">, we insert ten stichera: six of the Resurrection in the Tone of the week from the Octoichos, and the following two Idiomels from the Triodion, doubling them. </span></span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
-font-style:normal;mso-bidi-font-style:italic">Tone 1.</span>
+font-style:normal;mso-bidi-font-style:italic">Tone 1. </span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">I was entrusted with a sinless and living country, but, having sown the ground<a href="#_ftn1" id="_ftnref1">[1]</a> with sin, with a sickle I have reaped the ears of indifference and piled up the heaps of the sheaves of my actions, which I have not spread out on the threshing floor of repentance.<a href="#_ftn2" id="_ftnref2">[2]</a> <span style="text-transform:uppercase">b</span>ut I beg you, our God, husbandman before the ages, with the wind of your loving compassion winnow away<a href="#_ftn3" id="_ftnref3">[3]</a> the chaff of my works, and provision<a href="#_ftn4" id="_ftnref4">[4]</a> my soul with forgiveness; shut me in your heavenly storehouse and save me. <span style="mso-tab-count:1">     </span><span style="color:red;mso-bidi-font-style:
-italic">(Twice)</span>**</span>
+mso-bidi-font-size:10.0pt">I was entrusted with a sinless and living country, but, having sown the ground<a href="#_ftn1" id="_ftnref1">[1]</a> with sin, with a sickle I have reaped the ears of indifference and piled up the heaps of the sheaves of my actions, which I have not spread out on the threshing floor of repentance.<a href="#_ftn2" id="_ftnref2">[2]</a> <span style="text-transform:uppercase">b</span>ut I beg you, our God, husbandman before the ages, with the wind of your loving compassion winnow away<a href="#_ftn3" id="_ftnref3">[3]</a> the chaff of my works, and provision<a href="#_ftn4" id="_ftnref4">[4]</a> my soul with forgiveness; shut me in your heavenly storehouse and save me.      <span style="color:red;mso-bidi-font-style:
+italic">(Twice)</span> </span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">Brethren, let us learn the power of the mystery. For when the Profligate Son ran back from sin to his Father’s hearth, the all-loving Father, coming out to meet him, kissed him and gave him back again the tokens of his own glory, and completed the mystical joy of those on high by sacrificing the fatted calf, so that we might live lives worthy of the loving Father, who offered the sacrifice, and of the glorious sacrificial victim, the Saviour of our souls. <span style="mso-tab-count:1">    </span><span style="color:red;mso-bidi-font-style:italic">(Twice)</span></span>
+mso-bidi-font-size:10.0pt">Brethren, let us learn the power of the mystery. For when the Profligate Son ran back from sin to his Father’s hearth, the all-loving Father, coming out to meet him, kissed him and gave him back again the tokens of his own glory, and completed the mystical joy of those on high by sacrificing the fatted calf, so that we might live lives worthy of the loving Father, who offered the sacrifice, and of the glorious sacrificial victim, the Saviour of our souls.     <span style="color:red;mso-bidi-font-style:italic">(Twice)</span> </span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Glory.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"> </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
-mso-bidi-font-style:italic">Tone 2.</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt"></span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Glory.</span> <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
+mso-bidi-font-style:italic">Tone 2.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Of what great blessings, wretch that I am, have I deprived myself! From what a kingship<a href="#_ftn5" id="_ftnref5">[5]</a> in my misery have I fallen! I have wasted the wealth that I received, I have transgressed the commandment. Alas, unhappy soul ! You are henceforth condemned to the eternal fire. Therefore before the end cry out to Christ our God, ‘Receive me as the Profligate Son, O God, and have mercy on me’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">Of what great blessings, wretch that I am, have I deprived myself! From what a kingship<a href="#_ftn5" id="_ftnref5">[5]</a> in my misery have I fallen! I have wasted the wealth that I received, I have transgressed the commandment. Alas, unhappy soul ! You are henceforth condemned to the eternal fire. Therefore before the end cry out to Christ our God, ‘Receive me as the Profligate Son, O God, and have mercy on me’. </span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now.</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt"></span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now.</span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">The 1st Theotokion in the Tone of the week from the Octoichos.</span>
+10.0pt;color:red;font-style:normal;mso-bidi-font-style:italic">The 1st Theotokion in the Tone of the week from the Octoichos. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red;mso-bidi-font-style:italic">Entrance, </span><span style="font-size:
 14.0pt;mso-bidi-font-size:10.0pt">O Joyful Light<span style="color:red;
-mso-bidi-font-style:italic">. Prokeimenon of the day. At the Liti<a href="#_ftn6" id="_ftnref6">[6]</a> we sing the sticheron of the patron saint of the monastery.</span>**</span>
+mso-bidi-font-style:italic">. Prokeimenon of the day. At the Liti<a href="#_ftn6" id="_ftnref6">[6]</a> we sing the sticheron of the patron saint of the monastery.</span> </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
-mso-bidi-font-style:italic">Glory. </span><span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red; mso-bidi-font-style: normal">Tone 4.</span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt"></span>*
+mso-bidi-font-style:italic">Glory. </span><span style="font-size: 14.0pt; mso-bidi-font-size: 10.0pt; color: red; mso-bidi-font-style: normal">Tone 4.</span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt;mso-bidi-font-style:italic">Like the Profligate Son, having dissipated my whole livelihood in exile, I have squandered the wealth you gave me, Father. Accept me as I now repent, and save me.</span>
+mso-bidi-font-size:10.0pt;mso-bidi-font-style:italic">Like the Profligate Son, having dissipated my whole livelihood in exile, I have squandered the wealth you gave me, Father. Accept me as I now repent, and save me. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt;mso-bidi-font-style:italic">Both now. <span style="color:red">Theotokion.</span></span>*<span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt"></span>*
+10.0pt;mso-bidi-font-style:italic">Both now. <span style="color:red">Theotokion.</span></span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt">The mystery hidden from all eternity and unknown to Angels, has been re­vealed to those on earth through you, O Mother of God: God being made flesh in a union without confusion, and willingly accepting the Cross for us, through which he raised the first-formed man and saved our souls from death.<span style="mso-bidi-font-style:italic"></span></span>
+mso-bidi-font-size:10.0pt">The mystery hidden from all eternity and unknown to Angels, has been re­vealed to those on earth through you, O Mother of God: God being made flesh in a union without confusion, and willingly accepting the Cross for us, through which he raised the first-formed man and saved our souls from death. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;
-font-style:normal;mso-bidi-font-style:italic">Alphabetical Aposticha from the Octoichos.</span>
+font-style:normal;mso-bidi-font-style:italic">Alphabetical Aposticha from the Octoichos. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal;
-mso-bidi-font-style:italic">Glory.<span style="color:red"> Tone 6.</span></span>
+mso-bidi-font-style:italic">Glory.<span style="color:red"> Tone 6. </span></span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">I have squandered the wealth of my Father’s gift, and have grazed<a href="#_ftn7" id="_ftnref7">[7]</a>, poor wretch, with irrational beasts. Yearning for their food, I starved and was not filled. But now I return to the compassionate Father and cry out with tears, ‘Accept me as a hired servant, as I fall down before your loving‑kindness, and save me’.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">I have squandered the wealth of my Father’s gift, and have grazed<a href="#_ftn7" id="_ftnref7">[7]</a>, poor wretch, with irrational beasts. Yearning for their food, I starved and was not filled. But now I return to the compassionate Father and cry out with tears, ‘Accept me as a hired servant, as I fall down before your loving‑kindness, and save me’. </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;font-style:normal">Both now</span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">. </span><span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;color:red;font-style:normal;
-mso-bidi-font-style:italic">Theotokion.</span><span style="font-size:14.0pt;
-mso-bidi-font-size:10.0pt"></span>
+mso-bidi-font-style:italic">Theotokion.</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">My maker and redeemer, Christ the Lord, by coming from your womb, All-pure Lady, and clothing himself in me freed Adam from the former curse. Therefore, All-pure, as to her who is truly Mother of God and Virgin, we cry unceasingly the Angel’s ‘Hail’: Hail, Sovereign Lady, defence, protection and salvation of our souls!</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:10.0pt">My maker and redeemer, Christ the Lord, by coming from your womb, All-pure Lady, and clothing himself in me freed Adam from the former curse. Therefore, All-pure, as to her who is truly Mother of God and Virgin, we cry unceasingly the Angel’s ‘Hail’: Hail, Sovereign Lady, defence, protection and salvation of our souls! </span>
 
 <span style="font-size:14.0pt;mso-bidi-font-size:10.0pt;
 color:red">Apolytikion, </span><span style="font-size:14.0pt;mso-bidi-font-size:
-10.0pt">Virgin Mother of God<span style="color:red">, three times. And the rest of the office of the Vigil.<a href="#_ftn8" id="_ftnref8">[8]</a></span></span>
-
- 
+10.0pt">Virgin Mother of God<span style="color:red">, three times. And the rest of the office of the Vigil.<a href="#_ftn8" id="_ftnref8">[8]</a>   </span></span>
 
 <span style="text-transform: uppercase">on Sunday morning</span>
 ================================================================
@@ -86,7 +80,7 @@ After the Six Psalms,
 
 The Lord is God, **the Apolytikion of the Resurrection (twice) and the Theotokion in the Tone of the week. The usual readings from the Psalter, the Kathismata in the Tone of the week from the Octoichos, the Evlogitaria, the Ypakoï, the Anavathmi and the Prokeimenon in the Tone of the week, and the appointed Morning Gospel. Then** Having seen the Resurrection of Christ*,* **followed by Psalm 50, and the following Idiomels.**
 
-Glory. **
+Glory.
 
 **Tone 8.**
 
@@ -110,8 +104,7 @@ As I ponder the multitudes of dreadful things that I have done, wretch that I am
 
 The Canons. The Canon of the Resurrection, the Canon of the Cross and Resurrection, the Canon of the Mother of God, and of the Triodion. We sing the Office from the Menaion on the preceding Friday at Compline.
 
-Canon of the Triodion to 6.
-Composition of Kyr Joseph. Acrostic in Ode 9:
+Canon of the Triodion to 6. Composition of Kyr Joseph. Acrostic in Ode 9:
 
 <span style="text-transform: uppercase">Joseph</span>**.**
 
@@ -241,7 +234,7 @@ I am held fast by an abyss of sins, O Saviour, and am drowning in the ocean of l
 
 Kontakion. Tone 3. Today the Virgin.
 
-I have foolishly run away, O Father, from your glory; I have squandered in evil deeds the riches you entrusted to me; therefore I offer you the words of the Profligate: I have sinned before you, **** compassionate **** Father**:** take me now repentant **** and make me as one of your hired servants.
+I have foolishly run away, O Father, from your glory; I have squandered in evil deeds the riches you entrusted to me; therefore I offer you the words of the Profligate: I have sinned before you, compassionate Father**:** take me now repentant and make me as one of your hired servants.
 
 ****
 
@@ -259,8 +252,7 @@ On this day we commemorate the parable of the Profligate Son from the holy Gospe
 
 Verses.
 
-If you’re a Profligate, like me, take heart!
-All doors to God’s compassion open lie.
+If you’re a Profligate, like me, take heart! All doors to God’s compassion open lie.
 
 By your ineffable love for humankind, Christ our God, have mercy on me.
 
@@ -334,9 +326,7 @@ Who of those born of earth has heard the like? Or who has ever seen that a Virgi
 
 ****
 
-The appointed Exapostilarion of the Resurrection
-and the following of the Triodion.
-Women hear.
+The appointed Exapostilarion of the Resurrection and the following of the Triodion. Women hear.
 
 By uselessly leaving home, wretch that I am, I wickedly wasted the wealth of grace that you gave me. And living like the Profligate I squandered my wealth deceitfully to demons. But now, as I return, accept me like the Profligate, merciful Father, and save me.
 
@@ -358,13 +348,13 @@ At Lauds. Four stichera of the Resurrection from the Octoichos and one by Anatol
 
 Tone 2.
 
-I bring you the words of the Profligate, Lord. I have sinned in your sight, O Good One. I have squandered the wealth of **** your gifts of grace. But receive me in repentance Saviour, and save me.
+I bring you the words of the Profligate, Lord. I have sinned in your sight, O Good One. I have squandered the wealth of your gifts of grace. But receive me in repentance Saviour, and save me.
 
 ****
 
 Verse 1:
 
-** Arise, O Lord, my God, lift up your hand: do not forget your poor for ever. ****
+Arise, O Lord, my God, lift up your hand: do not forget your poor for ever. ****
 
 Tone 4.
 
@@ -394,29 +384,24 @@ You are most blessed, Virgin Mother of God, for through him who took flesh from 
 
 Great Doxology. the two Litanies, and the Dismissal. The usual Liti, at which we sing the Eothinon, and the Catecheses are read.
 
-------------------------------------------------------------------------
-
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious.</span>
+<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious. </span>
 
 <a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, ‘to’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive ‘To be entrusted with something’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be ‘with’, which at least makes sense, and for the moment I follow him. It is unclear what the ‘sinless and living land is’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word ‘but’ in the first line is not in the Greek and there is a colon after ‘sin’. The latter would not make sense. It is simpler to take ‘having sown the ground with sin’ with what follows. In Slavonic ‘reaped’ and ‘piled’ are also participles, which all depend on ‘I was entrusted’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the ‘I’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means ‘entrusted with’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word ‘country’. </span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo* <span style="mso-spacerun: yes"> </span>is not attested in the lexical, but again the meaning is obvious.</span>
+<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo*  is not attested in the lexical, but again the meaning is obvious. </span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above.</span>
+<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above. </span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’.</span>
+<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’. </span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday.</span>
+<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday. </span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’.</span>
+<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’. </span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday.</span>
+<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday. </span>
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

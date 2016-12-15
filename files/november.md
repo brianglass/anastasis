@@ -7,14 +7,11 @@ THE MONTH OF NOVEMBER
 
 1. Of the holy and wonder-working, unmercenary physicians, Cosmas and Damian; and of their venerable mother Theodotes.
 
-<img src="KosDamNov.gif" alt="KosDamNov.gif (63480 bytes)" width="120" height="210" />
-
 They were from Asia, and their father was a pagan. After his death, their Christ-loving mother now having found freedom, brought them up devoutly and taught them every form of virtue and knowledge, in particular medicine. They took this up as their profession and went around every disease and weakness, giving their cures without payment both to all humans and also to animals, hence they were given the epithet ‘Unmercenaries’. In this way they completed the course of their lives and died in peace.
 
 ****
 
-Permission for wine and oil.*
-*Apolytikion. Tone 8.
+Permission for wine and oil. Apolytikion. Tone 8.
 
 Holy Unmercenary Saints and wonderworkers, visit our weaknesses: freely you have received, freely give to us.
 
@@ -143,8 +140,6 @@ As a mighty beacon the Church of Christ glorifies you with joy in psalms; theref
 ****
 
 8. The Assembly of the Chief Captain Michael and the rest of the Bodiless Powers.
-
-<img src="GabrMich.gif" alt="GabrMich.gif (65466 bytes)" width="201" height="265" />
 
 All the Angels, according to the Apostle Paul, are ministering spirits, sent out for those who are to inherit salvation \[Heb. 1:14\]. God has established them as guardians over every nation and people, and as guides for what is good \[Lev. 32:8\]. He orders them to guard those who hope in him, that nothing may harm them, that no evil may draw near their dwellings \[Ps. 6:9-14\]. In heaven they look continually on the face of God, as they sing to him the thrice-holy hymn and intercede before him on our behalf, as they likewise also rejoice over one sin who repents \[Is. 6:2-3; Mt. 18:10; Lk. 15:7; Acts 12:15\]. In a word they serve God for our benefit in so many ways that the pages of the holy Scriptures are full of accounts of them.
 
@@ -280,8 +275,6 @@ The rebellious undergrowth of the passions of the body, blest Neilos, you vigoro
 
 13. Of our father among the saints John Chrysostom, archbishop of Constantinople.
 
-<img src="ChrNov01.gif" alt="ChrNov01.gif (21380 bytes)" width="91" height="256" />
-
 This great teacher of the inhabited world was born in Antioch the Great in 344 of devout parents, Secundus and Anthousa. He was a pupil the rhetor Livanios and the philosopher Andragathios. He was at first a monk in the hermitages around Antioch and later ordained priest of the church of Antioch in 383. He mounted the archiepiscopal throne on the 15th of December 397.
 
 He was banished in 402 by Arkadios and Evdoxia, but after a short time he was recalled to his throne. After seven or eight months he was banished for a second time on June 29th 404, and having suffered greatly in exile for more than three years, being constantly transferred from place to place, he died on the road in Komani on the 14th of September 407 at the age of 63. He was named Chrysostom because of his eloquence. He wrote a great many works and explained the divine Scriptures more than any other of the Fathers. 1,447 of his sermons have been preserved and 240 letters. Twenty two teachers of the Church have composed eulogies for him.
@@ -378,8 +371,7 @@ Plato was martyred under the governor Agrippinos in 296, and was from the territ
 
 ****
 
-If it is not Alleluia,
-Apolytikion. Tone 4. \[Common\]
+If it is not Alleluia, Apolytikion. Tone 4. \[Common\]
 
 Your Martyrs, O Lord, by their struggles obtained crowns of incorruption from you, our God; for with your might they destroyed tyrants, and shattered the feeble insolence of the demons: at their prayers, O Christ God, save our souls.
 
@@ -391,8 +383,7 @@ Varlaam was from a village by Syrian Antioch; he was an old man and a farmer by 
 
 ****
 
-If it is not Alleluia,
-Apolytikion of the Prophet. Tone 2. \[Common\]
+If it is not Alleluia, Apolytikion of the Prophet. Tone 2. \[Common\]
 
 As we celebrate the memory of your Prophet Avdias, O Lord, through him we beseech you: Save our souls.
 
@@ -435,8 +426,6 @@ The whole to-day has been filled with joy, at the glorious festival of the Mothe
 ****
 
 21. The Entry of our most holy Lady the Mother of God into the Temple.
-
-<img src="EntryBMV-Nov.gif" alt="EntryBMV-Nov.gif (104095 bytes)" width="202" height="241" />
 
 According to the tradition of the Church, the Mother of God was brought to the Temple at the age of three years and there dedicated to God. She lived there for eleven or twelve whole years, until the age of fourteen or fifteen; and then as a perfect maiden, by the common counsel of the priests - her parents having died three years before - she was betrothed to Joseph.
 
@@ -516,8 +505,7 @@ Mercurius was martyred under Valerian in 255. He was from Paphlagonia, son of ce
 
 ****
 
-Today we take leave of the Feast of the Entry.
-No work, and permission for wine and oil.
+Today we take leave of the Feast of the Entry. No work, and permission for wine and oil.
 
 Apolytikion. Tone 4. \[Common\]
 
@@ -615,8 +603,6 @@ Your Martyrs, O Lord, by their struggles obtained crowns of incorruption from yo
 
 30. Of the holy glorious and all-praised Apostle Andrew the First-called.
 
-<img src="AND03A.gif" alt="AND03A.gif (60033 bytes)" width="128" height="180" />
-
 He was from Bethsaida in Galilee, son of Jonas, brother of the prince of Apostles Peter, disciple at first of John the Baptist. Then, having heard his testimony concerning Jesus, when he pointed to him and said, ‘See, the lamb of God, who takes away the sin of the world’ (John 1,36), he followed Jesus at once and became his first disciple, from he he was given the title ‘First-called’ of the Apostles. After the Saviour’s assumption, he preached him in many places and suffered much for his name. He died in Patras in Achaia, being crucified head downwards.
 
 ****
@@ -633,9 +619,6 @@ Kontakion. 2nd Tone. Nor tomb, nor death.
 
 Let us sing the praise of God’s herald, whose name is ‘courage’, the First-called of the Saviour’s disciples, the brother of Peter; because as to him of old, so now to us he cries: Come, we have found the one so longed for.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -10,8 +10,7 @@ At
 
 the Lord is God **the Apolytikia as at Vespers.**
 
-After the 1st Reading from the Psalter, Kathisma.
-Tone 8.
+After the 1st Reading from the Psalter, Kathisma. Tone 8.
 
 Taking counsel.
 
@@ -19,8 +18,7 @@ Christ revealed the Tent of Witness, godlike Moses set it up on earth and Solomo
 
 **(Twice)**
 
-After the 2nd Reading from the Psalter, Kathisma.
-Tone 8.
+After the 2nd Reading from the Psalter, Kathisma. Tone 8.
 
 The Wisdom and Word.
 
@@ -30,8 +28,7 @@ Creator of ineffable wisdom, you prepared the heavens as a throne and called the
 
 (Twice)
 
-After the Polyeleos, Kathisma.
-Tone 4.
+After the Polyeleos, Kathisma. Tone 4.
 
 Speedily anticipate.
 
@@ -127,7 +124,7 @@ The Church is sprinkled, not with the slaughter of beasts, but with your preciou
 
 The tabernacles of the Lord, beloved of those who long to see the glory of your face unveiled, cry out in harmony, ‘Glory to your power, O Lord.’
 
-In an image of the anointing of your chosen people, the Church is anointed today as she receives invisibly the most precious myron, <sup></sup> the divine grace of the Spirit.
+In an image of the anointing of your chosen people, the Church is anointed today as she receives invisibly the most precious myron, the divine grace of the Spirit.
 
 ****
 
@@ -277,7 +274,7 @@ Hail, Full of grace, Bride of the great King, for through you we have all been d
 
 **Exapostilarion.** Women, hear.
 
-By your Holy Spirit, <sup></sup> Lord, Lover of mankind, renew the souls and hearts of those who celebrate with faith the sacred Dedication of your all-revered House. In it accept as a sacrifice the prayers of us who worship you, O Saviour.
+By your Holy Spirit, Lord, Lover of mankind, renew the souls and hearts of those who celebrate with faith the sacred Dedication of your all-revered House. In it accept as a sacrifice the prayers of us who worship you, O Saviour.
 
 ****
 
@@ -287,11 +284,11 @@ Let everything that has breath **and** Praise the Lord**, the Bishop descends fr
 
 **First Prayer.**
 
-**Lord, our God, with only a word you fashioned creation and brought it into being, while with ineffable words you formed it in different ways, sent your Spirit who was borne upon it and poured out on it the light of the sun for its renewal. You inspired your servant Moses to offer special praise to your excellent craftsmanship and to say that you saw the light, that it was good, and you called it Day.**<span id="fri01"></span> As we too see this light and this radiant sun renewing creation every day, we glorify you, the Sun of the true day and the Light that knows no evening. Through your Son you commanded our nature to be renewed by your Holy Spirit, so that through this gift the just might shine like the sun. We entreat you and implore you, Father of the Word, our Lord and our God: Since by your ineffable love for humankind and your measureless mercy creation has received renewal, as did the old Law, as a type of the New Covenant, by your divine vision on Mount Sinai and in that wondrous Bush, in the Tabernacle of Witness and in the Solomon’s Temple of outstanding beauty, look with a merciful eye upon us sinners and your unworthy servants, who dwell in this House, that is as high as heaven, the boast of the inhabited world, the true Altar of your ineffable glory. And send down your all-holy Spirit on us and upon your inheritance, and, like godly David, renew an upright spirit in our hearts, and strengthen us with a sovereign spirit. To our Rulers give trophies and victories over visible and invisible enemies, and to us harmony and peace. To those, who with divine love have worked with zeal for the construction this building and the dedication of the Church, grant forgiveness of offences; give them their requests that are for salvation; rouse them to the working of your commandments; bestow on them the renewal of the gift of your Holy Spirit, so that, without condemnation, they may worship you, the only true God and Jesus Christ whom you have sent, at the prayers of the Mother of God and of all your Saints. Amen.
+**Lord, our God, with only a word you fashioned creation and brought it into being, while with ineffable words you formed it in different ways, sent your Spirit who was borne upon it and poured out on it the light of the sun for its renewal. You inspired your servant Moses to offer special praise to your excellent craftsmanship and to say that you saw the light, that it was good, and you called it Day.** As we too see this light and this radiant sun renewing creation every day, we glorify you, the Sun of the true day and the Light that knows no evening. Through your Son you commanded our nature to be renewed by your Holy Spirit, so that through this gift the just might shine like the sun. We entreat you and implore you, Father of the Word, our Lord and our God: Since by your ineffable love for humankind and your measureless mercy creation has received renewal, as did the old Law, as a type of the New Covenant, by your divine vision on Mount Sinai and in that wondrous Bush, in the Tabernacle of Witness and in the Solomon’s Temple of outstanding beauty, look with a merciful eye upon us sinners and your unworthy servants, who dwell in this House, that is as high as heaven, the boast of the inhabited world, the true Altar of your ineffable glory. And send down your all-holy Spirit on us and upon your inheritance, and, like godly David, renew an upright spirit in our hearts, and strengthen us with a sovereign spirit. To our Rulers give trophies and victories over visible and invisible enemies, and to us harmony and peace. To those, who with divine love have worked with zeal for the construction this building and the dedication of the Church, grant forgiveness of offences; give them their requests that are for salvation; rouse them to the working of your commandments; bestow on them the renewal of the gift of your Holy Spirit, so that, without condemnation, they may worship you, the only true God and Jesus Christ whom you have sent, at the prayers of the Mother of God and of all your Saints. Amen.
 
 **Second Prayer.**
 
-**Pre-eternal Word and only-begotten Son of God, true God and Fashioner of all creation both physical and spiritual, with infinite wisdom you made this creation beautiful, you brought the liquid nature of the waters that was spread out over the earth into one gathering and assembly,** <sup></sup> and by your divine Spirit you ordered the whole earth and made new the whole universe. Through Moses you skilfully set in order that Tabernacle of Witness and dedicated by your Holy Spirit. You ordered Solomon the wise to build a holy and majestic House of your ineffable glory that is beyond description and dedicated it by your Holy Spirit. And when the glory and grace of your Holy Spirit overshadowed it you ensured that they were seen by the Assembly of the Elders of the Jews. We beg and implore you, Word without beginning and Son of the Father who has no beginning, that you would send down to us at this hour the grace of your all-holy Spirit, and that you would establish and empower the Church which has now been erected to give you glory and praise, preserving it until the consummation of the ages, and that you would dedicate it by your Holy Spirit, so that we, who in it offer you sacrifices without shedding of blood, may become partakers in the Holy Spirit, who has been renewed in our inmost being, who makes firm the sovereign part of our thought and mystically gives us grace to offer you, our Master and God, spiritual sacrifices for the cleansing of the mind, to the glory of your immortal Father who has no beginning, of you, his only-begotten Son and of your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
+**Pre-eternal Word and only-begotten Son of God, true God and Fashioner of all creation both physical and spiritual, with infinite wisdom you made this creation beautiful, you brought the liquid nature of the waters that was spread out over the earth into one gathering and assembly,** and by your divine Spirit you ordered the whole earth and made new the whole universe. Through Moses you skilfully set in order that Tabernacle of Witness and dedicated by your Holy Spirit. You ordered Solomon the wise to build a holy and majestic House of your ineffable glory that is beyond description and dedicated it by your Holy Spirit. And when the glory and grace of your Holy Spirit overshadowed it you ensured that they were seen by the Assembly of the Elders of the Jews. We beg and implore you, Word without beginning and Son of the Father who has no beginning, that you would send down to us at this hour the grace of your all-holy Spirit, and that you would establish and empower the Church which has now been erected to give you glory and praise, preserving it until the consummation of the ages, and that you would dedicate it by your Holy Spirit, so that we, who in it offer you sacrifices without shedding of blood, may become partakers in the Holy Spirit, who has been renewed in our inmost being, who makes firm the sovereign part of our thought and mystically gives us grace to offer you, our Master and God, spiritual sacrifices for the cleansing of the mind, to the glory of your immortal Father who has no beginning, of you, his only-begotten Son and of your all-holy, good and life-giving Spirit, now and for ever, and to the ages of ages. Amen.
 
 ****
 
@@ -329,8 +326,6 @@ O Word, who rest in the bosom of the Father, send down your Holy Spirit on the C
 
 Great Doxology and Dismissal.
 
-------------------------------------------------------------------------
-
 NOTE
 ----
 
@@ -346,9 +341,6 @@ The Bishop’s white garment, the ‘katasarkion’ of the Table, the four piece
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

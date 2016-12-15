@@ -423,9 +423,6 @@ Without seed you conceived of the Holy Spirit, and as we glorify you we cry out:
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

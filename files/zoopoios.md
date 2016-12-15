@@ -9,11 +9,6 @@ The Greek word *zoopoios* is extremely frequent in the liturgical texts, very co
 
 The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.
 
-<img src="getacro.gif" width="88" height="31" />
-
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

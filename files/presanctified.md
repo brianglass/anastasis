@@ -4,15 +4,13 @@ INTRODUCTION
 
 This provisional translation of the Liturgy of the Presanctified is intended to be practical, rather than critical. It is based for the most part on the 3rd volume of the *Hieratikon* published by the Monastery of Simonos Petra in 1992, together with second edition of the Greek text published by Professor Phountoulis in 1986 and the 3rd edition of *Megali Tessarakosti* by the *Apostoliki Diakonia* in 1991. The earlier edition by Rigopoulis 1977 and the Slavonic  *Sluzebnik*, Moscow 1996. There are many variations in the various editions and I hope to provide more detailed annotation shortly, together with translations of St Theodore the Studite’s *Commentary* and St Symeon of Thessalonika‘s *Answers.* The Reader‘s and Singers‘ parts of the service will be found elsewhere on these pages, [The Holy and Divine Liturgy of the Presanctified Gifts](lenten_vespers_2.md).
 
-------------------------------------------------------------------------
-
 THE DIVINE LITURGY OF THE PRESANCTIFIED
 
 ****
 
 When the moment for the service arrives, after the ekphonesis
 
-For yours is the kingdom… ** **by the Priest at the beginning of the 9th Hour, the Deacon joins the Priest and they go and make a metania to the Superior, or to his stall. Then, going to the middle of the church, they make three bows, saying,**
+For yours is the kingdom… **by the Priest at the beginning of the 9th Hour, the Deacon joins the Priest and they go and make a metania to the Superior, or to his stall. Then, going to the middle of the church, they make three bows, saying,**
 
 Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us.
 
@@ -26,7 +24,7 @@ Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy o
 
 After they have vested they take their stand before the holy Table and make three metanias, saying,
 
-** O God be merciful to me, a sinner. **The Priest, having kissed the holy Gospel and made the sign of the Cross on the Deacon’s head, gives the Dismissal of the 9th Hour.**
+O God be merciful to me, a sinner. **The Priest, having kissed the holy Gospel and made the sign of the Cross on the Deacon’s head, gives the Dismissal of the 9th Hour.**
 
 Then the Deacon begins:
 
@@ -96,27 +94,25 @@ While the Deacon is chanting the Litany of Peace, the Priest, in a low voice, sa
 
 **1st Prayer at the Lighting of the Lamps**
 
-****
-
-O **** Lord, compassionate and merciful, long-suffering and full of mercy, listen to our prayer and attend to the voice of our supplication. Make for us a sign for good. Guide us in your way, to walk in your truth. Make glad our hearts to fear your holy Name, because you are great and do wondrous things. You alone are God, and there is none like you, O Lord, among gods: powerful in mercy and loving in strength to help and to console and to save all who hope in your holy Name.
+O Lord, compassionate and merciful, long-suffering and full of mercy, listen to our prayer and attend to the voice of our supplication. Make for us a sign for good. Guide us in your way, to walk in your truth. Make glad our hearts to fear your holy Name, because you are great and do wondrous things. You alone are God, and there is none like you, O Lord, among gods: powerful in mercy and loving in strength to help and to console and to save all who hope in your holy Name.
 
 ****
 
 Priest, aloud:
 
-** For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For to you belong all glory, honour and worship, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
 Amen. ****
 
-The 18th Kathisma of the Psalter is recited in three sections. While this is being read, the Priest, uncovered, and with the curtain of the Holy Doors shut, goes to the Prothesis and, having washed his hands, takes the Paten, Star and Veil and carries them to the holy Table. Then he places the holy Gospel to the right of the holy Table, unfolds the Antimension and places the Paten on it. He takes one of the Presanctified Breads and places it on the Paten with great attentiveness and devotion. He puts the Star in place and covers it with the Veil, saying nothing, or only **
+The 18th Kathisma of the Psalter is recited in three sections. While this is being read, the Priest, uncovered, and with the curtain of the Holy Doors shut, goes to the Prothesis and, having washed his hands, takes the Paten, Star and Veil and carries them to the holy Table. Then he places the holy Gospel to the right of the holy Table, unfolds the Antimension and places the Paten on it. He takes one of the Presanctified Breads and places it on the Paten with great attentiveness and devotion. He puts the Star in place and covers it with the Veil, saying nothing, or only
 
-Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us. **Taking the censer he censes the holy Gifts three times and makes three full prostrations. After this he takes up the Holy Gifts and, circling the holy Table anti-clockwise, he goes to the Prothesis, the Deacon going ahead with a lamp and censing as he goes. The Priest lays the Holy Gifts on the Prothesis. Then he pours wine and water into the Chalice, cover it with the veil, and both Chalice and Paten with the Aer, saying none of the usual prayers of the Prothesis, nor the Prayer of Offering, or only** ** Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us, **for the sacrifice is already sanctified and perfected. Then he, having again censed the Holy Gifts three times, he goes and censes the holy Table and whole sanctuary. Then he folds up the Antimension and lays the holy Gospel on it.**
+Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us. **Taking the censer he censes the holy Gifts three times and makes three full prostrations. After this he takes up the Holy Gifts and, circling the holy Table anti-clockwise, he goes to the Prothesis, the Deacon going ahead with a lamp and censing as he goes. The Priest lays the Holy Gifts on the Prothesis. Then he pours wine and water into the Chalice, cover it with the veil, and both Chalice and Paten with the Aer, saying none of the usual prayers of the Prothesis, nor the Prayer of Offering, or only** Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy on us, **for the sacrifice is already sanctified and perfected. Then he, having again censed the Holy Gifts three times, he goes and censes the holy Table and whole sanctuary. Then he folds up the Antimension and lays the holy Gospel on it.**
 
 After the last
 
-** Both now and for ever ** **of the 1st section of the Psalter:**
+Both now and for ever **of the 1st section of the Psalter:**
 
 Deacon:
 
@@ -124,7 +120,7 @@ Again and again in peace, let us pray to the Lord. ****
 
 People:
 
-** Lord, have mercy. ****
+Lord, have mercy. ****
 
 Deacon:
 
@@ -136,7 +132,7 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Calling to remembrance our most holy, most pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+Calling to remembrance our most holy, most pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 People:
 
@@ -144,8 +140,7 @@ To you, O Lord. ****
 
 The Priest in a low voice says the
 
-**
-2nd Prayer at the Lighting of the Lamps**
+**2nd Prayer at the Lighting of the Lamps**
 
 Lord, do not rebuke us in your anger, nor chastise us in your wrath, but deal with us in accordance with your kindness, physician and healer of our souls. Guide us to the harbour of your will. Enlighten the eyes of our hearts to the knowledge of your truth and grant that the rest of the present day and the whole time of our life may be peaceful and without sin, at the prayers of the holy Mother of God and of all the Saints.
 
@@ -153,7 +148,7 @@ Lord, do not rebuke us in your anger, nor chastise us in your wrath, but deal wi
 
 Priest, aloud:
 
-** For yours is the Might, and yours is the Kingdom, the Power and the Glory, of the Father, the Son and the Holy Spirit, now and always and to ages of ages. ****
+For yours is the Might, and yours is the Kingdom, the Power and the Glory, of the Father, the Son and the Holy Spirit, now and always and to ages of ages. ****
 
 People**:**
 
@@ -163,11 +158,11 @@ After the 2nd Section of the Kathisma.
 
 Deacon:
 
-** Again and again in peace, let us pray to the Lord. ****
+Again and again in peace, let us pray to the Lord. ****
 
 People:
 
-** Lord, have mercy. . ****
+Lord, have mercy. . ****
 
 Deacon:
 
@@ -179,7 +174,7 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Calling to remembrance our most holy, most pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+Calling to remembrance our most holy, most pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 People:
 
@@ -187,8 +182,7 @@ To you, O Lord. ****
 
 The Priest in a low voice says the
 
-**
-3rd Prayer at the Lighting of the Lamps**
+**3rd Prayer at the Lighting of the Lamps**
 
 Lord our God, remember us, sinners and your unprofitable servants, as we call upon your holy Name, and do not put us to shame from the expectation of your mercy, but graciously grant us, Lord, all the requests that are for salvation, and count us worthy to love and to fear you from our whole heart, and in all things to do your will.
 
@@ -222,7 +216,7 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
+Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God. ****
 
 People:
 
@@ -230,8 +224,7 @@ To you, O Lord. ****
 
 The Priest in a low voice says the
 
-**
-4th Prayer at the Lighting of the Lamps**
+**4th Prayer at the Lighting of the Lamps**
 
 O Lord, who are praised by the holy Powers with never silent hymns and unceasing songs of glory, fill our mouth with your praise to give majesty to your holy Name, and give us a part and an inheritance with all who fear you in truth and who keep your commandments, at the prayers of the holy Mother of God and of all your Saints.
 
@@ -239,7 +232,7 @@ O Lord, who are praised by the holy Powers with never silent hymns and unceasing
 
 Priest:
 
-** For you are our God, a God of mercy and salvation, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For you are our God, a God of mercy and salvation, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People**:**
 
@@ -249,7 +242,7 @@ The Curtain of the Holy Doors is opened.
 
 At
 
-** Lord, I have cried **the Priest blesses the incense as usual and then, if there is no Deacon, censes first the Prothesis, where the Holy Bread lies, then the holy Table, the Sanctuary and the whole Church.**
+Lord, I have cried **the Priest blesses the incense as usual and then, if there is no Deacon, censes first the Prothesis, where the Holy Bread lies, then the holy Table, the Sanctuary and the whole Church.**
 
 During the Theotokion, the Entrance with the censer. When a Gospel is to be read, the Entrance is made with it. Standing in the usual place, the Deacon says:
 
@@ -289,9 +282,7 @@ Wisdom. Stand upright.
 
 Then we sing
 
-**
-Thanksgiving at the Lighting of the Lamps
-An ancient poem, or, as some say, by the martyr Athenogenes.**
+**Thanksgiving at the Lighting of the Lamps** **An ancient poem, or, as some say, by the martyr Athenogenes.**
 
 O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father, O Jesus Christ. Now that we have come to the setting of the sun and see the evening light, we sing the praise of God, Father, Son and Holy Spirit. It is right at all times to hymn you with holy voices, Son of God, giver of life. Therefore the world glorifies you.
 
@@ -301,7 +292,7 @@ O joyful light of the holy glory of the immortal, heavenly, holy, blessed Father
 
 Priest:
 
-** Peace to all. ****
+Peace to all. ****
 
 Reader:
 
@@ -309,11 +300,11 @@ And to your spirit. ****
 
 Priest:
 
-** Wisdom!\] ****
+Wisdom!\] ****
 
 Deacon:
 
-** Evening ****
+Evening ****
 
 Reader:
 
@@ -321,11 +312,11 @@ Prokeimenon. Tone … Psalm … \[**from the Triodion, followed by the Readings\
 
 Deacon:
 
-** Wisdom! ****
+Wisdom! ****
 
 Reader:
 
-The reading is from Genesis \[**or** ** Exodus\].
+The reading is from Genesis \[**or** Exodus\].
 
 Deacon: Let us attend.
 
@@ -335,15 +326,15 @@ After the reading:
 
 Priest:
 
-** Wisdom! ****
+Wisdom! ****
 
 Reader:
 
-** Prokeimenon. Tone … Psalm… ****
+Prokeimenon. Tone … Psalm… ****
 
 After the Prokeimenon the Reader says in a loud voice:
 
-** Command! **The Priest, holding a lighted candle with the censer in his right hand, stands facing the holy Table and making the sign of the Cross with the light, says:**
+Command! **The Priest, holding a lighted candle with the censer in his right hand, stands facing the holy Table and making the sign of the Cross with the light, says:**
 
 Priest:
 
@@ -357,11 +348,11 @@ The Light of Christ shines for all!
 
 Deacon:
 
-** Wisdom. ****
+Wisdom. ****
 
 Reader:
 
-The reading is from Proverbs \[**or** ** Job\] ****
+The reading is from Proverbs \[**or** Job\] ****
 
 Deacon:
 
@@ -389,7 +380,7 @@ Then, as the Choirs take this up four times alternately, the Priest censes each 
 
 Priest/Reader:
 
-** Lord, I have cried to you, hear me; give heed to the voice of my supplication when I cry to you.
+Lord, I have cried to you, hear me; give heed to the voice of my supplication when I cry to you.
 
 2.
 
@@ -405,7 +396,7 @@ Set a guard, O Lord, on my mouth; and a strong door about my lips.
 
 Priest/Reader:
 
-** Let not my heart incline to evil words; to make excuses for my sins. \[Glory. Both now. **is often added, erroneously***.*\]
+Let not my heart incline to evil words; to make excuses for my sins. \[Glory. Both now. **is often added, erroneously***.*\]
 
 4.
 
@@ -426,8 +417,6 @@ The lifting up of my hands be an evening sacrifice.
 Then the
 
 Prayer of Saint Ephrem the Syrian**, once.**
-
-------------------------------------------------------------------------
 
 If there is a ‘feasted’ Saint, the Apostle and Gospel of the Feast (in Holy Week only the Gospel) are now read according the following order,
 
@@ -473,7 +462,7 @@ And to your spirit. Alleluia. (**Three times**)*.* ****
 
 While the
 
-** Alleluia **is being sung the Deacon, taking the censer with incense, approaches the Priest, and having received a blessing for the incense he censes the book of the Gospel, the Holy Table all round, the whole sanctuary, the Priest and, coming out a little from the Holy Doors, the principal icons and the People.**
+Alleluia **is being sung the Deacon, taking the censer with incense, approaches the Priest, and having received a blessing for the incense he censes the book of the Gospel, the Holy Table all round, the whole sanctuary, the Priest and, coming out a little from the Holy Doors, the principal icons and the People.**
 
 The Priest, in a low voice, reads the
 
@@ -485,7 +474,7 @@ Master, Lover of mankind, make the pure light of your divine knowledge shine in 
 
 When he has finished censing, the Deacon puts away the censer. He approaches the Priest, and, holding his Orarion with the tips of his fingers,
 
-** **points to the Holy Gospel as it lies on the Holy Table, bows his head and says in a low voice:**
+**points to the Holy Gospel as it lies on the Holy Table, bows his head and says in a low voice:**
 
 Master, bless the herald of the Good Tidings of the Holy Apostle and Evangelist
 
@@ -536,8 +525,6 @@ People:
 Glory to you, O Lord, glory to you. ****
 
 The Priest takes the Gospel from the Deacon, kisses it and blesses the people with it. He then replaces it on the Holy Table.
-
-------------------------------------------------------------------------
 
 Then the Deacon says the Great Litany:
 
@@ -635,7 +622,7 @@ Catechumens, bow your heads to the Lord.
 
 People:
 
-** To you, O Lord. ****
+To you, O Lord. ****
 
 While this litany is being said, the Priest, taking the holy Gospel and making the sign of the Cross with it over the Antimension, places it towards the back of the holy Table and, in a low voice, says the
 
@@ -651,15 +638,13 @@ That they also, with us, may glorify your all-honoured and majestic name, of Fat
 
 People:
 
-** Amen. ****
+Amen. ****
 
 The Priest opens the Antimension.
 
 Deacon:
 
 As many as are Catechumens, depart. Catechumens, depart.
-
-------------------------------------------------------------------------
 
 **Litany for those Preparing for Enlightenment**
 
@@ -671,7 +656,7 @@ Catechumens, depart **the Litany for those Preparing for Enlightenment added.**
 
 Deacon:
 
-** As many as are preparing for Enlightenment, draw near. Those who are preparing for Enlightenment pray to the Lord. ****
+As many as are preparing for Enlightenment, draw near. Those who are preparing for Enlightenment pray to the Lord. ****
 
 People:
 
@@ -701,7 +686,7 @@ Those preparing for Enlightenment, bow your heads to the Lord.
 
 People:
 
-** To you, O Lord.
+To you, O Lord.
 
 **Prayer for those preparing for Enlightenment**
 
@@ -719,19 +704,9 @@ Deacon:
 
 As many as are preparing for Enlightenment, depart. Those who are preparing for Enlightenment, depart.
 
-------------------------------------------------------------------------
-
 As many as are Catechumens, depart. None of the Catechumens. As many as are Believers. Again and again, in peace, let us pray to the Lord.
 
 ****
-
-People:
-
-** Lord, have mercy. ****
-
-Deacon:
-
-** Help us, save us, have mercy upon us and keep us, O God, by your grace. ****
 
 People:
 
@@ -739,22 +714,29 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Wisdom. ****
+Help us, save us, have mercy upon us and keep us, O God, by your grace. ****
+
+People:
+
+Lord, have mercy. ****
+
+Deacon:
+
+Wisdom. ****
 
 Priest, in a low voice:
 
-**First Prayer of the Faithful,
-after the unfolding of the Antimension**
+**First Prayer of the Faithful, after the unfolding of the Antimension**
 
 O God, who are great and to be praised, who have brought us from corruption to incorruption by the life-giving death of your Christ, free all our senses from the death of the passions, setting over them as a good leader the thought that comes from within. Let the eye abstain from every evil sight, the hearing give no entrance to idle words, the tongue be cleansed of unfitting speech. Purify our lips, Lord, that praise you. Make our hands keep from base actions, to perform only such things as are well-pleasing to you, making all our limbs and our mind secure by your grace.
 
 (
 
-**Aloud**) ** For to you are due all glory, honour and worship, Father, Son and Holy Spirit, now and always, and to ages of ages. ****
+**Aloud**) For to you are due all glory, honour and worship, Father, Son and Holy Spirit, now and always, and to ages of ages. ****
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Deacon:
 
@@ -766,7 +748,7 @@ Lord have mercy. ****
 
 Deacon:
 
-** Help us, save us, have mercy upon us and keep us, O God, by your grace. ****
+Help us, save us, have mercy upon us and keep us, O God, by your grace. ****
 
 People:
 
@@ -774,7 +756,7 @@ Lord, have mercy. ****
 
 Deacon:
 
-** Wisdom. ****
+Wisdom. ****
 
 Priest, in a low voice:
 
@@ -784,11 +766,11 @@ Holy Master, supremely good, we implore you, the One rich in mercy, to take pity
 
 (
 
-**Aloud**): ** According to the gift of your Christ, with whom you are blessed, together with your all-holy, good and life-giving Spirit, now and ever and to the ages of ages. ****
+**Aloud**): According to the gift of your Christ, with whom you are blessed, together with your all-holy, good and life-giving Spirit, now and ever and to the ages of ages. ****
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Instead of the Cherubic Hymn the following is sung.
 
@@ -798,7 +780,7 @@ Now the hosts of heaven invisibly worship with us; for see, the King of Glory en
 
 Then the Priest, (or, according to the more ancient practice, the Deacon) saying to himself Psalm 50, censes the holy Table, the Prothesis and the whole sanctuary, the icons and the people as always, the Deacon standing opposite him as usual. The Priest and Deacon bow and, having asked pardon of the People, they go to the Prothesis, which the Priest censes. They make three metanias, saying to themselves,
 
-** O God, cleanse me a sinner and have mercy on me. ****
+O God, cleanse me a sinner and have mercy on me. ****
 
 The Priest takes the Aer and places it on his head; then he takes the holy Paten and the holy Chalice and makes the great entrance, saying nothing, or only,
 
@@ -840,7 +822,7 @@ That the whole evening may be perfect, holy, peaceful and sinless, let us ask th
 
 People*:*
 
-** Grant this, O Lord. ****
+Grant this, O Lord. ****
 
 Deacon:
 
@@ -858,7 +840,7 @@ Having asked for the unity of the faith and the communion of the Holy Spirit, le
 
 \[**In some editions, instead of the above petition: Commemorating our all-holy, pure, most blessed and glorious Lady, Mother of God and Ever-Virgin Mary, with all the Saints, let us entrust ourselves and one another and our whole life to Christ our God.\]**
 
-* ***People:** To you, O Lord. ****
+ **People:** To you, O Lord. ****
 
 The priest bows and says the following prayer after setting the Holy Gifts on the holy Table.
 
@@ -876,11 +858,11 @@ Our Father in heaven, may your name be hallowed, your kingdom come, your will be
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Priest:
 
@@ -920,7 +902,7 @@ Give heed, Lord Jesus Christ our God, from your holy dwelling-place and from the
 
 The Priest bows three times, saying,
 
-** O God cleanse me a sinner, and have mercy on me. ** **Then the Deacon exclaims:**
+O God cleanse me a sinner, and have mercy on me. **Then the Deacon exclaims:**
 
 Let us attend.
 
@@ -952,8 +934,6 @@ The Priest divides the Lamb into four parts, saying:
 
 The Lamb of God is broken and distributed, broken yet not divided, ever eaten yet never consumed, but sanctifies those who partake.
 
-**
-
 **He arranges them on the Paten in the form of a Cross, thus:** ****
 
 IC
@@ -972,7 +952,7 @@ Master, fill the holy Cup.
 
 The Priest takes the portion of the Lamb stamped with the letters
 
-IC ** **and makes the sign of the Cross with it above the holy Chalice and places it in it, saying:**
+IC **and makes the sign of the Cross with it above the holy Chalice and places it in it, saying:**
 
 Fullness of the Holy Spirit.
 
@@ -1006,7 +986,7 @@ Behold, I draw near to Christ, our immortal King and God. ****
 
 He takes a portion of the precious Body of Christ, from the part stamped with the letters
 
-** **XC, and says:** To me the unworthy Priest \[and Monk\] **N.** is granted communion in the precious and all-holy Body of our Lord and God and Saviour, Jesus Christ, for the forgiveness of my sins and for eternal life. ****
+**XC, and says:** To me the unworthy Priest \[and Monk\] **N.** is granted communion in the precious and all-holy Body of our Lord and God and Saviour, Jesus Christ, for the forgiveness of my sins and for eternal life. ****
 
 And he receives the Holy Bread with fear and great care; and having wiped his hand over the Paten with the sponge he says:
 
@@ -1096,7 +1076,7 @@ Lord, have mercy. \[**Or, according to Athonite use:** Glory to you, O God, glor
 
 Priest:
 
-** Help us, save us, have mercy upon us and keep us, O God, by your grace. ****
+Help us, save us, have mercy upon us and keep us, O God, by your grace. ****
 
 People:
 
@@ -1122,11 +1102,11 @@ We thank you, God the Saviour of all things, for all the good things you have gr
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Priest:
 
-** Let us go forth in peace. ****
+Let us go forth in peace. ****
 
 People:
 
@@ -1148,7 +1128,7 @@ Master almighty, who fashioned creation with wisdom and through your ineffable f
 
 (
 
-**Aloud**): ** For blessed and glorified is your all-honoured and majestic name, of Father, Son and Holy Spirit, now and for ever, and to the ages of ages. ****
+**Aloud**): For blessed and glorified is your all-honoured and majestic name, of Father, Son and Holy Spirit, now and for ever, and to the ages of ages. ****
 
 After the prayer behind the Ambo:
 
@@ -1166,7 +1146,7 @@ The blessing of the Lord be upon you, through his divine grace and love for mank
 
 Reader:
 
-** Amen. ****
+Amen. ****
 
 And the Priest gives the Dismissal:
 
@@ -1286,13 +1266,10 @@ Through the prayers of our holy Fathers, Lord Jesus Christ our God, have mercy o
 
 ****
 
-People: ****
+People:
 
 Amen.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

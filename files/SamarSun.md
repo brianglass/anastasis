@@ -24,7 +24,7 @@ Aposticha. Prosomia of the Mother of God.
 
 Called from the highest.
 
-Verse: **
+Verse:
 
 I shall remember your name in every generation and generation.
 
@@ -34,7 +34,7 @@ God, the Son begotten without time from the Father who has no beginning, through
 
 Verse:
 
-** Listen, daughter, and see, and incline your ear; and forget your people and your father’s house.
+Listen, daughter, and see, and incline your ear; and forget your people and your father’s house.
 
 You held in your womb, O blessed of God, the incarnate Creator of all things as he refashioned humankind, which through the serpent had once fallen by the transgression. For you gave birth ineffably in the flesh to our God, and through your bearing child you freed from corruption all nature that had grown old. Therefore we praise and glorify your grace, Virgin without bridegroom, as we implore that through you we may be delivered from every punishment.
 
@@ -48,7 +48,7 @@ That you may reveal to us all the multitude of your mercy and the limitless ocea
 
 Glory.
 
-**** Tone 8*.***
+**Tone 8*.***
 
 When through your inexpressible dispensation, Christ God, you appeared on earth, the woman of Samaria, having heard your word, full of love for mankind, left her bucket at the well and ran saying to those in the city: Come, see the one who knows the heart: is not this the expected Christ, who has great mercy?
 
@@ -92,8 +92,7 @@ Come you peoples, let us hymn the Saviour’s Rising on the third day, through w
 
 ****
 
-Of Mid-Pentecost.
-Lord, by ascending the Cross. Same Tone.
+Of Mid-Pentecost. Lord, by ascending the Cross. Same Tone.
 
 The mid-point of the days is here, which begin with the saving Resurrection and are sealed by the divine Pentecost. It shines for it shares the brilliance of them both, and unites the two, and it is honoured for it reveals in advance the coming glory of the Master’s Assumption.
 
@@ -125,7 +124,7 @@ Glory.
 
 Finding the woman of Samaria by the well of Jacob, Jesus, who covers the earth with clouds, asked water of her. O the wonder! He who rides on the Cherubim converses with a woman who is a harlot. He who hung the earth upon the waters, asks for water. He who pours out springs and pools of water, seeks water, as he wishes truly to draw her who is hunted by the warlike foe, and to quench with the water of life the thirst of her who is aflame with foul desires, as he alone is compassionate and loves mankind.
 
-Both now. **
+Both now.
 
 **Tone 4.**
 
@@ -143,8 +142,7 @@ Let heaven and earth to-day radiantly be glad, for Christ has appeared in flesh 
 
 ****
 
-At the Aposticha Resurrection Sticheron from the Oktoichos.
-Tone 4.
+At the Aposticha Resurrection Sticheron from the Oktoichos. Tone 4.
 
 Lord, by ascending the Cross you wiped out our ancestral curse, and by descending into Hell you freed those enchained from every age, granting incorruption to the human race; therefore with hymns we glorify your life-giving and saving Rising.
 
@@ -170,7 +168,7 @@ A Pascha of delight, Pascha, the Lord’s Pascha, an all-venerable Pascha has da
 
 Glory.
 
-**** Tone 8*.***
+**Tone 8*.***
 
 When through your inexpressible dispensation, Christ God, you appeared on earth, the woman of Samaria, having heard your word, full of love for mankind, left her bucket at the well and ran saying to those in the city: Come, see the one who knows the heart: is not this the expected Christ, who has great mercy?
 
@@ -200,8 +198,7 @@ AT MATINS
 
 ****
 
-After the 1st Psalter reading Kathismata from the Oktoichos.
-Tone 4.
+After the 1st Psalter reading Kathismata from the Oktoichos. Tone 4.
 
 As they looked at the entrance of the tomb and were unable to endure the bright flame of the Angel, the Myrrh-bearing women trembled with amazement and said, ‘Can the One who opened Paradise to the Thief have been stolen? Can he who before his passion proclaimed his Rising have been raised? Truly Christ God has risen, granting those in Hell life and resurrection’.
 
@@ -301,8 +298,7 @@ Let everything that has breath**. The 7th Resurrection Gospel etc.**
 
 The Canons, of Pascha with that of the Mother of God to 6, of Mid-Pentecost to 4 and of the Samaritan Woman to 4.
 
-Canon of Pascha. Tone 1. Ode 1.
-Irmos.
+Canon of Pascha. Tone 1. Ode 1. Irmos.
 
 ‘The day of Resurrection, let us be radiant, O peoples: Pascha, the Lord’s Pascha; for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song’.
 
@@ -316,18 +312,15 @@ Let the heavens as is fitting rejoice, and let the earth be glad, let the whole 
 
 ****
 
-Canon of the Mother of God. Tone 1.
-The Acrostic in the first Troparia: T h e o p h a n.
-Ode 1. The same Irmos.
+Canon of the Mother of God. Tone 1. The Acrostic in the first Troparia: T h e o p h a n. Ode 1. The same Irmos.
 
-<img src="dropcap-t.gif" alt="dropcap-t.gif (995 bytes)" width="29" height="47" />he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
+he boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
 
 Having seen your Son and God risen from the dead, you rejoice with the Apostles, O holy and full of grace, and as cause of the joy of all, O all-pure Mother of God, you first received the greeting ‘Rejoice’.
 
 ****
 
-Canon of Mid-Pentecost.
-Tone 8. Ode 1. You fixed the sea.
+Canon of Mid-Pentecost. Tone 8. Ode 1. You fixed the sea.
 
 Nations clap your hands, Hebrews lament, for Christ the giver of life has torn asunder the chains of Hell, and raised the dead, and healed the sick with a word. This is our God, who gives life to those who believe in his name.
 
@@ -343,8 +336,7 @@ You alone, Mother of God, contained your creator in your womb and inexpressibly 
 
 ****
 
-Canon of the Samaritan Woman. Tone 4.
-With an acrostic in the 9th Ode: J o s e p h.
+Canon of the Samaritan Woman. Tone 4. With an acrostic in the 9th Ode: J o s e p h.
 
 Composition of Joseph of Thessaloniki.
 
@@ -394,7 +386,7 @@ Yesterday I was buried with You O Christ, to-day I rise with You as You arise: y
 
 Of the Mother of God. The same Irmos.
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly one, to-day I return to life undefiled through the goodness of Him who was born from you and whose brightness shines to the ends of the earth.
+oly one, to-day I return to life undefiled through the goodness of Him who was born from you and whose brightness shines to the ends of the earth.
 
 Seeing the God, whom you conceived in the flesh, rising from the dead as He said, O holy one, dance; and magnify Him as God, O immaculate.
 
@@ -448,8 +440,7 @@ Katavasia.
 
 Come let us drink. ****
 
-Kontakion of Mid-Pentecost.
-Tone 4. Lifted up on the Cross.
+Kontakion of Mid-Pentecost. Tone 4. Lifted up on the Cross.
 
 At the mid-point of the feast according to the law, O Christ God, Maker of all things and Master, you said to those before you: Come, and draw the water of immortality: therefore we fall down before you and with faith we cry: Grant us your mercies, for you are the source of our life.
 
@@ -485,7 +476,7 @@ God’s forebear David dancing leaped before the Ark, mere shadow : but seeing t
 
 Of the Mother of God. Same Irmos.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven He who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death He has destroyed Adam’s death to-day, and shed light on all with the divine beams of his Resurrection.
+ven He who fashioned Adam your forefather, O holy one, is fashioned from you, and by his own death He has destroyed Adam’s death to-day, and shed light on all with the divine beams of his Resurrection.
 
 Seeing Christ, whom your bore, shining in beauty from the dead, O Pure one, fair and lovely and spotless among women, as you rejoice to-day with the Apostles at the salvation of all, glorify Him.
 
@@ -555,7 +546,7 @@ With torches in our hands let us go forth to meet Christ as he comes from the gr
 
 Of the Mother of God. Same Irmos.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />pure Mother of God, the assembly of the devout is enlightened by the divine, life-giving rays of the Resurrection of your Son, and is filled with joy.
+pure Mother of God, the assembly of the devout is enlightened by the divine, life-giving rays of the Resurrection of your Son, and is filled with joy.
 
 You did not open the gates of the Virgin, when You took flesh; You did not break the seals of the grave, O King of creation. Therefore when she saw You risen, she rejoiced.
 
@@ -625,7 +616,7 @@ O my Saviour, the living, unslain Victim, as God offering yourself willingly to 
 
 Of the Mother of God. The same Irmos.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />risoner of old of death and corruption, the human race has been brought back through Him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
+risoner of old of death and corruption, the human race has been brought back through Him was took flesh from your spotless womb to incorruptible and everlasting life, O Virgin Mother of God.
 
 He who went down, O Holy one, into your womb, dwelt there and took flesh beyond understanding, went down into the lowest parts of the earth and raised Adam with Himself when He rose from the tomb.
 
@@ -699,8 +690,7 @@ On the same day, the fifth Sunday from Easter, we celebrate the feast of the Wom
 
 Verses.
 
-Water that perishes you came to take,
-The living drew, with which you wash soul’s filth.
+Water that perishes you came to take, The living drew, with which you wash soul’s filth.
 
 Through the intercessions of your Martyr Photeini, Christ our God, have mercy on us. Amen.
 
@@ -724,7 +714,7 @@ How truly holy and all-festive is this saving night, how full of light, herald o
 
 Of the Mother of God. The same Irmos.
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />aving slain death, your Son, O all-pure one, has to-day given to all life that endures to ages of ages: the only blessed and highly exalted God of our fathers.
+aving slain death, your Son, O all-pure one, has to-day given to all life that endures to ages of ages: the only blessed and highly exalted God of our fathers.
 
 He who reigns over all creation becoming man dwelt in your womb, O full of God’s grace, and having endured the cross and death He has risen as God and raised us with him, for He is all powerful.
 
@@ -796,7 +786,7 @@ Almighty Father, Word and Spirit, nature united in three Persons, beyond all bei
 
 Of the Mother of God. The same Irmos.
 
-<img src="dropcap-a.gif" alt="dropcap-a.gif (1062 bytes)" width="34" height="43" />s the creator came into the world through you, O Virgin Mother of God, He tore open the womb of Hell and gave us mortals the Resurrection; therefore we bless Him to the ages.
+s the creator came into the world through you, O Virgin Mother of God, He tore open the womb of Hell and gave us mortals the Resurrection; therefore we bless Him to the ages.
 
 Your Son, O Virgin, having overthrown the might of death, in his resurrection, as a mighty God, has exalted us with Himself and deified us; therefore we praise Him to the ages.
 
@@ -880,7 +870,7 @@ O great and most sacred Pascha, Christ; O Wisdom and Word and Power of God! Gran
 
 Of the Mother of God. The same Irmos.
 
-<img src="dropcap-n.gif" alt="dropcap-n.gif (1140 bytes)" width="46" height="50" />ow in harmony, O Virgin, we faithful call you blest: Hail gate of the Lord: Hail living city: Hail through whom to-day the light of the Resurrection from the dead of Him who was born from you has shone for us.
+ow in harmony, O Virgin, we faithful call you blest: Hail gate of the Lord: Hail living city: Hail through whom to-day the light of the Resurrection from the dead of Him who was born from you has shone for us.
 
 Rejoice, be glad, divine gate of the light; for Jesus who set in the tomb has dawned shining more brightly than the sun, and shedding his rays on all the faithful, O Sovereign Lady full of God’s grace.
 
@@ -910,23 +900,23 @@ Of the Samaritan Woman. The Irmos.
 
 Troparia.
 
-<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />esus the life of all was seen hanged willingly on a Tree; and seeing it the earth was shaken, and many bodies of the Saints that slept visibly arose, and Hell’s prison was shaken.
+esus the life of all was seen hanged willingly on a Tree; and seeing it the earth was shaken, and many bodies of the Saints that slept visibly arose, and Hell’s prison was shaken.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" />ut of the tomb, fair as a bridegroom from his chamber, you came, having abolished the tyranny of death, and smashed the bolts of Hell by your divine power, and illumined the world by the spiritual light of your Rising.
+ut of the tomb, fair as a bridegroom from his chamber, you came, having abolished the tyranny of death, and smashed the bolts of Hell by your divine power, and illumined the world by the spiritual light of your Rising.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />piritual choirs now let us all establish and let us cry: The Lord has risen; let the earth rejoice and the heavens be glad, let the clouds rain down showers of justice for us who radiantly celebrate and sing Christ’s praise.
+piritual choirs now let us all establish and let us cry: The Lord has risen; let the earth rejoice and the heavens be glad, let the clouds rain down showers of justice for us who radiantly celebrate and sing Christ’s praise.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />ven as he poured out teachings richly, the Lord, source of blessings, life of all living, cried out to the woman, ‘Grant me water to drink, that I may give you water which dries up the sources of your sins’.
+ven as he poured out teachings richly, the Lord, source of blessings, life of all living, cried out to the woman, ‘Grant me water to drink, that I may give you water which dries up the sources of your sins’.
 
 Glory.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />ure single light, yet without parts, is the triple-sunned unity; the Father who has no beginning, Son and Spirit, one Godhead, life and maker of all. Let us the faithful, with the Bodiless ones, praise the Godhead, as we chant thrice-holy songs.
+ure single light, yet without parts, is the triple-sunned unity; the Father who has no beginning, Son and Spirit, one Godhead, life and maker of all. Let us the faithful, with the Bodiless ones, praise the Godhead, as we chant thrice-holy songs.
 
 Both now.
 
 **Theotokion.**
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
+aving become the dwelling of the Light, O Pure one, illumine the pupils of my soul, blackened by the many wiles of the foe, and make me worthy to see clearly with a pure heart the Splendour that shone from you beyond understanding.
 
 ****
 
@@ -934,7 +924,7 @@ Katavasia.
 
 Shine, shine. ****
 
-Then **
+Then
 
 Holy is the Lord, our God. ****
 
@@ -998,7 +988,7 @@ Thus says the Lord to the woman of Samaria: If you knew the gift of God, and who
 
 Glory.
 
-**** Same Tone.**
+**Same Tone.**
 
 The spring of life’s source, Jesus our Saviour, came to the spring of the Patriarch Jacob and sought water to drink from a woman of Samaria. But when she objected that there was no sharing vessels by the Jews, the wise creator diverts her with sweet words rather to ask for the eternal water; which she accepted and proclaimed to all, saying: Come, see the one who knows hidden things, and is God come in the flesh to save mankind.
 
@@ -1014,9 +1004,6 @@ Before the First Hour the Eothinon. Tone 7.
 
 Lo, darkness and early dawn. And why, Mary, are you standing by the grave, your mind full of darkness? Why do you seek where Jesus has been laid? But see the disciples running together, see how they have realised the Resurrection from the grave clothes and the napkin, and have remembered the Scripture concerning this. With whom and through whom we too have believed and sing your praise O Christ, the Giver of Life.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

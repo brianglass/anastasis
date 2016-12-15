@@ -10,8 +10,6 @@
 
 **There are problems with the text of the canon and St Nikodemos points out that five of the *Theotokia* and a number of troparia in some of the Odes are not to be found in the manuscript *Pentecostaria.* There is evidence elsewhere that *Theotokia* were often standard ones that fitted the melody of the *Irmos* and were not specially written for particular canons.**
 
-------------------------------------------------------------------------
-
 ****CANON FOR THE ASSUMPTION****
 
 **Ode 1. Tone 5. Irmos.**
@@ -148,9 +146,6 @@ As the One who descended into the lowest part of the earth and saved mankind, an
 
 Hail, Mother of God, Mother of Christ God; as to-day you saw him whom you bore flying up from earth, with Angels you magnified him.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

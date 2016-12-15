@@ -30,8 +30,7 @@ The Virgin as she watched your unjust slaughter, O Christ, lamented and cried to
 AT MATINS
 ---------
 
-**The Canon, of which the Acrostic is:
-**I honour the contests of three true sisters. Joseph.
+**The Canon, of which the Acrostic is:** I honour the contests of three true sisters. Joseph.
 
 ****
 
@@ -209,9 +208,6 @@ A Stone not cut by human hand was cut from you, O Virgin, unhewn mountain: Chris
 
 At the Liturgy, see, if you wish, the texts for 25th November.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

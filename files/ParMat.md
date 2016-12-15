@@ -91,8 +91,7 @@ Then
 
 Let everything that has breath**, Resurrection Gospel 5.** Having seen the Resurrection**. Psalm 50 etc. The Canons of Easter, with the Irmi, and of the Mother of God to 8, and that of the Paralysed Man to 6.**
 
-Easter Canon. Tone 1. Ode 1.
-Irmos.
+Easter Canon. Tone 1. Ode 1. Irmos.
 
 The day of Resurrection, let us be radiant, O peoples: Pascha, the Lord’s Pascha; for Christ God has brought us from death to life, and from earth to heaven, as we sing the triumphal song.
 
@@ -104,11 +103,9 @@ Let the heavens as is fitting rejoice, and let the earth be glad, let the whole 
 
 ****
 
-Canon of the Mother of God. Tone 1.
-The Acrostic in the first Troparia:
+Canon of the Mother of God. Tone 1. The Acrostic in the first Troparia:
 
-Theophan**.
-Ode 1. The same Irmos.**
+Theophan**. Ode 1. The same Irmos.**
 
 The boundary of death you forced open, all-pure Virgin, by bearing Christ the eternal Life, who shone out to-day from the tomb, and enlightened the world.
 
@@ -116,12 +113,9 @@ Having seen your Son and God risen from the dead, you rejoice with the Apostles,
 
 ****
 
-Canon of the Paralysed Man. Tone 3.
-Whose Acrostic is in the 9th Ode:
+Canon of the Paralysed Man. Tone 3. Whose Acrostic is in the 9th Ode:
 
-Joseph**.
-Composition of Joseph of Thessaloniki.
-Ode 1. The Irmos.**
+Joseph**. Composition of Joseph of Thessaloniki. Ode 1. The Irmos.**
 
 \[O God, you are glorious in your wonders; you do marvels; you turned the deep into earth, covered chariots and saved a people who sing to you, as God our redeemer.\]
 
@@ -207,7 +201,7 @@ Your conceiving was without seed, your child-bearing beyond understanding, O imm
 
 Katavasia.
 
-** Come let us drink. ****
+Come let us drink. ****
 
 Kathismata. Tone 3.
 
@@ -411,8 +405,7 @@ On the same day, the fourth Sunday from Easter, we remember the Paralysed Man, a
 
 Verses.
 
-Strength to the paralysed, the word of Christ.
-And so this word was healing, this alone.
+Strength to the paralysed, the word of Christ. And so this word was healing, this alone.
 
 In your boundless mercy, Christ our God, have mercy on us. Amen.
 
@@ -474,7 +467,7 @@ You remained Virgin when above reason you bore without change him who was born o
 
 Katavasia.
 
-** He who delivered the Children. ****
+He who delivered the Children. ****
 
 Ode 8. Irmos.
 
@@ -538,7 +531,7 @@ Ode 9. Irmos.
 
 Megalynarion:
 
-** Magnify, O my soul, Him who suffered willingly, and was buried, and arose from the grave on the third day.
+Magnify, O my soul, Him who suffered willingly, and was buried, and arose from the grave on the third day.
 
 ‘Shine, shine, O New Jerusalem, for the glory of the Lord has risen upon you; dance now and be glad, O Zion, and you too rejoice, O pure Mother of God, at the arising of Him to whom you gave birth’.
 
@@ -546,7 +539,7 @@ Megalynarion:
 
 Megalynarion:
 
-** Magnify, O my soul, Christ the Giver of life, who arose from the grave on the third day.
+Magnify, O my soul, Christ the Giver of life, who arose from the grave on the third day.
 
 ‘Shine, shine, O New Jerusalem, for the glory of the Lord has risen upon you; dance now and be glad, O Zion, and you too rejoice, O pure Mother of God, at the arising of Him to whom you gave birth’.
 
@@ -554,7 +547,7 @@ Megalynarion:
 
 Megalynarion:
 
-** Christ is the new Passover, the living sacrificial victim, the Lamb of God, who takes away the sin of the world.
+Christ is the new Passover, the living sacrificial victim, the Lamb of God, who takes away the sin of the world.
 
 O your divine and beloved and sweetest voice; You have truly promised that you will be with us unto the end of the world, O Christ; and we faithful rejoice, having this as an anchor of hope.
 
@@ -584,31 +577,31 @@ Of the Paralysed Man. The Irmos.
 
 Troparia.
 
-<img src="dropcap-j.gif" alt="dropcap-j.gif (974 bytes)" width="27" height="49" />esu, lifted up upon the tree, you lifted us up with you; and placed willingly in a tomb, you raised from the graves all the dead, who praise your incomprehensible might and your invincible power.
+esu, lifted up upon the tree, you lifted us up with you; and placed willingly in a tomb, you raised from the graves all the dead, who praise your incomprehensible might and your invincible power.
 
-<img src="dropcap-o.gif" alt="dropcap-o.gif (1089 bytes)" width="43" height="42" /> Word most fair, you dawned most fair from the grave as a bridegroom from his chamber; you abolished the gloom of Hell, and delivered the prisoners, who sang in consort: Glory to your glory! Glory, Jesu our God, to your Rising!
+Word most fair, you dawned most fair from the grave as a bridegroom from his chamber; you abolished the gloom of Hell, and delivered the prisoners, who sang in consort: Glory to your glory! Glory, Jesu our God, to your Rising!
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1021 bytes)" width="28" height="44" />wiftly the women came to the all-holy grave bringing sighs and tears with sweet spices, and they were taught in faith Christ’s Rising, which we celebrate, rejoicing in gladness of soul.
+wiftly the women came to the all-holy grave bringing sighs and tears with sweet spices, and they were taught in faith Christ’s Rising, which we celebrate, rejoicing in gladness of soul.
 
-<img src="dropcap-e.gif" alt="dropcap-e.gif (1057 bytes)" width="32" height="47" />nergy of body followed your order, O Christ, and the man formerly Paralysed was seen going by in haste, bearing the bed on which he had lain for many years, and praising your great power.
+nergy of body followed your order, O Christ, and the man formerly Paralysed was seen going by in haste, bearing the bed on which he had lain for many years, and praising your great power.
 
-<img src="dropcap-p.gif" alt="dropcap-p.gif (1043 bytes)" width="33" height="55" />lead for enlightenment for us, great Chief Captain, who always stand in the great light, and give peace to our life forever shaken by the assaults of the serpent and by life’s difficulties, O holy one.
+lead for enlightenment for us, great Chief Captain, who always stand in the great light, and give peace to our life forever shaken by the assaults of the serpent and by life’s difficulties, O holy one.
 
 Glory.
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />oly, Holy, Holy, I cry with the powers above, as with all reverence I glorify you, light and lights, life and lives, Father, Word and Holy Spirit, three-personned Unity, inseparable might, unconfused Godhead.
+oly, Holy, Holy, I cry with the powers above, as with all reverence I glorify you, light and lights, life and lives, Father, Word and Holy Spirit, three-personned Unity, inseparable might, unconfused Godhead.
 
-Both now. **
+Both now.
 
 **Theotokion.**
 
-<img src="dropcap-h.gif" alt="dropcap-h.gif (1068 bytes)" width="38" height="45" />e came from your light-bearing womb, Christ the great Sun, and enlightened the world, O immaculate, with his bright rays, and he removed the darkness of the transgression; therefore we hymn you as cause of all good, O bride of God.
+e came from your light-bearing womb, Christ the great Sun, and enlightened the world, O immaculate, with his bright rays, and he removed the darkness of the transgression; therefore we hymn you as cause of all good, O bride of God.
 
 ****
 
 Katavasia.
 
-** Shine, shine.
+Shine, shine.
 
 Holy is the Lord our God
 
@@ -642,7 +635,7 @@ Tone 5.
 
 Verse:
 
-** Let God arise and let his enemies be scattered: and let those that hate him flee before his face.
+Let God arise and let his enemies be scattered: and let those that hate him flee before his face.
 
 A sacred Pascha has been shown forth to us to-day, a new and holy Pascha, a mystic Pascha, an all-venerable Pascha, a Pascha that is Christ the Redeemer, a spotless Pascha, a great Pascha, a Pascha of the faithful, a Pascha that has opened to us the gates of Paradise, a Pascha that hallows all the faithful.
 
@@ -658,7 +651,7 @@ Come from the sight, O women bearers of good tidings, and say to Zion: Receive f
 
 Verse:
 
-** So let sinners perish at the presence of God: and let the righteous be glad.
+So let sinners perish at the presence of God: and let the righteous be glad.
 
 The Myrrhbearing women at early dawn came near the tomb of the Giver of life; they found an Angel sitting on the stone, and he, addressing them in this manner, said: Why do you seek the living among the dead? Why do you mourn the Incorruptible amid corruption? Go, proclaim it to his Disciples.
 
@@ -666,7 +659,7 @@ The Myrrhbearing women at early dawn came near the tomb of the Giver of life; th
 
 Verse:
 
-** This is the day that the Lord has made: let us be glad and rejoice in it.
+This is the day that the Lord has made: let us be glad and rejoice in it.
 
 A Pascha of delight, Pascha, the Lord’s Pascha, an all-venerable Pascha has dawned for us, a Pascha on which let us embrace one another with joy. O Pascha, ransom from sorrow! To-day Christ has shone forth from the tomb as from a bridal chamber, and has filled the women with joy, saying: Proclaim it to the Apostles.
 
@@ -700,9 +693,6 @@ NOTICE.
 
 Note that the office of the Paralysed Man is sung for three days: on Sunday, Monday and Tuesday.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -198,9 +198,6 @@ A stone, not cut by hand, was cut from you, O Virgin, the unhewn mountain, Chris
 
 At the Liturgy, see the Apostle, Gospel and Communion for the 24th \[25th\] of November.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

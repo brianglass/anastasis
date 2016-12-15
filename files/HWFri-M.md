@@ -29,10 +29,7 @@ The Priest blesses the incense and begins to cense the sanctuary and the whole c
 
 Reader:
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
-With three metanias; then the following two psalms. ****
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God. With three metanias; then the following two psalms. ****
 
 Psalm 19
 
@@ -280,8 +277,7 @@ Verse 4.
 
 Bring evils upon them, O Lord, bring evils upon them, the glorious ones of the earth. ****
 
-Then the following Troparion is sung solemnly 3 times.
-Tone 8
+Then the following Troparion is sung solemnly 3 times. Tone 8
 
 When the glorious disciples were enlightened at the washing of the feet, then Judas the ungodly was stricken and darkened with the love of money; and to lawless judges he delivered you, the just judge. O lover of money, look upon him who for its sake hanged himself; flee from the insatiable soul, which dared such things against the Teacher. O you who are good to all, Lord, glory to you.
 
@@ -420,7 +416,7 @@ Same Tone
 
 Glory. Both now.
 
-**** Theotokion**
+**Theotokion**
 
 Save your servants from dangers, Mother of God, for after God we all take refuge in you as an unbreachable wall and protection.
 
@@ -876,7 +872,7 @@ Your Cross, Lord, is life and resurrection for your people; and putting our trus
 
 Glory. Both now.
 
-**** Theotokion. Same Tone**
+**Theotokion. Same Tone**
 
 When she who bore you saw you hanging on the Cross, O Christ, she cried out, ‘What is this strange mystery that I see, my Son? How are you dying on a tree, nailed in the flesh, O Giver of life?’
 
@@ -1143,8 +1139,7 @@ Reader:
 
 Amen. ****
 
-After the small litany the Kontakion
-Kontakion. Tone 8. \[By St Romanos\]
+After the small litany the Kontakion Kontakion. Tone 8. \[By St Romanos\]
 
 Come, let us all praise him who was crucified for us; for Mary looked upon him on the Tree and said: ‘Though you endure the Cross, yet you are My Son and my God.’
 
@@ -1164,13 +1159,11 @@ On holy and great Friday we remember the holy, saving and dread Sufferings of ou
 
 Verses on the Crucifixion
 
-You are the living God, slain on a Tree,
-O naked corpse, and Word of living God. ****
+You are the living God, slain on a Tree, O naked corpse, and Word of living God. ****
 
 Verses on the Good Thief
 
-Eden’s locked gates the Thief has opened wide,
-By putting in the key, ‘Remember me’.
+Eden’s locked gates the Thief has opened wide, By putting in the key, ‘Remember me’.
 
 In your ineffable and all unbounded compassion, Christ our God, have mercy on us. Amen.
 
@@ -1262,8 +1255,7 @@ Reader:
 
 Amen. ****
 
-Then the Exapostilarion sung slowly and solemnly:
-Tone 3. Model Melody.
+Then the Exapostilarion sung slowly and solemnly: Tone 3. Model Melody.
 
 O Lord, who on that very day made the Thief worthy of Paradise, so by the tree of the Cross enlighten and save me (
 
@@ -1304,7 +1296,7 @@ Let us attend.
 
 **John 19:25-37**\]
 
-At that time, there stood by the Cross of Jesus his mother and his mother’s sister, Mary wife of Clopas and Mary Magdalen. And Jesus, seeing his mother and the disciple whom he loved standing beside him, says to his mother, ‘Woman, behold your son.’ Then he says to the disciple, ‘Behold your mother.’ And from that hour the disciple took her to his own home. After this Jesus, knowing that all things had been accomplished, that the Scripture might be fulfilled says, ‘I thirst.’ Now there was a vessel there full of vinegar; so having filled a sponge with vinegar and put in on a branch of hyssop they held it to his mouth. So when Jesus had taken the vinegar he said, ‘It is accomplished’, and bowing his head he gave up the spirit. The Jews then, so that the bodies might not remain on the cross on the Sabbath, since it was Friday, the day of Preparation (for that Sabbath was a solemn day), asked Pilate that they might break their legs and that they might be removed. So the soldiers came and broke the legs of the first and second who were crucified with him. But when they came to Jesus as they saw that he was already dead they did not break his legs, but one of the soldiers with a lance pierced his side, and at once there came out blood and water. And he saw it has borne witness, and his witness is true. And he knows that he speaks the truth, so that you too may believe. For these things happened that the Scripture might be fulfilled, ** ‘*Not a bone of him* *will be broken*’*.* And again another Scripture says, ‘*They will look* o*n the one they have pierced*’*.*
+At that time, there stood by the Cross of Jesus his mother and his mother’s sister, Mary wife of Clopas and Mary Magdalen. And Jesus, seeing his mother and the disciple whom he loved standing beside him, says to his mother, ‘Woman, behold your son.’ Then he says to the disciple, ‘Behold your mother.’ And from that hour the disciple took her to his own home. After this Jesus, knowing that all things had been accomplished, that the Scripture might be fulfilled says, ‘I thirst.’ Now there was a vessel there full of vinegar; so having filled a sponge with vinegar and put in on a branch of hyssop they held it to his mouth. So when Jesus had taken the vinegar he said, ‘It is accomplished’, and bowing his head he gave up the spirit. The Jews then, so that the bodies might not remain on the cross on the Sabbath, since it was Friday, the day of Preparation (for that Sabbath was a solemn day), asked Pilate that they might break their legs and that they might be removed. So the soldiers came and broke the legs of the first and second who were crucified with him. But when they came to Jesus as they saw that he was already dead they did not break his legs, but one of the soldiers with a lance pierced his side, and at once there came out blood and water. And he saw it has borne witness, and his witness is true. And he knows that he speaks the truth, so that you too may believe. For these things happened that the Scripture might be fulfilled, ‘*Not a bone of him* *will be broken*’*.* And again another Scripture says, ‘*They will look* o*n the one they have pierced*’*.*
 
 ****
 
@@ -1312,8 +1304,7 @@ Reader:
 
 Glory to your long-suffering, Lord, glory to you! ****
 
-At Lauds we insert 4 Idiomel Stichera, doubling them.
-Tone 3
+At Lauds we insert 4 Idiomel Stichera, doubling them. Tone 3
 
 Psalm 148
 
@@ -1449,7 +1440,7 @@ They stripped me of my garments, and clothed me in a scarlet cloak; they placed 
 
 \[
 
-**B**\] **** Both now. **Same Tone**
+**B**\] Both now. **Same Tone**
 
 I gave my back to scourgings, while I did not turn away my face from spittings. I stood at Pilate’s judgement seat and endured the Cross for the salvation of the world.
 
@@ -1625,8 +1616,7 @@ Reader:
 
 Glory to your long-suffering, Lord, glory to you! ****
 
-Then the 2nd Choir begins the Aposticha:
-Tone 1
+Then the 2nd Choir begins the Aposticha: Tone 1
 
 All creation was changed by fear when it saw you hanging on the Cross, O Christ; the sun was darkened and the foundations of the earth were shaken; all things were suffering with you, the Creator of them all. You endured willingly for us. Lord, glory to you!
 
@@ -1658,7 +1648,7 @@ When she saw you, O Christ, the Creator and God of all, hanging on the Cross, sh
 
 Glory.
 
-**** Tone 8**
+**Tone 8**
 
 Lord, when you ascended the Cross, fear and trembling fell on creation; and you prevented the earth from swallowing those who crucified you, while you ordered Hell to send back its prisoners for the rebirth of mortals. Judge of the living and the dead, you came to grant life and not death. Lover of humankind, glory to you.
 
@@ -1741,8 +1731,7 @@ Amen. ****
 
 After the
 
-Our Father**, we say the following Apolytikion:
-Apolytikion. Tone 4**
+Our Father**, we say the following Apolytikion: Apolytikion. Tone 4**
 
 By your precious blood you have redeemed us from the curse of the law; nailed to the Cross and pierced by the lance, you have become a source of immortality for all. Our Saviour, glory to you.
 
@@ -1838,9 +1827,6 @@ Amen. ****
 
 We do not add the 1st Hour now, but say it at about the 2nd hour of the day.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

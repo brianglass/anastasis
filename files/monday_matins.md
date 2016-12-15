@@ -8,10 +8,9 @@ AT MATINS
 
 After the Six Psalms we sing
 
-** The Lord is God, ** **with its verses, and the Troparion of the Saint of the day. But in the holy Lent, the** Alleluia ** **with its verses and the Hymns to the Trinity in Tone 1.**
+The Lord is God, **with its verses, and the Troparion of the Saint of the day. But in the holy Lent, the** Alleluia **with its verses and the Hymns to the Trinity in Tone 1.**
 
-After the 1st reading from the Psalter we sing the following
-Kathismata of Compunction. Tone 1.
+After the 1st reading from the Psalter we sing the following Kathismata of Compunction. Tone 1.
 
 Conceived in iniquities, I the prodigal dare not raise my gaze to the height of heaven, but confident in your love for humankind I cry: O God be merciful to me and save me.
 
@@ -31,8 +30,7 @@ Immaculate Mother of God, blessed in heaven and glorified on earth, hail, Bride 
 
 ****
 
-After the 2nd reading other Kathismata.
-The soldiers watching.
+After the 2nd reading other Kathismata. The soldiers watching.
 
 Hasten to open to me your fatherly embrace; prodigally I have squandered my whole life, turning from your pity, O Saviour, to wealth which cannot be spent; do not now despise my beggared heart; for to you, Lord, with compunction I cry: I have sinned against you, save me!
 
@@ -40,14 +38,13 @@ Hasten to open to me your fatherly embrace; prodigally I have squandered my whol
 
 Verse:
 
-** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
+Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
 The judgement seat is fearful and the judgement just; my deeds are dreadful, but, O Merciful, speedily save me and rescue me from punishment; deliver me, Master, from the portion of the goats, to stand me on your right hand, Judge most just.
 
 ****
 
-After the 3rd Reading, Other Kathismata.
-The soldiers watching.
+After the 3rd Reading, Other Kathismata. The soldiers watching.
 
 Foolishly I have gone far from you, O Most Compassionate, and like the Prodigal squandered my life, a slave each day to the irrational passions. But at the prayers of the Angels, accept me, compassionate Father, like the Prodigal child, and save me I implore.
 
@@ -59,7 +56,7 @@ God is wonderful in his Saints, the God of Israel.
 
 The glorious Champions have encompassed you, Lord, with the glory of the contest and the honour of crowns of victory. For by perseverance under tortures they defeated the lawless, and by divine power from heaven they achieved the victory. At their prayers, O Saviour, free me from the invisible foe and save me.
 
-Glory. Both now. **
+Glory. Both now.
 
 **Theotokion.**
 
@@ -464,9 +461,6 @@ More holy than all the holy Powers, more honourable than all creation, Mother of
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

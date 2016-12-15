@@ -4,6 +4,7 @@ import os.path
 import pipes
 
 from lxml import etree, html
+from lxml.html import clean
 
 parser = html.HTMLParser(encoding='latin-1')
 pipeline = pipes.Template()
@@ -15,6 +16,16 @@ def replace_tag(old_element, new_element):
     parent.remove(old_element)
     new_element.append(old_element)
     old_element.drop_tag()
+
+def remove_empty(node):
+    def recursively_empty(e):
+       if e.text and e.text.strip():
+           return False
+       return all((recursively_empty(c) for c in e.iterchildren()))
+
+    for action, elem in etree.iterwalk(node):
+        if recursively_empty(elem):
+            elem.drop_tag()
 
 def transform(filename):
     htmlfile = open(filename, encoding='latin-1')
@@ -64,6 +75,8 @@ def transform(filename):
     # after footnore rewriting.
     for node in tree.xpath('//span[@class="MsoFootnoteReference"]'):
         node.drop_tag()
+
+    remove_empty(tree)
 
     return etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
 

@@ -31,7 +31,7 @@ Our Father, in heaven, hallowed be your name, your kingdom come; your will be do
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father and of the Son and of the Holy Spirit, now and always and to ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father and of the Son and of the Holy Spirit, now and always and to ages of ages. ****
 
 Reader:
 
@@ -41,9 +41,7 @@ Lord, have mercy (
 
 **x12**). Glory. Both now.
 
-Come, let us worship and fall down before the King, our God.
-Come, let us worship and fall down before Christ the King, our God.
-Come, let us worship and fall down before Christ himself, the King, our God.
+Come, let us worship and fall down before the King, our God. Come, let us worship and fall down before Christ the King, our God. Come, let us worship and fall down before Christ himself, the King, our God.
 
 ****
 
@@ -273,7 +271,7 @@ Katavasia
 
 Reader:
 
-** Holy God, Holy Strong, Holy Immortal, have mercy on us. (**x3**).
+Holy God, Holy Strong, Holy Immortal, have mercy on us. (**x3**).
 
 Glory to the Father and to the Son and to the Holy Spirit, both now and for ever and to the ages of ages. Amen.
 
@@ -287,7 +285,7 @@ Our Father, in heaven, hallowed be your name, your kingdom come; your will be do
 
 Priest:
 
-** For yours is the kingdom, the power and the glory, of the Father and of the Son and of the Holy Spirit, now and always and to ages of ages. ****
+For yours is the kingdom, the power and the glory, of the Father and of the Son and of the Holy Spirit, now and always and to ages of ages. ****
 
 Reader:
 
@@ -305,7 +303,7 @@ Have mercy on us, O God, according to your great mercy. We pray you, hear and ha
 
 Reader:
 
-** Lord have mercy.(**x3**) ****
+Lord have mercy.(**x3**) ****
 
 Priest:
 
@@ -333,7 +331,7 @@ May the Lord God strengthen the holy and pure faith of devout and orthodox Chris
 
 Priest:
 
-** Most holy Mother of God, save us. ****
+Most holy Mother of God, save us. ****
 
 Reader:
 
@@ -353,9 +351,6 @@ Priest:
 
 May he who rose from the dead, Christ our true God…
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

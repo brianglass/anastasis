@@ -61,18 +61,15 @@ Entrance,
 
 O Joyful Light**, the Prokeimenon of the day, and the Readings:**
 
-The Reading is from Genesis.
-\[**14,14-20\]**
+The Reading is from Genesis. \[**14,14-20\]**
 
 Now when Abram heard that Lot his nephew had been taken captive, he numbered his own home-born servants, three hundred and eighteen, and pursued after them as far as Dan. And he fell upon them by night, he and his servants, and smote them and pursued them as far as Chobal, which is on the left of Damascus. And he brought back all the cavalry of Sodom, and he brought back Lot his nephew and all his goods and the women and the people. And the king of Sodom came out to meet him, after his return from the slaughter of Chodologómor and the kings with him, to the valley of Sabí; this is the plain of a king. And Melchizedek, king of Salem, brought out loaves and wine; he was priest of the most high God. And he blessed Abram and said: Blessed is Abram by the most high God, who created the heaven and the earth. And blessed is the most high God, who has delivered your enemies into your hand.
 
-The Reading is from Deuteronomy.
-\[**1,8-11 & 15-17b\]**
+The Reading is from Deuteronomy. \[**1,8-11 & 15-17b\]**
 
 Moses said to the children of Israel: See, I have handed over the land in front you; go in and inherit the land which I swore to your fathers, to Abraham and to Isaac and to Jacob, that I would give it to them and to their seed after them. And I spoke to you at that time saying: I shall not be able to bear you alone. The Lord your God has multiplied you, and behold, you are today as the stars of heaven in multitude. May the Lord the God of our fathers multiply you a thousand times more than you are, and bless you as He has spoken to you. And I took from you wise and understanding and prudent men, and I set them to rule over you, captains of thousands and hundreds and fifties and tens and recorders for your judges. And I commanded your judges at that time, saying: Hear cases between your brethren, and judge rightly between a man and his brother and the proselyte who is with him. You shall not have respect to persons in judging. You shall hear the small as well as the great. You shall not shrink before any man’s person; for the judgement is God’s.
 
-The Reading from Deuteronomy.
-\[**10,14-18 & 20-21\]**
+The Reading from Deuteronomy. \[**10,14-18 & 20-21\]**
 
 Moses said to the children of Israel: Behold, the heaven and the highest heaven, the earth and all that is in it belong to the Lord your God. The Lord preferred your fathers, to love them: and he chose their seed after them, you above all nations, as it is at this day. So circumcise the hardness of your heart and stiffen your neck no longer. For the Lord your God is God of gods and Lord of lords, the great God, mighty and strong and awesome, who shows no partiality and takes no bribe. He executes judgement for the proselyte, the orphan and the widow; and loves the proselyte, giving him food and clothing. You shall fear the Lord your God and serve him, and to him you shall hold fast, and take oaths in his name. He is your boast, and he your God, who has done for you the great and wonderful things which your eyes have seen.
 
@@ -94,8 +91,7 @@ Lord, as you completed the mystery of your dispensation, taking your Disciples w
 
 ****
 
-At the Aposticha,
-Resurrection Stichera from the Oktoichos. Tone 6.
+At the Aposticha, Resurrection Stichera from the Oktoichos. Tone 6.
 
 Your Resurrection, O Christ Saviour, Angels sing in heavens; grant that we too who are on earth may with pure hearts give glory to you.
 
@@ -103,11 +99,11 @@ Your Resurrection, O Christ Saviour, Angels sing in heavens; grant that we too w
 
 In Alphabetical Order.
 
-<img src="dropcap-q.gif" alt="dropcap-q.gif (1120 bytes)" width="34" height="43" />uelling the gates of brass and smashing the bars of Hell, as all-powerful God, you raised the fallen human race; therefore we too in hymns cry out: Lord, who rose from the dead, glory to you!
+uelling the gates of brass and smashing the bars of Hell, as all-powerful God, you raised the fallen human race; therefore we too in hymns cry out: Lord, who rose from the dead, glory to you!
 
-<img src="dropcap-r.gif" alt="dropcap-r.gif (1080 bytes)" width="34" height="43" />eady to set us upright from the ancient fall, Christ was nailed to a Cross and placed in a grave. The Myrrhbearing women sought him with tears and lamenting said: Alas, Saviour of all! How did you condescend to dwell in a grave? But while you dwelt there as you willed, how were you stolen? How were you been moved? What place hid your life-bearing Body? But as you promised, Master, appear and make the mourning of our tears cease. As they lamented an Angel cried aloud to them: Cease your lament; say to the Apostles that the Lord has risen, granting the world pardon and his great mercy.
+eady to set us upright from the ancient fall, Christ was nailed to a Cross and placed in a grave. The Myrrhbearing women sought him with tears and lamenting said: Alas, Saviour of all! How did you condescend to dwell in a grave? But while you dwelt there as you willed, how were you stolen? How were you been moved? What place hid your life-bearing Body? But as you promised, Master, appear and make the mourning of our tears cease. As they lamented an Angel cried aloud to them: Cease your lament; say to the Apostles that the Lord has risen, granting the world pardon and his great mercy.
 
-<img src="dropcap-s.gif" alt="dropcap-s.gif (1042 bytes)" width="28" height="44" />o as you wished, O Christ, you were crucified and plundered death by your burial; and on the third day you rose as God with glory, granting the world life without end and your great mercy.
+o as you wished, O Christ, you were crucified and plundered death by your burial; and on the third day you rose as God with glory, granting the world life without end and your great mercy.
 
 Glory.
 
@@ -145,9 +141,6 @@ And the same at
 
 The Lord is God.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

@@ -11,8 +11,6 @@ The place at which the Troparia of the Canons are inserted vary from typikon to 
 
 The Triodion does not give precise references for the daily readings from [St Ephrem the Syrian](ephrem.md) and the Lausiac History of Palladios, nor more than it does for the reading from the ladder at the Hours. Some suitable material from St Ephrem will be found elsewhere on my pages.
 
-------------------------------------------------------------------------
-
 MATINS
 
 FOR WEEKDAYS IN LENT
@@ -33,7 +31,7 @@ Amen. ****
 
 We say first the Trisagion prayers.
 
-Holy God, Holy Strong, Holy Immortal, have mercy on us **
+Holy God, Holy Strong, Holy Immortal, have mercy on us
 
 **(three times).**
 
@@ -53,10 +51,7 @@ For yours is the kingdom, the power and the glory, of the Father, the Son and th
 
 Reader:
 
-Amen. Lord, have mercy. **(x12)** Glory. Both now.
-Come, let us worship and fall down before the King our God.
-Come, let us worship and fall down before Christ the King our God.
-Come, let us worship and fall down before Christ himself, the King, our God. ****
+Amen. Lord, have mercy. **(x12)** Glory. Both now. Come, let us worship and fall down before the King our God. Come, let us worship and fall down before Christ the King our God. Come, let us worship and fall down before Christ himself, the King, our God. ****
 
 Psalm 19
 
@@ -68,7 +63,7 @@ The king will rejoice in your power, O Lord, he will exult exceedingly in your s
 
 Glory to the Father, and to the Son, and to the Holy Spirit; both now and for ever, and to the ages of ages. Amen.
 
-Holy God, Holy Strong, Holy Immortal, have mercy on us **
+Holy God, Holy Strong, Holy Immortal, have mercy on us
 
 **(three times).**
 
@@ -94,7 +89,7 @@ Glory.
 
 Lifted up on the Cross of your own will, to the new commonwealth that bears your name grant your mercies, Christ God; make your faithful people glad by your power, granting them victories over their enemies; may they have your help in battle: a weapon of peace, an invincible trophy.
 
-Both now. **
+Both now.
 
 **Theotokion.**
 
@@ -156,8 +151,7 @@ Lord, do not rebuke me in your anger, nor chastise me in your wrath. For your ar
 
 And again.
 
-Do not forsake me, Lord; my God, do not go far from me.
-Hasten to help me, Lord of my salvation.
+Do not forsake me, Lord; my God, do not go far from me. Hasten to help me, Lord of my salvation.
 
 ****
 
@@ -167,8 +161,7 @@ O God, my God, I watch for you at dawn; my soul has thirsted for you, my flesh h
 
 And again.
 
-Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice.
-My soul clung to you; and your right hand upheld me.
+Every dawn I meditated upon you, for you became my helper, and in the shelter of your wings I shall rejoice. My soul clung to you; and your right hand upheld me.
 
 Glory to the Father and to the Son and to the holy Spirit. Both now and for ever, and to the ages of ages. Amen.
 
@@ -188,8 +181,7 @@ Lord, God of my salvation, I have cried by day, and by night also before you. Le
 
 And again.
 
-Lord, God of my salvation, I have cried by day; and by night also before you.
-Let my prayer come into your presence, and turn your ear to my supplication.
+Lord, God of my salvation, I have cried by day; and by night also before you. Let my prayer come into your presence, and turn your ear to my supplication.
 
 ****
 
@@ -278,7 +270,7 @@ Amen. ****
 
 After the Litany the Canonarch, or the appointed Monk, chants in the middle the
 
-Alleluia ** **3 times according to the Tone of the Week, saying first one of the following verses.**
+Alleluia **3 times according to the Tone of the Week, saying first one of the following verses.**
 
 Verse 1:
 
@@ -324,11 +316,11 @@ Then Psalm 50, as follows.
 
 Reader:
 
-** Lord, have mercy. Lord, have mercy. Lord, have mercy. Glory to the father and to the Son and to the Holy Spirit. ****
+Lord, have mercy. Lord, have mercy. Lord, have mercy. Glory to the father and to the Son and to the Holy Spirit. ****
 
 The appointed person:
 
-** Both now and for ever and to the ages of ages. Amen.
+Both now and for ever and to the ages of ages. Amen.
 
 Have mercy on me O God, in accordance with your great mercy; according to the multitude of your compassion blot out my offence. Wash me thoroughly from my wickedness, and cleanse me from my sin. For I acknowledge my wickedness, and my sin is ever before me. Against you only I have sinned and done what is evil in your sight, that you may be justified in your words, and win when you are judged. For see, in wickedness I was conceived, and in sin my mother bore me. For see, you have loved truth: you have shown me the hidden and secret things of your wisdom. You will sprinkle me with hyssop and I shall be cleansed; you will wash me, and I shall be made whiter than snow. You will make me hear of joy and gladness; the bones which have been humbled will rejoice. Turn away your face from my sins, and blot out all my iniquities. Create a clean heart in me, O God, and renew a right Spirit within me. Do not cast me out from your presence, and do not take your Holy Spirit from me. Give me back the joy of your salvation, and establish me with a sovereign Spirit. I will teach transgressors your ways, and sinners will turn to you again. O God, the God of my salvation, deliver me from bloodshed, and my tongue will rejoice at your justice. Lord, you will open my lips: and my mouth will declare your praise. For if you had wanted a sacrifice, I would have given it; you will not take pleasure in burnt offerings. A sacrifice to God is a broken spirit; a broken and a humbled heart God will not despise. Do good to Sion, Lord, in your good pleasure; and let the walls of Jerusalem be rebuilt. Then you will be well pleased with a sacrifice of righteousness, oblation and whole burnt offerings. Then they will offer calves upon your altar.
 
@@ -344,8 +336,7 @@ On MONDAY— ODE 1
 
 The Song of Moses in Exodus 15
 
-Having utterly drowned Pharaoh in the deep Moses says:
-Let us sing to the Lord, for he is greatly glorified.
+Having utterly drowned Pharaoh in the deep Moses says: Let us sing to the Lord, for he is greatly glorified.
 
 Let us sing to the Lord, for he is greatly glorified: horse and rider he has cast into the sea.
 
@@ -471,8 +462,7 @@ On WEDNESDAY — ODE 3
 
 The Prayer of Anne, the mother of the Prophet Samuel. 1 Reigns 2.
 
-A barren women strangely bearing child praises God.
-Holy are you, O Lord, and my spirit sings your praise.
+A barren women strangely bearing child praises God. Holy are you, O Lord, and my spirit sings your praise.
 
 My heart is established in the Lord, my spirit is exalted in my God: my mouth derides my enemies, I rejoice in your salvation.
 
@@ -524,8 +514,7 @@ On THURSDAY — ODE 4
 
 The Prayer of the Prophet Avvakoum. Chap. 3:1
 
-Avvakoum express the self-emptying of the Word.**
-**Glory to your power, O Lord.
+Avvakoum express the self-emptying of the Word. Glory to your power, O Lord.
 
 Lord, I heard your report and was afraid: Lord I considered your works and was amazed.
 
@@ -597,8 +586,7 @@ On FRIDAY— ODE 5
 
 Prayer of the Prophet Isaias. Chap. 26:9.
 
-Isaias’ prophecy, a perfect prayer.
-Lord our God give us peace.
+Isaias’ prophecy, a perfect prayer. Lord our God give us peace.
 
 From nightfall my spirit is awake for you, O God: for your commands are light upon the earth.
 
@@ -648,8 +636,7 @@ On SATURDAY— ODE 6
 
 Prayer of the Prophet Jonas. Chap. 2:2.
 
-Jonas cried from the beast and said:**
-**As you did the prophet Jonas, save us , O Lord.
+Jonas cried from the beast and said: As you did the prophet Jonas, save us , O Lord.
 
 I cried to the Lord my God in my trouble: and he heard me; from the bowels of hell my cry; you heard my voice.
 
@@ -667,15 +654,11 @@ Water encompassed me, even to my soul: the lowest deep closed around me.
 
 My head went down to the clefts of the mountains: I descended into the earth, whose bars are eternal barriers.
 
-**
-
 For 6 verses.
 
 Let my life come up from corruption to you, O Lord my God.
 
 As my soul was departing from me I remembered the Lord. And let my prayer come to you, to your holy temple.
-
-**
 
 For 4 verses.
 
@@ -691,8 +674,7 @@ On SATURDAY — ODE 7
 
 Prayer of the Three Holy Youths. Dan. 3.
 
-Praise of the three holy Youths quenches a flame.
-Our God and the God of our fathers, blessed are you.
+Praise of the three holy Youths quenches a flame. Our God and the God of our fathers, blessed are you.
 
 Blessed are you, O Lord, the God of our fathers: and praised and glorified is your name for evermore.
 
@@ -774,8 +756,7 @@ On ALL DAYS — ODE 8
 
 Hymn of the three holy Youths.
 
-Created nature, sing the Master’s praise.
-Praise the Lord his works and exalt him above all for ever.
+Created nature, sing the Master’s praise. Praise the Lord his works and exalt him above all for ever.
 
 Bless the Lord all you works of the Lord, praise the Lord, and exalt him above all for ever.
 
@@ -835,8 +816,7 @@ THE MAGNIFICAT
 
 Song of the Mother of God.
 
-A maiden mother hymns her Son and God:
-In hymns God’s Mother now we magnify.
+A maiden mother hymns her Son and God: In hymns God’s Mother now we magnify.
 
 My soul magnifies the Lord, and my spirit has rejoiced in God my Saviour.
 
@@ -938,8 +918,7 @@ Through the prayers of the Mother of God, Lord, and save me.
 
 ****
 
-On Saturday we say the Hymn of Light twice.
-The first time
+On Saturday we say the Hymn of Light twice. The first time
 
 Through the prayers of your saints, and save me.
 
@@ -1087,7 +1066,7 @@ Both now.
 
 After the
 
-Glory, Both now ** **of Lauds, the appointed monk says:**
+Glory, Both now **of Lauds, the appointed monk says:**
 
 To you glory is due, Lord our God, and to you we give glory, Father, Son and Holy Spirit, now and for ever, and to the ages of ages. Amen.
 
@@ -1147,7 +1126,7 @@ To you, O Lord. ****
 
 Priest:
 
-** For you are a God of mercy, compassion and love towards mankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For you are a God of mercy, compassion and love towards mankind, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
@@ -1173,21 +1152,21 @@ Prayer at the Bowing of Heads
 
 Priest (in a low voice):
 
-** Holy Lord, dwelling on high and beholding things below and, with your eye that observes all, keeping watch over the whole creation, to you we have bowed the neck of our soul and body, and we beseech you, O Holy of Holies: Stretch forth your invisible hand from your holy dwelling and bless us all. And, as you are good and love mankind, pardon us if we have sinned in anything, voluntarily or involuntarily, granting us your blessings both of this world and of the world above. ****
+Holy Lord, dwelling on high and beholding things below and, with your eye that observes all, keeping watch over the whole creation, to you we have bowed the neck of our soul and body, and we beseech you, O Holy of Holies: Stretch forth your invisible hand from your holy dwelling and bless us all. And, as you are good and love mankind, pardon us if we have sinned in anything, voluntarily or involuntarily, granting us your blessings both of this world and of the world above. ****
 
 (Aloud)
 
-** For yours it is to have mercy and to save us, O our God, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
+For yours it is to have mercy and to save us, O our God, and to you we give glory, to the Father, the Son and the Holy Spirit, now and for ever, and to the ages of ages. ****
 
 People:
 
-** Amen. ****
+Amen. ****
 
 Then the Aposticha, with the following verses, from Monday to Friday.
 
 Verse 1:
 
-** We have been filled in the morning with your mercy, Lord, we have rejoiced and been glad. In all our day let us be glad, in return for the days when you humbled us, for the years when we saw evils. And look on your servants and on the work of your hands and guide their children. ****
+We have been filled in the morning with your mercy, Lord, we have rejoiced and been glad. In all our day let us be glad, in return for the days when you humbled us, for the years when we saw evils. And look on your servants and on the work of your hands and guide their children. ****
 
 Verse 2:
 
@@ -1207,7 +1186,7 @@ Then the Reader says the Trisagion Prayers.
 
 After the conclusion of the
 
-** Our Father*,* **we say the following Apolytikion:**
+Our Father*,* **we say the following Apolytikion:**
 
 Standing in the temple of your glory, we think we stand in heaven, O Mother of God. O gate of heaven, open to us the door of your mercy.
 
@@ -1247,9 +1226,6 @@ And at once
 
 Come let us worship*,* **and the First Hour.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

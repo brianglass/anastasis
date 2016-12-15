@@ -17,7 +17,7 @@ Blessed is the man*,* **the first Kathisma.**
 
 At
 
-** Lord, I have cried*,* **we insert ten stichera: six of the Resurrection in the Tone of the week from the Octoichos, and the following four Prosomia from the Triodion:**
+Lord, I have cried*,* **we insert ten stichera: six of the Resurrection in the Tone of the week from the Octoichos, and the following four Prosomia from the Triodion:**
 
 Tone 6. Having set all your hope.
 
@@ -29,7 +29,7 @@ Uncircumscribed, Master, in your divine nature, and incarnate in the last times,
 
 The Church of Christ has received a precious adornment: the radiant restoration of the venerable and holy ikons of Christ the Saviour, of God’s Mother and of all the saints. Through this she is made bright and resplendent with grace and rejects the throng of heretics as she drives them out and joyfully gives glory to God who loves humankind, and who for her sake endured his voluntary sufferings.
 
-Glory. **
+Glory.
 
 **Tone 6.**
 
@@ -67,7 +67,7 @@ Glory.
 
 Advancing from false religion to true, and illumined with the light of knowledge, let us clap our hands, as the psalm says, offering praise and thanksgiving to God; and with fitting honour let us worship the sacred ikons of Christ, of the all-pure Virgin and all the saints, whether depicted on walls, panels or sacred vessels, rejecting the impious religion of the heretics; for, as Basil says, the honour shown to the ikon passes to the prototype, as we ask that at the prayers of your immaculate Mother, Christ our God, and of all the saints, we may be granted your great mercy.
 
-Both now. **
+Both now.
 
 **Theotokion. Same Tone.**
 
@@ -89,9 +89,6 @@ We worship your most pure icon, loving Lord, as we ask pardon of our offences, C
 
 **And the rest of the Service of the Vigil.**
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

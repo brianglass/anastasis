@@ -69,9 +69,6 @@ Theotokion
 
 You who called your Mother blessed, came to the Passion by your own will; shining by the Cross, wishing to seek out Adam, saying to the Angels: Rejoice with me, for the drachma that was lost is found. You who disposed all things wisely: Glory to you!
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 06 November 2008**

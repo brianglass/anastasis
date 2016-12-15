@@ -3,9 +3,7 @@
 AT THE MIDNIGHT OFFICE
 ----------------------
 
-**Canon to the Trinity, of which the Acrostic is:**
-A fourth hymn to God
-**by Metrophanes.**
+**Canon to the Trinity, of which the Acrostic is:** A fourth hymn to God **by Metrophanes.**
 
 ****
 
@@ -159,9 +157,6 @@ Theotokion.
 
 Save those who believe in you, Lord, and who proclaim one eternal Essence without beginning, three divine and consubstantial Persons, and count us worthy of your divine glory at the entreaties of the pure Mother of God.
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

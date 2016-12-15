@@ -18,8 +18,7 @@ Lord, I have cried, **we insert 6 Stichera, and we sing Prosomia of the Prophet.
 
 Tone 8. Lord, though at the judgement seat.
 
-Other Prosomia of the Martyr.
-Same Tone. O marvellous wonder.
+Other Prosomia of the Martyr. Same Tone. O marvellous wonder.
 
 Glory. Both now.
 
@@ -243,13 +242,11 @@ Tone 8.
 
 Glory.
 
-**Of the Martyr.
-Same melody.**
+**Of the Martyr. Same melody.**
 
 Both now.
 
-**Of the Forefeast.
-Same Tone.**
+**Of the Forefeast. Same Tone.**
 
 The prophetic choir, proclaiming in advance, rejoices at the Baptism of Christ, which pours forth life. Isaias cries out: Draw cleansing water! The Forefather of God writes how the sea flees before the face of God, who in his good pleasure saves the human race.
 
@@ -298,30 +295,22 @@ Irmos.
 ‘As you delivered the prophet from the lowest deep, Christ God, deliver me also from my faults, as you love mankind, and pilot my life, I beg.’
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Synaxarion</span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;"></span>
+mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Synaxarion</span>
 
-<span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">On the 3rd of the same month, Commemoration of the Holy Prophet Malachy.</span>
+<span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">On the 3rd of the same month, Commemoration of the Holy Prophet Malachy. </span>
 
 <span style="font-size:14.0pt;
-mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;"><span style="color:red">
-</span>Loudly proclaiming his angelic call,<a href="#_ftn1" id="_ftnref1">[1]</a>
-His place with Angels Malachy proclaims.
-Malachy’s heart on the third of the month flew away from his members.<a href="#_ftn2" id="_ftnref2">[2]</a></span>
+mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;;color:red">Verses</span><span style="font-size:14.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;"> Loudly proclaiming his angelic call,<a href="#_ftn1" id="_ftnref1">[1]</a> His place with Angels Malachy proclaims. Malachy’s heart on the third of the month flew away from his members.<a href="#_ftn2" id="_ftnref2">[2]</a></span>
 
 On the same day, Commemoration of the Holy Martyr Gordios.
 
-<span style="color:red">Verses
-</span>Who can surpass the soldier Gordios,
-A stalwart hero ‘gainst the fearsome blade?
-Gordios fell in the dust on the third on all sides surrounded.<a href="#_ftn3" id="_ftnref3">[3]</a>
+<span style="color:red">Verses </span>Who can surpass the soldier Gordios, A stalwart hero ‘gainst the fearsome blade? Gordios fell in the dust on the third on all sides surrounded.<a href="#_ftn3" id="_ftnref3">[3]</a>
 
 On the same day, Commemoration of our Venerable Father Peter the Standard-bearer, who lies in the church of St Zachary of Atroa.
 
 On the same day, the Holy Martyrs, a mother and her two children, died by fire.
 
-<span style="color:red">Verses
-</span>Their<span style="mso-bidi-font-style:italic"> mother<span style="color:red"> </span>burned, her children to the flame,
-Like sparrow’s nestlings, with shrill cries make speed.</span>
+<span style="color:red">Verses </span>Their<span style="mso-bidi-font-style:italic"> mother burned, her children to the flame, Like sparrow’s nestlings, with shrill cries make speed. </span>
 
 <span style="mso-bidi-font-style:
 italic">At their holy intercessions, O God, have mercy on us. </span>
@@ -420,8 +409,7 @@ Christ, who is declared the fulfiller of the law, according to the flesh, has co
 
 ****
 
-Stichera at the Aposticha.
-Tone 2. House of Ephratha.
+Stichera at the Aposticha. Tone 2. House of Ephratha.
 
 Let us pass over from Bethlehem to Jordan; for there the light for those in darkness already begins to shine.
 
@@ -447,20 +435,15 @@ Glory. Both now.
 
 The brightness of the Father’s glory has appeared in Jordan’s streams, cleansing by Baptism the stain of our souls.
 
-------------------------------------------------------------------------
+<a href="#_ftnref1" id="_ftn1">[</a><a href="#_ftnref1" id="_ftn1">1]</a><span style="font-family: Book Antiqua"> In Hebrew the name ‘Malachy’ means ‘My Messenger’, in Greek ‘My Angel’. </span>
 
-<a href="#_ftnref1" id="_ftn1">[</a><a href="#_ftnref1" id="_ftn1">1]</a><span style="font-family: Book Antiqua"> In Hebrew the name ‘Malachy’ means ‘My Messenger’, in Greek ‘My Angel’.</span>
-
-<span style="font-family: Book Antiqua"><a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> </span><span style="mso-bidi-font-size:
-13.5pt;font-family:&quot;Book Antiqua&quot;">The final hexameter is deliberately Homeric. The words for ‘heart’ and ‘limbs’, or ‘members’, are both epic ones. In Iliad 16:856 a person’s soul is said to ‘fly from their limbs’, using the same words as here.</span><span style="font-family:&quot;Book Antiqua&quot;"></span></span>
+<span style="font-family: Book Antiqua"><a href="#_ftnref2" id="_ftn2">[2]</a> <span style="mso-bidi-font-size:
+13.5pt;font-family:&quot;Book Antiqua&quot;">The final hexameter is deliberately Homeric. The words for ‘heart’ and ‘limbs’, or ‘members’, are both epic ones. In Iliad 16:856 a person’s soul is said to ‘fly from their limbs’, using the same words as here.</span> </span>
 
 <span style="font-family: Book Antiqua"><a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-family:&quot;Book Antiqua&quot;"> Unusually the second Saint commemorated has a hexameter noting the date. It is also in Homeric language, with tmesis and reversal of the preposition and verb in <span style="color: #3366FF; font-family: Book Antiqua">amphitemno</span>, and an epic phrase, ‘fall in the dust’, for ‘die’.</span></span>
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

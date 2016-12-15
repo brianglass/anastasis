@@ -16,7 +16,7 @@ Visit my humble soul, Lord, that has squandered its whole life in sins; receive 
 
 Verse:
 
-** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
+Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
 As I sail the sea of this present life I think on the abyss of my many evils, and as I have no thought as helmsman, I cry aloud to you in Peter’s words. Save me, Christ God, save me as you love mankind!
 
@@ -36,7 +36,7 @@ With haste let us enter the bridal-chamber of Christ together and let us all hea
 
 Verse:
 
-** Lord, do not rebuke me in your anger; nor chastise me in your wrath.
+Lord, do not rebuke me in your anger; nor chastise me in your wrath.
 
 Consider, my soul, how we are to stand before the Judge. In that dread hour fearful thrones are set in place, the deeds of mortals are examined; then the Judge is implacable, for fire runs before the judgement seat, with its roaring like a raging sea, and smothers those who have offended. Consider these things daily, my soul, and set your works to rights.
 
@@ -416,8 +416,7 @@ We faithful know you, Mother of God, to be the bridal chamber of the ineffable i
 
 ****
 
-Aposticha of Lauds.
-Of Compunction.
+Aposticha of Lauds. Of Compunction.
 
 I am a sheep of your rational flock, and I flee to you, the Good Shepherd; seek me out who have been led astray, O God, and have mercy on me.
 
@@ -468,9 +467,6 @@ Pure Virgin, take pity on me, who am always sinning and am wholly in the grip of
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

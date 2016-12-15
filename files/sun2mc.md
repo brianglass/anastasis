@@ -3,15 +3,13 @@
 AT MATINS
 ---------
 
-**After the 1st reading from the Psalter,
-Kathismata of the Resurrection.
-Tone 2.**
+**After the 1st reading from the Psalter, Kathismata of the Resurrection. Tone 2.**
 
 The noble Joseph taking down your spotless Body from the tree, wrapped it in a clean shroud with sweet spices and laid it for burial in a new grave; but on the third day you arose, O Lord, granting the world your great mercy.
 
 ****
 
-Verse: **
+Verse:
 
 Arise, Lord my God, lift up your hand; do not forget your poor for ever.
 
@@ -19,7 +17,7 @@ The Angel standing by the grave cried to the women bearing myrrh, ‘Myrrh is fi
 
 Glory. Both now.
 
-**** Cross-Theotokion.**
+**Cross-Theotokion.**
 
 You are highly glorified, Virgin Mother of God, and we sing your praise, for through the Cross of your Son Hell has been overthrown, Death has died, we who were dead have risen and been granted life. We have received Paradise, our ancient delight, therefore with thanksgiving we glorify Christ our God as mighty and alone full of mercy.
 
@@ -33,7 +31,7 @@ You did not prevent the grave stone from being sealed, and risen you granted to 
 
 Verse:
 
-** I will praise you, Lord, with my whole heart; I will tell of all your marvellous works.
+I will praise you, Lord, with my whole heart; I will tell of all your marvellous works.
 
 The choir of your Disciples rejoices in harmony with the Myrrh-bearing women; for with them we celebrate a common feast to the glory and honour of your Resurrection. Through them, O Lord who love humankind, grant your people your great mercy.
 
@@ -125,7 +123,7 @@ I sing my praise to the life-giving Word.
 
 Irmos. Israel the chosen.
 
-O **** Christ you have become strength for the weak, resurrection for the fallen and incorruption for the dead by the suffering of your flesh: for it has been glorified.
+O Christ you have become strength for the weak, resurrection for the fallen and incorruption for the dead by the suffering of your flesh: for it has been glorified.
 
 God the Fashioner and Restorer took pity on his fallen image and raised it up when it was crushed, having himself been put to death; for he has been glorified.
 
@@ -167,8 +165,7 @@ The ranks of Angels were amazed, and the hearts of mortals trembled at your birt
 
 ****
 
-Another, of the Cross and Resurrection.
-The bow of mighty men was smashed.
+Another, of the Cross and Resurrection. The bow of mighty men was smashed.
 
 Christ, who is beyond all, has been made a little lower than the Angels by his suffering in the flesh.
 
@@ -204,8 +201,7 @@ All we believers know you to be a harbour of salvation and an unshakeable wall, 
 
 ****
 
-Another of the Cross and Resurrection.
-I have heard, Lord, of your glorious.
+Another of the Cross and Resurrection. I have heard, Lord, of your glorious.
 
 Seeing you nailed to the Cross, O Christ, the Virgin who had borne you without pains, endured a mother’s pains.
 
@@ -241,8 +237,7 @@ Beseech your Son and Lord, pure Virgin, to grant deliverance to prisoners and pe
 
 ****
 
-Another, of the Cross and Resurrection.
-The Coal once seen by Isaias.
+Another, of the Cross and Resurrection. The Coal once seen by Isaias.
 
 The former Adam, refusing to fast, tasted of the tree that brought death; but the Second, by being crucified, wipes out his sin.
 
@@ -326,8 +321,7 @@ We acknowledge you as the Holy of Holies, O Virgin undefiled, Mother without bri
 
 ****
 
-Another, of the Cross and Resurrection.
-Youths were once revealed.
+Another, of the Cross and Resurrection. Youths were once revealed.
 
 Of old disobedience condemned the Forefather in Eden; but willing he was condemned, annulling the charge against the offender, the God of our fathers, supremely divine and most glorious.
 
@@ -451,11 +445,7 @@ Both now. You are highly blessed.
 
 Great Doxology and after it the troparion:
 
-To-day salvation has come to the world.
-
- 
-
-****
+To-day salvation has come to the world.  
 
 AT THE LITURGY
 
@@ -505,9 +495,6 @@ Both now. **Theotokion.**
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**

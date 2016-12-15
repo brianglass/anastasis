@@ -47,18 +47,15 @@ font-family:&quot;Book Antiqua&quot;">. </span> <span style="font-size:14.0pt;fo
 <span style="font-size: 14.0pt; font-family: Book Antiqua; color: red">Entrance,</span><span style="font-size:
 14.0pt;font-family:&quot;Book Antiqua&quot;"> O Joyful Light. <span style="color:red">The Prokeimenon of the day and the Readings.</span></span>
 
-<span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">The Reading is from the First Universal Epistle of Peter.
-\[<span style="color:red">1:3-9</span>\]</span>
+<span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">The Reading is from the First Universal Epistle of Peter. \[<span style="color:red">1:3-9</span>\]</span>
 
 <span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">Brethren, Blessed be the God and Father of our Lord Jesus Christ! By his great mercy he has given us a new birth into a living hope through the resurrection of Jesus Christ from the dead, and into an inheritance that is imperishable, undefiled, and unfading, kept in heaven for you, who are being protected by the power of God through faith for a salvation ready to be revealed in the last time. In this you rejoice, even if now for a little while you have had to suffer various trials, so that the genuineness of your faith–being more precious than gold that, though perishable, is tested by fire–may be found to result in praise and glory and honour when Jesus Christ is revealed. Although you have not seen him, you love him; and even though you do not see him now, you believe in him and rejoice with an indescribable and glorious joy, for you are receiving the outcome of your faith, the salvation of your souls.</span>
 
-<span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">The Reading is from the First Universal Epistle of Peter.
-\[<span style="color:red">1:13-15</span>\]</span>
+<span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">The Reading is from the First Universal Epistle of Peter. \[<span style="color:red">1:13-15</span>\]</span>
 
 <span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">Beloved, therefore prepare your minds for action; discipline yourselves; set all your hope on the grace that Jesus Christ will bring you when he is revealed. Like obedient children, do not be conformed to the desires that you formerly had in ignorance. Instead, as he who called you is holy, be holy yourselves in all your conduct; for it is written, ‘You shall be holy, for I am holy.’ If you invoke as Father the one who judges all people impartially according to their deeds, live in reverent fear during the time of your exile. You know that you were ransomed from the futile ways inherited from your ancestors, not with perishable things like silver or gold, but with the precious blood of Christ, like that of a lamb without defect or blemish.</span>
 
-<span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">The Reading is from the First Universal Epistle of Peter.
-\[<span style="color:red">2:11-24</span>\]</span>
+<span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">The Reading is from the First Universal Epistle of Peter. \[<span style="color:red">2:11-24</span>\]</span>
 
 <span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">Beloved, I urge you as aliens and exiles to abstain from the desires of the flesh that wage war against the soul. Conduct yourselves honourably among the Gentiles, so that, though they malign you as evildoers, they may see your honourable deeds and glorify God when he comes to judge. For the Lord’s sake accept the authority of every human institution, whether of the emperor as supreme, or of governors, as sent by him to punish those who do wrong and to praise those who do right. For it is God’s will that by doing right you should silence the ignorance of the foolish. As servants of God, live as free people, yet do not use your freedom as a pretext for evil. Honour everyone. Love the family of believers. Fear God. Honour the emperor. Slaves, accept the authority of your masters with all deference, not only those who are kind and gentle but also those who are harsh. For it is a credit to you if, being aware of God, you endure pain while suffering unjustly. If you endure when you are beaten for doing wrong, what credit is that? But if you endure when you do right and suffer for it, you have God’s approval. For to this you have been called, because Christ also suffered for you, leaving you an example, so that you should follow in his steps. ‘He committed no sin, and no deceit was found in his mouth.’ When he was abused, he did not return abuse; when he suffered, he did not threaten; but he entrusted himself to the one who judges justly. He himself bore our sins in his body on the cross, so that, free from sins, we might live for righteousness.</span>
 
@@ -127,10 +124,9 @@ font-family:&quot;Book Antiqua&quot;">. </span> <span style="font-size:14.0pt;fo
 
 <span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">A joyous feast has shone out today on the ends of the earth, the all-honoured memorial of the wisest Apostles and their princes, Peter and Paul; and so Rome dances and rejoices. Let us also, brethren, celebrate in songs and psalms this all-revered day, as we cry out to them: Hail, Peter, Apostle and true friend of your teacher, Christ our God. Hail, Paul, well-loved, and herald of the faith and teacher of the inhabited world. Holy pair, chosen by God, as you have boldness, implore Christ God that our souls may be saved.</span>
 
-<span style="font-size: 14.0pt; font-family: Book Antiqua; font-style: normal"> Both now.</span><span style="font-size:14.0pt;
-font-family:&quot;Book Antiqua&quot;"> </span> <span style="font-size:14.0pt;font-family:
+<span style="font-size: 14.0pt; font-family: Book Antiqua; font-style: normal"> Both now.</span> <span style="font-size:14.0pt;font-family:
 &quot;Book Antiqua&quot;;color:red;font-style:normal">Theotokion.</span>
-------------------------------------------------------------------------------------------------------------------------------
+-------------------------------------------------------------------------------------------------------------------------------------------
 
 <span style="font-size:14.0pt;font-family:&quot;Book Antiqua&quot;">Mother of God, you are the true vine, that gave bud to the fruit of life; we implore you, Sovereign Lady, intercede together with the Apostles that he have mercy on our souls.</span>
 
@@ -147,9 +143,6 @@ font-family:&quot;Book Antiqua&quot;"> </span> <span style="font-size:14.0pt;fon
 **<span style="font-size: 14.0pt; font-family: Book Antiqua; font-style: normal"> And Dismissal.</span>**
 ---------------------------------------------------------------------------------------------------------
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

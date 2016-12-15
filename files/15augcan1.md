@@ -1,8 +1,6 @@
 \[ [Home](index.md) \] \[ [Up](kosmas.md) \]
 
- 
-
-****
+  ****
 
 Canon by Kyr Kosmas, of which the Acrostic is:
 
@@ -128,9 +126,6 @@ The choir of the Apostles shrouded your Body, which had received God, as they lo
 
  
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 10 May 2009**

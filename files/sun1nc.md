@@ -15,9 +15,7 @@ I sing the one Nature, triple-sunned.
 
 ****
 
-A composition by Metrophanes.
-Ode 1. Tone 1.
-The Irmos. Your triumphant right hand.
+A composition by Metrophanes. Ode 1. Tone 1. The Irmos. Your triumphant right hand.
 
 One source three-personned the Seraphim glorify, without beginning, eternal, maker of all things, incomprehensible, whom every tongue faithfully honours in songs.
 
@@ -171,11 +169,8 @@ Bend to our supplications, only true God believed in in three divine persons, an
 
 And the rest of the Midnight Office and Dismissal.
 
-** **
+ 
 
-------------------------------------------------------------------------
-
-All texts and translations on this page are copyright to
-Archimandrite Ephrem ©
+All texts and translations on this page are copyright to Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
