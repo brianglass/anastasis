@@ -1,165 +1,136 @@
 **ANASTASIS**
 
-![](Title04.gif)
+<img src="Title04.gif" width="539" height="100" />
 
-## Welcome to Anastasis  
-the Home Page  
-of the Monastery of Saint Andrew the First Called  
+Welcome to Anastasis
+the Home Page
+of the Monastery of Saint Andrew the First Called
 Manchester, England
+-------------------------------------------------
 
-![](Hodeg04.jpg)
+<img src="Hodeg04.jpg" width="348" height="445" />
 
-****L****et the impious’ lips be bereft of speech,  
-who do not worship this your icon, the all-revered,  
-this which was depicted  
-by Luke, the Lord’s Apostle,  
-the icon with the title,  
+****L****et the impious’ lips be bereft of speech,
+who do not worship this your icon, the all-revered,
+this which was depicted
+by Luke, the Lord’s Apostle,
+the icon with the title,
 ‘She who points out the Way’.
 
------
+------------------------------------------------------------------------
 
-On these pages you will find, in the main, translations of our Orthodox
-liturgical and patristic texts. Most of the latter are of texts which
-have not been previously translated into English, or which are only
-available in rare or outdated versions.
+On these pages you will find, in the main, translations of our Orthodox liturgical and patristic texts. Most of the latter are of texts which have not been previously translated into English, or which are only available in rare or outdated versions.
 
-As the texts on these pages change frequently, I would ask visitors to
-link to this opening page only. In this way you will find what is
-available more easily. I have tried deliberately to keep things simple,
-by not using frames and other elegant refinements.
+As the texts on these pages change frequently, I would ask visitors to link to this opening page only. In this way you will find what is available more easily. I have tried deliberately to keep things simple, by not using frames and other elegant refinements.
 
-**Click on the book icon to be taken to the Table of Contents for the
-whole site [![](turnbook.gif)](table_of_contents.md) The Search facility
-near the bottom of this page is also a way of finding your way around
-quickly and easily.**
+**Click on the book icon to be taken to the Table of Contents for the whole site [<img src="turnbook.gif" width="37" height="30" />](table_of_contents.md) The Search facility near the bottom of this page is also a way of finding your way around quickly and easily.**
 
-The date on which each page was last updated appears at the bottom of
-each page, but if any page has been updated or added this first page and
-the Table of contents will also be updated.
+The date on which each page was last updated appears at the bottom of each page, but if any page has been updated or added this first page and the Table of contents will also be updated.
 
-Some visitors to these pages have pointed out that when printed out in
-black and white only, the distinction between text and rubrics is lost.
-This can be overcome if the pages are saved into a word processor and
-then edited, rather than being printed directly from the screen. The
-original text of nearly all these pages was prepared in Microsoft Word
-2000.
+Some visitors to these pages have pointed out that when printed out in black and white only, the distinction between text and rubrics is lost. This can be overcome if the pages are saved into a word processor and then edited, rather than being printed directly from the screen. The original text of nearly all these pages was prepared in Microsoft Word 2000.
 
------
+------------------------------------------------------------------------
 
-As there is now a great deal on these pages, I have decided to draw
-attention to recently added material by listing them here and adding the
-necessary hyperlinks, and reminders, with hyperlinks, to appropriate
-pages from earlier years.
+As there is now a great deal on these pages, I have decided to draw attention to recently added material by listing them here and adding the necessary hyperlinks, and reminders, with hyperlinks, to appropriate pages from earlier years.
 
-![](newCLR.gif)
+<img src="newCLR.gif" width="92" height="65" />
 
-## [Tone 5: Monday Matins](monday_matins4.md)
+[Tone 5: Monday Matins](monday_matins4.md)
+------------------------------------------
 
-## [Tone 5: Tuesday Matins](tuesday_matins4.md)
+[Tone 5: Tuesday Matins](tuesday_matins4.md)
+--------------------------------------------
 
------
+------------------------------------------------------------------------
 
-##  REMINDER 
+<span style="TEXT-TRANSFORM: uppercase"> REMINDER </span>
+---------------------------------------------------------
 
-## [Menaion for August](august.md)
+[Menaion for August](august.md)
+-------------------------------
 
-## [Small Paraklesis to the Mother of God](lit-parak.md)
+[Small Paraklesis to the Mother of God](lit-parak.md)
+-----------------------------------------------------
 
-## [1 August: Vespers and Matins](1august.md)
+[1 August: Vespers and Matins](1august.md)
+------------------------------------------
 
-## [4 August: Vespers and Matins](4august.md)
+[4 August: Vespers and Matins](4august.md)
+------------------------------------------
 
-## [5 August: Vespers and Matins](5_august.md)
+[5 August: Vespers and Matins](5_august.md)
+-------------------------------------------
 
------
+------------------------------------------------------------------------
 
-Unless stated otherwise, all texts and translations on these pages are
-(c) by Archimandrite Ephrem.
+Unless stated otherwise, all texts and translations on these pages are (c) by Archimandrite Ephrem.
 
-You will find a great treasure house of Orthodox material and good sense
-at [Arimathea](http://www.arimathea.co.uk/arimathea.htm), David
-Melling’s home page. He has now launched a new web page devoted to
-Orthodox church music. The address is:
-<http://www.church-music.co.uk/EOChant.htm> It includes his manual of
-Psalmodia in PDF format.
+You will find a great treasure house of Orthodox material and good sense at [Arimathea](http://www.arimathea.co.uk/arimathea.htm), David Melling’s home page. He has now launched a new web page devoted to Orthodox church music. The address is: <http://www.church-music.co.uk/EOChant.htm> It includes his manual of Psalmodia in PDF format.
 
-If you have any personal comments or suggestions please send us an  
-![mail42.gif (24435
-bytes)](mail42.gif)[ephrem@chorlton.com](mailto:ephrem@studite.demon.co.uk)
+If you have any personal comments or suggestions please send us an
+<img src="mail42.gif" alt="mail42.gif (24435 bytes)" width="96" height="64" />[ephrem@chorlton.com](mailto:ephrem@studite.demon.co.uk)
 
-The number of visits since 1 January 1998
-is
+The number of visits since 1 January 1998 is
 
-[![](http://www.rapidaxcess.com/cgi-bin/counter/count.pl?4158631)](http://www.rapidaxcess.com)  
+[<embed src="http://www.rapidaxcess.com/cgi-bin/counter/count.pl?4158631" width="124" height="37" />](http://www.rapidaxcess.com)
 [Counter by Rapid Axcess](http://www.rapidaxcess.com)
 
-![anisigntrans.GIF (24941 bytes)](anisigntrans.GIF)‘My tongue is the pen
-of a rapid writer’
+<img src="anisigntrans.GIF" alt="anisigntrans.GIF (24941 bytes)" width="145" height="88" />‘My tongue is the pen of a rapid writer’
 
-Please sign [my Guestbook](http://www.guestbook.de/yasg.cgi?X=74251).
-Your comments in my earlier book were most positive and encouraging.
+Please sign [my Guestbook](http://www.guestbook.de/yasg.cgi?X=74251). Your comments in my earlier book were most positive and encouraging.
 
-Enter your e-mail address to receive e-mail when this page is updated.  
-Your Internet e-mail address:  
-  
+Enter your e-mail address to receive e-mail when this page is updated.
+Your Internet e-mail address:
 
-  
-The search facility below is highly recommended and will rapidly find
-almost any word on the following pages.
+The search facility below is highly recommended and will rapidly find almost any word on the following pages.
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="4" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="8" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="13" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="35" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="19" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="46" height="1" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_01_01.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_01_01.gif" width="126" height="21" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="21" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_02_01.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_02_01.gif" width="2" height="26" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="26" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_03_01.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_03_01.gif" width="60" height="55" />
 
-  
+<img src="http://sitesearch.hitbox.com/search/images/sbox_03_07.gif" width="46" height="40" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_03_07.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="40" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="15" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_05_01.gif" width="4" height="43" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_05_01.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_05_04.gif" width="55" height="55" />
 
-  
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="43" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_05_04.gif)
+<img src="http://sitesearch.hitbox.com/search/images/sbox_06_01.gif" width="25" height="12" />
 
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
-
-![](http://sitesearch.hitbox.com/search/images/sbox_06_01.gif)
-
-![](http://sitesearch.hitbox.com/search/images/sbox_00.gif)
-
-  
+<img src="http://sitesearch.hitbox.com/search/images/sbox_00.gif" width="1" height="12" />
 
 [](http://uk.nedstat.net/viewstat.asp?name=ephcount)
 
-![](http://uk.nedstat.net/scripts/nedstat.dll?name=ephcount)
+<embed src="http://uk.nedstat.net/scripts/nedstat.dll?name=ephcount" width="22" height="22" />
 
-[![](sw01_award.gif)](http://www.studyweb.com/)
+[<img src="sw01_award.gif" width="73" height="104" />](http://www.studyweb.com/)
 
-![key.gif (7771 bytes)](key.gif)
+<img src="key.gif" alt="key.gif (7771 bytes)" width="39" height="40" />
 
 <table>
 <tbody>
@@ -170,7 +141,7 @@ Orthodox Topic</a></td>
 </tbody>
 </table>
 
-![](http://counter.digits.com/wc/-d/4/nisibis)    
+<img src="http://counter.digits.com/wc/-d/4/nisibis" width="60" height="20" />    
 
 <table>
 <colgroup>
@@ -185,4 +156,5 @@ Archimandrite Ephrem ©</p>
 </tr>
 </tbody>
 </table>
+
 

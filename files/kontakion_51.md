@@ -1,29 +1,22 @@
-\[ [Home](index.md) \] \[ [Up](romanos.md) \]
-\[ [Kontakion 16](kontak16.md) \]
-\[ [Kontakion 20](kontakion_20.md) \]
-\[ [Kontakion 22](kontakion_22.md) \]
-\[ [Kontakion 32](kontakion_32.md) \]
-\[ [Kontakion 49](kontakion_49.md) \] \[ Kontakion 51 \]
-\[ [The Akathist](akath.md) \]
+\[ [Home](index.md) \] \[ [Up](romanos.md) \] \[ [Kontakion 16](kontak16.md) \] \[ [Kontakion 20](kontakion_20.md) \] \[ [Kontakion 22](kontakion_22.md) \] \[ [Kontakion 32](kontakion_32.md) \] \[ [Kontakion 49](kontakion_49.md) \] \[ Kontakion 51 \] \[ [The Akathist](akath.md) \]
 
-## INTRODUCTORY NOTE
+INTRODUCTORY NOTE
+-----------------
 
-This Kontakion is called *On Adam and Eve* by the French editor, but *On
-Fasting* by the Oxford editors. It is not used liturgically and only
-survives in one manuscript, where it assigned to the Wednesday of the
-Second Week of Lent.
+This Kontakion is called *On Adam and Eve* by the French editor, but *On Fasting* by the Oxford editors. It is not used liturgically and only survives in one manuscript, where it assigned to the Wednesday of the Second Week of Lent.
 
-## [Kontakion 51](On%20Adam%20and%20Eve-51.pdf)
+[Kontakion 51](On%20Adam%20and%20Eve-51.pdf)
+--------------------------------------------
 
-The file is in PDF format, to read which Adobe Acrobat Reader is
-required. This can be downloaded free by following the hyperlink below.
+<span style="mso-bidi-font-size: 10.0pt">The file is in PDF format, to read which Adobe Acrobat Reader is required. This can be downloaded free by following the hyperlink below.</span>
 
-[![](getacro.gif)](http://www.adobe.com)
+<span style="mso-bidi-font-size: 10.0pt; font-family: Book Antiqua; Kontakion 22
+&lt;/a&gt;&lt;/span&gt;&lt;/font&gt;&lt;/p&gt;
+&lt;p&gt;&lt;font size="> [<img src="getacro.gif" width="88" height="31" />](http://www.adobe.com)</span>
 
------
+------------------------------------------------------------------------
 
-All texts and translations on this page are copyright to  
+All texts and translations on this page are copyright to
 Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
-

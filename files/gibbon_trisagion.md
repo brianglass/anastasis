@@ -1,11 +1,4 @@
-\[ [Home](index.md) \] \[ [Up](obiter_scripta.md) \]
-\[ [Translating Liturgy](translating_liturgy.md) \]
-\[ [Lord’s Prayer](lord%27s_prayer.md) \]
-\[ [Bible Review](bible_review.md) \] \[ [Dialogue](dialogue.md) \]
-\[ [Zoopoios](zoopoios.md) \] \[ [The Trisagion](the_trisagion.md) \]
-\[ Gibbon Trisagion \]
-\[ [Star of Bethlehem](Star%20of%20Bethlehem.md) \]
-\[ [Basil Liturgy](basil_liturgy.md) \]
+\[ [Home](index.md) \] \[ [Up](obiter_scripta.md) \] \[ [Translating Liturgy](translating_liturgy.md) \] \[ [Lord’s Prayer](lord%27s_prayer.md) \] \[ [Bible Review](bible_review.md) \] \[ [Dialogue](dialogue.md) \] \[ [Zoopoios](zoopoios.md) \] \[ [The Trisagion](the_trisagion.md) \] \[ Gibbon Trisagion \] \[ [Star of Bethlehem](Star%20of%20Bethlehem.md) \] \[ [Basil Liturgy](basil_liturgy.md) \]
 
 <table>
 <colgroup>
@@ -26,10 +19,9 @@
 
  
 
------
+------------------------------------------------------------------------
 
-All texts and translations on this page are copyright to  
+All texts and translations on this page are copyright to
 Archimandrite Ephrem ©
 
 **This page was last updated on 03 November 2008**
-

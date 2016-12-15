@@ -7,7 +7,7 @@ from lxml import etree, html
 
 parser = html.HTMLParser(encoding='latin-1')
 pipeline = pipes.Template()
-pipeline.append('pandoc -S -f html -t commonmark', '--')
+pipeline.append('pandoc -S -f html -t markdown_github', '--')
 
 def replace_tag(old_element, new_element):
     parent = old_element.getparent()
@@ -80,10 +80,7 @@ def convert_html_file(filepath):
 
 
 if __name__ == '__main__':
-    convert_html_file('original/tuesday_matins1.htm')
-
-    if False:
-        cpu_count = multiprocessing.cpu_count()
-        with multiprocessing.Pool(cpu_count) as pool:
-            convert_html_file('original/index.html')
-            pool.map(convert_html_file, glob.glob('original/*.htm'))
+    cpu_count = multiprocessing.cpu_count()
+    with multiprocessing.Pool(cpu_count) as pool:
+        convert_html_file('original/index.html')
+        pool.map(convert_html_file, glob.glob('original/*.htm'))
