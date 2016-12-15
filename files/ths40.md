@@ -11,31 +11,31 @@ yes"> </span>whose names are in the book of life*,<a href="#_ftn12" id="_ftnref
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a> The manuscripts give no particular date for this Instruction, but its place, between Theophany and Lent, and the reference in the last paragraph to ‘our holy fathers and brothers, who have been commemorated by us today’ strongly suggest that it was given on the Saturday before Cheese Sunday. The references to Adam and his banishment from Paradise, the theme of the next day’s services, support this.
+<span id="_ftn1">\[1\]</span> The manuscripts give no particular date for this Instruction, but its place, between Theophany and Lent, and the reference in the last paragraph to ‘our holy fathers and brothers, who have been commemorated by us today’ strongly suggest that it was given on the Saturday before Cheese Sunday. The references to Adam and his banishment from Paradise, the theme of the next day’s services, support this.
 
-<a href="#_ftnref2" id="_ftn2">[2]</a> John 3:16
+<span id="_ftn2">\[2\]</span> John 3:16
 
-<a href="#_ftnref3" id="_ftn3">[3]</a> Phil. 2:8.
+<span id="_ftn3">\[3\]</span> Phil. 2:8.
 
-<a href="#_ftnref4" id="_ftn4">[4]</a> Cf. Romans 7:14, which is alluded to in the Anaphora of St Basil in a similar context in the first person plural. It may be that St Theodore has the Anaphora in mind here, rather than Romans.
+<span id="_ftn4">\[4\]</span> Cf. Romans 7:14, which is alluded to in the Anaphora of St Basil in a similar context in the first person plural. It may be that St Theodore has the Anaphora in mind here, rather than Romans.
 
-<a href="#_ftnref5" id="_ftn5">[5]</a> Apocalypse 1:5-6. St Theodore is probably quoting from memory The word ‘heaven’ is not in the text of the Apocalypse. The standard Byzantine text has ‘kings’, rather than ‘kingdom’, which is the accepted reading in modern critical editions. It is also that underlying the Vulgate’s ‘regnum’. The Latin in Migne does not include the word.
+<span id="_ftn5">\[5\]</span> Apocalypse 1:5-6. St Theodore is probably quoting from memory The word ‘heaven’ is not in the text of the Apocalypse. The standard Byzantine text has ‘kings’, rather than ‘kingdom’, which is the accepted reading in modern critical editions. It is also that underlying the Vulgate’s ‘regnum’. The Latin in Migne does not include the word.
 
-<a href="#_ftnref6" id="_ftn6">[6]</a> Cf. Romans 11:33.
+<span id="_ftn6">\[6\]</span> Cf. Romans 11:33.
 
-<a href="#_ftnref7" id="_ftn7">[7]</a> Titus 3:6.
+<span id="_ftn7">\[7\]</span> Titus 3:6.
 
-<a href="#_ftnref8" id="_ftn8">[8]</a> Romans 6:2-4.
+<span id="_ftn8">\[8\]</span> Romans 6:2-4.
 
-<a href="#_ftnref9" id="_ftn9">[9]</a> Ephesians 5:3.
+<span id="_ftn9">\[9\]</span> Ephesians 5:3.
 
-<a href="#_ftnref10" id="_ftn10">[10]</a> 1 Peter 1:14. St Theodore replaces ‘desires’ by ‘deceits’.
+<span id="_ftn10">\[10\]</span> 1 Peter 1:14. St Theodore replaces ‘desires’ by ‘deceits’.
 
-<a href="#_ftnref11" id="_ftn11">[11]</a> 1 John 2:16. The Greek *bios* is not easy to translate here. Some translators go so far as to put ‘riches’. Perhaps ‘style of life’, ‘standard of living’.
+<span id="_ftn11">\[11\]</span> 1 John 2:16. The Greek *bios* is not easy to translate here. Some translators go so far as to put ‘riches’. Perhaps ‘style of life’, ‘standard of living’.
 
-<a href="#_ftnref12" id="_ftn12">[12]</a> Philippians 4;3.
+<span id="_ftn12">\[12\]</span> Philippians 4;3.
 
-<a href="#_ftnref13" id="_ftn13">[13]</a> Philippians 2:15-16.
+<span id="_ftn13">\[13\]</span> Philippians 2:15-16.
 
  
 

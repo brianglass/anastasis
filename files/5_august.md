@@ -405,39 +405,39 @@ color:red">And Dismissal.</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Psalm 35:10. Some editions of the Menaion have a subjunctive, ‘let us/may we see’. The Psalter has the indicative. The subjunctive in the third sticheron suggests that the original text may have had a subjunctive here also. </span>
+<span id="_ftn1">\[1\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Psalm 35:10. Some editions of the Menaion have a subjunctive, ‘let us/may we see’. The Psalter has the indicative. The subjunctive in the third sticheron suggests that the original text may have had a subjunctive here also. </span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:12.</span>
+<span id="_ftn2">\[2\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:12.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:13.</span>
+<span id="_ftn3">\[3\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:13.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 118:35.</span>
+<span id="_ftn4">\[4\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 118:35.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Exodus 33:11.</span>
+<span id="_ftn5">\[5\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Exodus 33:11.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-family:&quot;Book Antiqua&quot;"> Phil. 2:7.</span>
+<span id="_ftn6">\[6\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Phil. 2:7.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-family:&quot;Book Antiqua&quot;"> Luke 1:79.</span>
+<span id="_ftn7">\[7\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Luke 1:79.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-family:&quot;Book Antiqua&quot;"> Jos. 10:12-13.</span>
+<span id="_ftn8">\[8\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Jos. 10:12-13.</span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-family:&quot;Book Antiqua&quot;"> In the Gospel this comparison is used of the Angels at the resurrection, Matthew 28:3, not of the Transfiguration.</span>
+<span id="_ftn9">\[9\]</span><span style="font-family:&quot;Book Antiqua&quot;"> In the Gospel this comparison is used of the Angels at the resurrection, Matthew 28:3, not of the Transfiguration.</span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 103:2.</span>
+<span id="_ftn10">\[10\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 103:2.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-family:&quot;Book Antiqua&quot;"> Moses died before entering the Promised Land; Elias was taken up alive into heaven on a fiery chariot.</span>
+<span id="_ftn11">\[11\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Moses died before entering the Promised Land; Elias was taken up alive into heaven on a fiery chariot.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span style="font-family:&quot;Book Antiqua&quot;"> An allusion to the tradition that fire appeared in the Jordan at the moment of Christ’s baptism.</span>
+<span id="_ftn12">\[12\]</span><span style="font-family:&quot;Book Antiqua&quot;"> An allusion to the tradition that fire appeared in the Jordan at the moment of Christ’s baptism.</span>
 
-<a href="#_ftnref13" id="_ftn13">[13]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. 1 Timothy 6:16.</span>
+<span id="_ftn13">\[13\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Cf. 1 Timothy 6:16.</span>
 
-<a href="#_ftnref14" id="_ftn14">[14]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:7-8</span>
+<span id="_ftn14">\[14\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:7-8</span>
 
-<a href="#_ftnref15" id="_ftn15">[15]</a><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Hebrews 1:3.</span>
+<span id="_ftn15">\[15\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Cf. Hebrews 1:3.</span>
 
-<a href="#_ftnref16" id="_ftn16">[16]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 84:11.</span>
+<span id="_ftn16">\[16\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 84:11.</span>
 
-<a href="#_ftnref17" id="_ftn17">[17]</a><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:16.</span>
+<span id="_ftn17">\[17\]</span><span style="font-family:&quot;Book Antiqua&quot;"> Psalm 88:16.</span>
 
  
 

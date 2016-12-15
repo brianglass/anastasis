@@ -335,13 +335,13 @@ The Son of the Father without beginning.**</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This acrostic allows for a second ode, which is no longer used.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This acrostic allows for a second ode, which is no longer used.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios, which was dedicated to St John the Baptist, and of which St Joseph was a monk.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios, which was dedicated to St John the Baptist, and of which St Joseph was a monk.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios.<span style="mso-spacerun: yes"> </span></span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The monastery of Studios.<span style="mso-spacerun: yes"> </span></span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 64:5</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 64:5</span>
 
  
 

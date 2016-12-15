@@ -229,13 +229,13 @@ mso-bidi-font-weight:bold">\[<span style="color:red;mso-bidi-font-style:italic">
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The text in the Menaion for the 1st of September gives the reference simply as *26:3-10 and selection*. The reading</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:Odyssea"> </span>*<span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">epavleis</span>*<span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">, ‘farmsteads’, for the LXX *poleis*, ‘cities’, in the last verse is interesting. It is the word used at 25:31 for ‘villages’ that are described as ‘unwalled’.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The text in the Menaion for the 1st of September gives the reference simply as *26:3-10 and selection*. The reading</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:Odyssea"> </span>*<span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">epavleis</span>*<span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">, ‘farmsteads’, for the LXX *poleis*, ‘cities’, in the last verse is interesting. It is the word used at 25:31 for ‘villages’ that are described as ‘unwalled’.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The LXX differs noticeably from the Hebrew here. The Greek could also mean ‘inherit a little of your holy mountain’, but in the Hebrew the word for ‘little’ here refers to time. The Sinaiticus, however adds ‘something’ to ‘little’, which suggests that the scribe understood the phrase as ‘a little of’.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The LXX differs noticeably from the Hebrew here. The Greek could also mean ‘inherit a little of your holy mountain’, but in the Hebrew the word for ‘little’ here refers to time. The Sinaiticus, however adds ‘something’ to ‘little’, which suggests that the scribe understood the phrase as ‘a little of’.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The three alternative readings that follow are those given in the modern Greek office by the late Fr Gerasimos.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The three alternative readings that follow are those given in the modern Greek office by the late Fr Gerasimos.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> For the problems concerning these readings see the Introduction.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> For the problems concerning these readings see the Introduction.</span>
 
  
 

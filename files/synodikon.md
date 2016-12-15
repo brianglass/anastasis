@@ -360,33 +360,33 @@ mso-bidi-font-style:italic">he Holy Trinity has glorified them. </span><span sty
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Isaias 41:1.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Isaias 41:1.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Romans 6:4.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Romans 6:4.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> 2 Corinthians 5:17.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> 2 Corinthians 5:17.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> John 10:22.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> John 10:22.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 73:17-18.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 73:17-18.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 88:51-52.</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 88:51-52.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 88:52.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 88:52.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 76:14-15.</span>
+<span id="_ftn8">\[8\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 76:14-15.</span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 4:15.</span>
+<span id="_ftn9">\[9\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 4:15.</span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> 1 John 1:1.</span>
+<span id="_ftn10">\[10\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> 1 John 1:1.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Acts 10:41.</span>
+<span id="_ftn11">\[11\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Acts 10:41.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Hebrews 2:14.</span>
+<span id="_ftn12">\[12\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Hebrews 2:14.</span>
 
-<a href="#_ftnref13" id="_ftn13">[13]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> John 5:46.</span>
+<span id="_ftn13">\[13\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> John 5:46.</span>
 
-<a href="#_ftnref14" id="_ftn14">[14]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Deuteronomy 18:15; cf. Acts 3:22.</span>
+<span id="_ftn14">\[14\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Deuteronomy 18:15; cf. Acts 3:22.</span>
 
  
 

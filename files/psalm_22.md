@@ -34,11 +34,11 @@ mso-bidi-font-size:12.0pt;color:blue">And your mercy will pursue me all my days<
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek ***ek prosopou***. The word ***prosopon*** means the mask worn by an actor. Another translation, then, might be ‘in the character of’.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek ***ek prosopou***. The word ***prosopon*** means the mask worn by an actor. Another translation, then, might be ‘in the character of’.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 109:2.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 109:2.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Jeremias 31:17.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Jeremias 31:17.</span>
 
  
 

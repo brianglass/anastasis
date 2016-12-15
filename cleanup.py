@@ -52,6 +52,10 @@ def transform(filename):
     for node in tree.xpath('//span[@class="MsoFootnoteReference"]'):
         node.drop_tag()
 
+    for node in tree.xpath('//p[@class="MsoFootnoteText"]/a[@href]'):
+        etree.strip_attributes(node, 'href', 'style', 'title')
+        print(etree.tostring(node))
+
     return etree.tostring(tree, pretty_print=True, method='html', encoding='unicode')
 
 def convert_html_file(filepath):

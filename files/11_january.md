@@ -63,16 +63,16 @@ As you were baptized in the Jordan, Lord, the worship of the Trinity was made ma
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This Doxastikon is based on the Psalm 45:5, ‘The torrents of the river rejoice the city of God; the Most High has sanctified his tabernacle’. The river is identified with Christ, or with the Holy Spirit, in a number of passages from the Fathers. Euthymios Zigavenos comments, ‘The river is Christ, because of the sweet streams of his teachings that water and rejoice the souls of Christians and bring to produce the fruits of virtue. For the Lord says, through Isaias, ‘See, I turn towards them as a river of peace’ \[66:12\]’. The torrents are also identified with the Apostles.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This Doxastikon is based on the Psalm 45:5, ‘The torrents of the river rejoice the city of God; the Most High has sanctified his tabernacle’. The river is identified with Christ, or with the Holy Spirit, in a number of passages from the Fathers. Euthymios Zigavenos comments, ‘The river is Christ, because of the sweet streams of his teachings that water and rejoice the souls of Christians and bring to produce the fruits of virtue. For the Lord says, through Isaias, ‘See, I turn towards them as a river of peace’ \[66:12\]’. The torrents are also identified with the Apostles.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;
+<span id="_ftn2">\[2\]</span><span style="font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Psalm 73:13.</span><span style="font-family:&quot;Book Antiqua&quot;"></span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The three prosomia in Tone 4 look like part of an acrostic poem by Joseph the Hymnographer and are part of dialogue between Christ and St John the Baptist. I have included the Greek initial letters to indicate this. There is a similar problem in the Aposticha of Lauds on the 4th and 5th of January, where a poem of Joseph has been dismembered and rearranged.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The three prosomia in Tone 4 look like part of an acrostic poem by Joseph the Hymnographer and are part of dialogue between Christ and St John the Baptist. I have included the Greek initial letters to indicate this. There is a similar problem in the Aposticha of Lauds on the 4th and 5th of January, where a poem of Joseph has been dismembered and rearranged.</span>
 
 <a href="#_ftnref4" id="_ftn4">[4]</a> <span style="mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">Psalm 113:3.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 113:5</span><span style="font-family:&quot;Book Antiqua&quot;">.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Psalm 113:5</span><span style="font-family:&quot;Book Antiqua&quot;">.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
  
 

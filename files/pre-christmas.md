@@ -280,26 +280,26 @@ color:red;mso-bidi-font-style:italic">Verse: </span><span style="font-size:
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the well-known Irmos in Tone 5, which is used at weddings and ordinations, though why dancing should be considered appropriate to Isaias is not clear.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the well-known Irmos in Tone 5, which is used at weddings and ordinations, though why dancing should be considered appropriate to Isaias is not clear.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Exodus 3:2-3.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Exodus 3:2-3.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea that the places connected with the Nativity–Eden, Bethlehem, the Cave, the Manger–must prepare is a constant theme in the pre-Christmas texts.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The idea that the places connected with the Nativity–Eden, Bethlehem, the Cave, the Manger–must prepare is a constant theme in the pre-Christmas texts.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"><span style="mso-spacerun:
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"><span style="mso-spacerun:
 yes">  </span>Cf. Genesis 3:23-24. Christmas reverses the results of the Fall.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Note how the liturgical texts combine the two accounts of the Nativity.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Note how the liturgical texts combine the two accounts of the Nativity.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the *Protoevangelium of James<span style="mso-spacerun: yes">  </span>*8:2-9:3.</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. the *Protoevangelium of James<span style="mso-spacerun: yes">  </span>*8:2-9:3.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 1:20-22.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 1:20-22.</span>
 
 <a href="#_ftnref8" id="_ftn8">[8]</a> The Greek says, literally, ‘the Metropolis of God’. St Gregory the Divine, in his sermon *On the Death of his Father,* 17, calls Bethlehem ‘the metropolis of the inhabited world, as the nurse and mother of Christ, who created and conquered the world’–<span lang="EL" style="font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EL"> τῆς οἰκουμένης μητρόπολιν, ὡς Χριστοῦ καὶ τροφὸν καὶ μητέρα, τοῦ τὸν κόσμον καὶ ποιήσαντος καὶ νικήσαντος.</span><span lang="EL" style="font-family:&quot;GR Times New Roman&quot;"> </span><span style="mso-bidi-font-family:
 &quot;GR Times New Roman&quot;">This could perhaps be the source for the hymn writer’s bold image.</span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek word </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">ÁdutoV </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">usually means<span style="mso-spacerun: yes">  </span>‘inaccessible’, and as a neuter noun the ‘inner shrine’ of a temple. It also, though less frequently, means ‘unsetting’. When coupled with ‘light’ it can, therefore means either ‘inaccessible’ or ‘unsetting’. The former meaning is suggested by the expression ‘inaccessible light’–</span><span style="font-size:12.0pt;
+<span id="_ftn9">\[9\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek word </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">ÁdutoV </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">usually means<span style="mso-spacerun: yes">  </span>‘inaccessible’, and as a neuter noun the ‘inner shrine’ of a temple. It also, though less frequently, means ‘unsetting’. When coupled with ‘light’ it can, therefore means either ‘inaccessible’ or ‘unsetting’. The former meaning is suggested by the expression ‘inaccessible light’–</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">fwV Âprósiton</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">–in 1 Timothy 6:16. Origen, however describes Christ as </span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL">ὁ νοητὸς ἥλιος τὸ φῶς τὸ ἄδυτον καὶ ἀνέσπερον</span><span style="font-size:
@@ -308,90 +308,90 @@ mso-ansi-language:EL">ἐξ ἧς ὁ τῆς δικαιοσύνης ἥλιο�
 mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">–‘from who dawned the Sun of righteousness, who created for humans a day of salvation that never sets’. The meaning ‘inaccessible’ is scarcely appropriate here.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"><span style="mso-spacerun:
 yes">  </span></span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:8.</span>
+<span id="_ftn10">\[10\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:8.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This text is used elsewhere, for example on 17 December.</span>
+<span id="_ftn11">\[11\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This text is used elsewhere, for example on 17 December.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The accounts of the Nativity in the Gospels make no mention of a cave. This comes from the *Protoevangelium* of James, 18:1.</span>
+<span id="_ftn12">\[12\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The accounts of the Nativity in the Gospels make no mention of a cave. This comes from the *Protoevangelium* of James, 18:1.</span>
 
-<a href="#_ftnref13" id="_ftn13">[13]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This epithet of the Mother of God is rare in the Fathers. It is used by Theodore the Studite in his homily on the Nativity of the Mother of God–</span><span lang="EL" style="font-size:
+<span id="_ftn13">\[13\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This epithet of the Mother of God is rare in the Fathers. It is used by Theodore the Studite in his homily on the Nativity of the Mother of God–</span><span lang="EL" style="font-size:
 12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL"> Χαῖρε, ἀμνὰς,</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;GR Times New Roman&quot;">…</span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL"> ᾿Εξ ἧς ὁ ἀμνὸς τοῦ Θεοῦ, ὁ αἴρων τὴν ἁμαρτίαν τοῦ κόσμου, ἐπεδήμησε.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"></span>
 
-<a href="#_ftnref14" id="_ftn14">[14]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek there is a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:
+<span id="_ftn14">\[14\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek there is a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:
 &quot;Symbol Accentuated&quot;">LógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt">–‘Word’, and </span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Symbol Accentuated&quot;">ÁlogoV</span><span style="font-size:
 12.0pt;mso-bidi-font-size:10.0pt">–‘irrational’.</span>
 
-<a href="#_ftnref15" id="_ftn15">[15]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Romanos *Kontakion 1,*<span style="mso-bidi-font-style:
+<span id="_ftn15">\[15\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Romanos *Kontakion 1,*<span style="mso-bidi-font-style:
 italic"> Stanzas 6 & 2.</span></span>
 
-<a href="#_ftnref16" id="_ftn16">[16]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 1:17.</span>
+<span id="_ftn16">\[16\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 1:17.</span>
 
-<a href="#_ftnref17" id="_ftn17">[17]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Philippians 2:7.</span>
+<span id="_ftn17">\[17\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Philippians 2:7.</span>
 
-<a href="#_ftnref18" id="_ftn18">[18]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word used by St Gregory the Divine and John of Damascus, among others, with reference to Christ’s human nature. St John speaks of ‘deifying the addition’–</span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
+<span id="_ftn18">\[18\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word used by St Gregory the Divine and John of Damascus, among others, with reference to Christ’s human nature. St John speaks of ‘deifying the addition’–</span><span lang="EL" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EL"> ποιητῇ τοῦ παντὸς θεοῦντι τὸ πρόσλημμα</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">–‘the Maker of all deifying the addition’.</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
-<a href="#_ftnref19" id="_ftn19">[19]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> These phrases recall the fourth Sticheron for Vespers of the Nativity.</span>
+<span id="_ftn19">\[19\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> These phrases recall the fourth Sticheron for Vespers of the Nativity.</span>
 
-<a href="#_ftnref20" id="_ftn20">[20]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Note by Bartholomew, ‘*Elsewhere* in a manger wrapped in swaddling clothes’.</span>
+<span id="_ftn20">\[20\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Note by Bartholomew, ‘*Elsewhere* in a manger wrapped in swaddling clothes’.</span>
 
-<a href="#_ftnref21" id="_ftn21">[21]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 3 Reigns 8:27.</span>
+<span id="_ftn21">\[21\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 3 Reigns 8:27.</span>
 
-<a href="#_ftnref22" id="_ftn22">[22]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Deification is a central idea in Orthodox theology. In his homily *On Theophany*, 13 St Gregory the Divine puts it succinctly, </span><span lang="EL" style="font-size:12.0pt;
+<span id="_ftn22">\[22\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Deification is a central idea in Orthodox theology. In his homily *On Theophany*, 13 St Gregory the Divine puts it succinctly, </span><span lang="EL" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL">προελθὼν δὲ Θεὸς μετὰ τῆς προσλήψεως, ἓν ἐκ δύο τῶν ἐναντίων, σαρκὸς καὶ Πνεύματος· ὧν, τὸ μὲν ἐθέωσε, τὸ δὲ ἐθεώθη</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">-</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">‘coming forth as God with the addition, one from two opposites, flesh and Spirit. The latter deified, the former was deified’.</span>
 
-<a href="#_ftnref23" id="_ftn23">[23]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Genesis 3:1-7.</span>
+<span id="_ftn23">\[23\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Genesis 3:1-7.</span>
 
-<a href="#_ftnref24" id="_ftn24">[24]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:1.</span>
+<span id="_ftn24">\[24\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:1.</span>
 
-<a href="#_ftnref25" id="_ftn25">[25]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Deuteronomy 32:1.</span>
+<span id="_ftn25">\[25\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Deuteronomy 32:1.</span>
 
-<a href="#_ftnref26" id="_ftn26">[26]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:14.</span>
+<span id="_ftn26">\[26\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:14.</span>
 
-<a href="#_ftnref27" id="_ftn27">[27]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 3:14.</span>
+<span id="_ftn27">\[27\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 3:14.</span>
 
-<a href="#_ftnref28" id="_ftn28">[28]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 2:6.</span>
+<span id="_ftn28">\[28\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 2:6.</span>
 
-<a href="#_ftnref29" id="_ftn29">[29]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The opening is clearly an imitation of the Irmos.</span>
+<span id="_ftn29">\[29\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The opening is clearly an imitation of the Irmos.</span>
 
-<a href="#_ftnref30" id="_ftn30">[30]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 49:3.</span>
+<span id="_ftn30">\[30\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 49:3.</span>
 
-<a href="#_ftnref31" id="_ftn31">[31]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 55:12, Psalm 113:4.</span>
+<span id="_ftn31">\[31\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 55:12, Psalm 113:4.</span>
 
-<a href="#_ftnref32" id="_ftn32">[32]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 15:1.</span>
+<span id="_ftn32">\[32\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 15:1.</span>
 
-<a href="#_ftnref33" id="_ftn33">[33]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Hebrews 1:2.</span>
+<span id="_ftn33">\[33\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Hebrews 1:2.</span>
 
-<a href="#_ftnref34" id="_ftn34">[34]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 9:5.</span>
+<span id="_ftn34">\[34\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 9:5.</span>
 
-<a href="#_ftnref35" id="_ftn35">[35]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 1 Reigns 2:1.</span>
+<span id="_ftn35">\[35\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. 1 Reigns 2:1.</span>
 
-<a href="#_ftnref36" id="_ftn36">[36]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 11;1.</span>
+<span id="_ftn36">\[36\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Isaias 11;1.</span>
 
-<a href="#_ftnref37" id="_ftn37">[37]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">Âlógwn</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">, with a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:Symbol">L</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">ógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
+<span id="_ftn37">\[37\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">Âlógwn</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">, with a play on </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:Symbol">L</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">ógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
 
-<a href="#_ftnref38" id="_ftn38">[38]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Avvakoum 1:3.</span>
+<span id="_ftn38">\[38\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Avvakoum 1:3.</span>
 
-<a href="#_ftnref39" id="_ftn39">[39]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 1:11.</span>
+<span id="_ftn39">\[39\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 1:11.</span>
 
-<a href="#_ftnref40" id="_ftn40">[40]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 19:1.</span>
+<span id="_ftn40">\[40\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 19:1.</span>
 
-<a href="#_ftnref41" id="_ftn41">[41]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Michaias 5:1. </span>
+<span id="_ftn41">\[41\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Michaias 5:1. </span>
 
-<a href="#_ftnref42" id="_ftn42">[42]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Numbers 13:23. The cluster of grapes cut by Caleb in Canaan and carried on a wooden pole is frequently used as a type of Christ crucified. Hence the vine, from which the cluster was cut, is also used frequently as a type of the Mother of God.</span>
+<span id="_ftn42">\[42\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Numbers 13:23. The cluster of grapes cut by Caleb in Canaan and carried on a wooden pole is frequently used as a type of Christ crucified. Hence the vine, from which the cluster was cut, is also used frequently as a type of the Mother of God.</span>
 
-<a href="#_ftnref43" id="_ftn43">[43]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 3:26.</span>
+<span id="_ftn43">\[43\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 3:26.</span>
 
-<a href="#_ftnref44" id="_ftn44">[44]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Christ is often called ‘Myrrh’ in the liturgical texts. St John of Damascus calls Christ ‘the myrrh poured out for our renewal’–</span><span lang="EN-US" style="font-size:12.0pt;
+<span id="_ftn44">\[44\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Christ is often called ‘Myrrh’ in the liturgical texts. St John of Damascus calls Christ ‘the myrrh poured out for our renewal’–</span><span lang="EN-US" style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EN-US"> Χριστὸν τὸ κενωθὲν μύρον εἰς ἡμῶν ἀνακαίνισιν</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">, *Homily on Holy Saturday* \[PG 96:636\]. Hence the Mother of God can be called </span><span lang="EN-US" style="font-size:12.0pt;
@@ -400,61 +400,61 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;;mso-bidi-fo
 mso-ansi-language:EN-US">.</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt"></span>
 
-<a href="#_ftnref45" id="_ftn45">[45]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 6:6-7. The typology of Christ as the burning coal of Isaias’ vision is applied to the Eucharist. Hence the use of the word </span><span style="font-size:12.0pt;
+<span id="_ftn45">\[45\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 6:6-7. The typology of Christ as the burning coal of Isaias’ vision is applied to the Eucharist. Hence the use of the word </span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">labíV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">,<span style="mso-spacerun:
 yes">  </span>‘tong’, for the spoon with which Communion is given to the people. Here the tong is used a type of the Mother of God.</span>
 
-<a href="#_ftnref46" id="_ftn46">[46]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Daniel 3:74.</span>
+<span id="_ftn46">\[46\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Daniel 3:74.</span>
 
-<a href="#_ftnref47" id="_ftn47">[47]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:1-3.</span>
+<span id="_ftn47">\[47\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:1-3.</span>
 
-<a href="#_ftnref48" id="_ftn48">[48]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> 1 Corinthians 2:8. </span>
+<span id="_ftn48">\[48\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> 1 Corinthians 2:8. </span>
 
-<a href="#_ftnref49" id="_ftn49">[49]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:7.</span>
+<span id="_ftn49">\[49\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:7.</span>
 
-<a href="#_ftnref50" id="_ftn50">[50]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word ‘irrational’–in Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
+<span id="_ftn50">\[50\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word ‘irrational’–in Greek </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
 font-family:&quot;Symbol Accentuated&quot;">ÁlogoV</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt">–is a play on </span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt;font-family:&quot;Symbol Accentuated&quot;">LógoV.</span>
 
-<a href="#_ftnref51" id="_ftn51">[51]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 9:27. Note that the phrase ‘consummation of the time’ only occurs in Theodotion’s version of Daniel, which is that used by the Orthodox Church,<span style="mso-spacerun:
+<span id="_ftn51">\[51\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Daniel 9:27. Note that the phrase ‘consummation of the time’ only occurs in Theodotion’s version of Daniel, which is that used by the Orthodox Church,<span style="mso-spacerun:
 yes">  </span>but in neither the Septuagint nor the Hebrew.<span style="mso-spacerun: yes">  </span></span>
 
-<a href="#_ftnref52" id="_ftn52">[52]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This is almost a quotation from the Chalcedonian Definition, </span><span lang="EN-US" style="font-size:
+<span id="_ftn52">\[52\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This is almost a quotation from the Chalcedonian Definition, </span><span lang="EN-US" style="font-size:
 12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EN-US">τέλειος ὢν ἐν θεότητι καὶ τέλειος ὁ αὐτὸς ἐν ἀνθρωπότητι</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-bidi-font-family:
 &quot;GR Times New Roman&quot;;mso-ansi-language:EN-US">, ‘being perfect in his divinity and the same perfect in his humanity’.</span><span style="font-size:12.0pt;
 mso-bidi-font-size:10.0pt"></span>
 
-<a href="#_ftnref53" id="_ftn53">[53]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> One of a number of examples in the liturgical texts of the Trinitarian understanding of the Trisagion in the Byzantine Orthodox tradition. This excludes, for the Orthodox at least , translations which add ‘and’ in the second and third clauses, which by so doing make the whole hymn refer to ‘God’, that is, to the Father.</span>
+<span id="_ftn53">\[53\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> One of a number of examples in the liturgical texts of the Trinitarian understanding of the Trisagion in the Byzantine Orthodox tradition. This excludes, for the Orthodox at least , translations which add ‘and’ in the second and third clauses, which by so doing make the whole hymn refer to ‘God’, that is, to the Father.</span>
 
-<a href="#_ftnref54" id="_ftn54">[54]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron is also used at the Liti on the Sunday before Christmas, where no author is given.</span>
+<span id="_ftn54">\[54\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron is also used at the Liti on the Sunday before Christmas, where no author is given.</span>
 
-<a href="#_ftnref55" id="_ftn55">[55]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Deuteronomy 32:1.</span>
+<span id="_ftn55">\[55\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Deuteronomy 32:1.</span>
 
-<a href="#_ftnref56" id="_ftn56">[56]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:14.</span>
+<span id="_ftn56">\[56\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:14.</span>
 
-<a href="#_ftnref57" id="_ftn57">[57]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 3:14.</span>
+<span id="_ftn57">\[57\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 3:14.</span>
 
-<a href="#_ftnref58" id="_ftn58">[58]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> No author is given on the earlier occasion.</span>
+<span id="_ftn58">\[58\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> No author is given on the earlier occasion.</span>
 
-<a href="#_ftnref59" id="_ftn59">[59]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Genesis 2:9.</span>
+<span id="_ftn59">\[59\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Genesis 2:9.</span>
 
-<a href="#_ftnref60" id="_ftn60">[60]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Genesis 1:26.-27.</span>
+<span id="_ftn60">\[60\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Genesis 1:26.-27.</span>
 
-<a href="#_ftnref61" id="_ftn61">[61]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The days from 20-24 December are assimilated the first four days of Holy Week, hence the acrostics for the Triodes of the canons at Compline. In Holy Week the canons at Matins on the first three days are Triode, but this in not the case in December, and therefore the Triodes are included in Compline on the 20-22 of December. In Holy Week Great Thursday has a full canon, and so, on 23 December, the canon for Thursday is sung at Matins, as the acrostic makes clear. Bartholomew of Koutloumousiou has the following note on this canon, ‘In the manuscript at Koutloumousiou this Triode has the ascription, *Composition by Symeon Metphrastes*. The prosomia on the Wednesday before the Great Canon are also ascribed to him, according to the Typikon for the Annunciation, no. 6. But since Allatius (Prologue at the beginning of September, para. 8) does not include the Metaphrastes in the list of hymn writers, but says simply *Monk Symeon*, it seems that the present composition, and so the following Triodes as well, are by this Symeon, and not Symeon Metaphrastes’. He adds a further note, ‘In the 1843 Constantinople edition of the Menaia these Triodes are ascribed, *Composition of Symeon, the Logothete, the Metaphrastes.*</span>
+<span id="_ftn61">\[61\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The days from 20-24 December are assimilated the first four days of Holy Week, hence the acrostics for the Triodes of the canons at Compline. In Holy Week the canons at Matins on the first three days are Triode, but this in not the case in December, and therefore the Triodes are included in Compline on the 20-22 of December. In Holy Week Great Thursday has a full canon, and so, on 23 December, the canon for Thursday is sung at Matins, as the acrostic makes clear. Bartholomew of Koutloumousiou has the following note on this canon, ‘In the manuscript at Koutloumousiou this Triode has the ascription, *Composition by Symeon Metphrastes*. The prosomia on the Wednesday before the Great Canon are also ascribed to him, according to the Typikon for the Annunciation, no. 6. But since Allatius (Prologue at the beginning of September, para. 8) does not include the Metaphrastes in the list of hymn writers, but says simply *Monk Symeon*, it seems that the present composition, and so the following Triodes as well, are by this Symeon, and not Symeon Metaphrastes’. He adds a further note, ‘In the 1843 Constantinople edition of the Menaia these Triodes are ascribed, *Composition of Symeon, the Logothete, the Metaphrastes.*</span>
 
-<a href="#_ftnref62" id="_ftn62">[62]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Philippians 2:6-7.</span>
+<span id="_ftn62">\[62\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Philippians 2:6-7.</span>
 
-<a href="#_ftnref63" id="_ftn63">[63]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 15:14, where the word is ‘friends’, rather than ‘kinsmen’.</span>
+<span id="_ftn63">\[63\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 15:14, where the word is ‘friends’, rather than ‘kinsmen’.</span>
 
-<a href="#_ftnref64" id="_ftn64">[64]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 14:27.</span>
+<span id="_ftn64">\[64\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 14:27.</span>
 
-<a href="#_ftnref65" id="_ftn65">[65]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 1:34.</span>
+<span id="_ftn65">\[65\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 1:34.</span>
 
-<a href="#_ftnref66" id="_ftn66">[66]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 1:46-48.</span>
+<span id="_ftn66">\[66\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 1:46-48.</span>
 
-<a href="#_ftnref67" id="_ftn67">[67]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Romans 12:16.</span>
+<span id="_ftn67">\[67\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Romans 12:16.</span>
 
  
 

@@ -298,9 +298,9 @@ mso-bidi-font-size:12.0pt"> \[<span style="color:red;mso-bidi-font-style:italic"
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-family:&quot;Book Antiqua&quot;"> This reading in the Menaion has been shortened in various places, notably in the account of the sacrifice and Elias’s vision at Horeb. </span>
+<span id="_ftn1">\[1\]</span><span style="font-family:&quot;Book Antiqua&quot;"> This reading in the Menaion has been shortened in various places, notably in the account of the sacrifice and Elias’s vision at Horeb. </span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> The LXX has here either </span><span lang="EL">*<span style="font-family: Book Antiqua; mso-ansi-language: EL">appho</span>*</span><span style="font-family:&quot;Book Antiqua&quot;"> or </span><span lang="EL">*<span style="font-family: Book Antiqua; mso-ansi-language: EL">aphpho</span>*</span><span style="font-family:&quot;Book Antiqua&quot;">, both of which are odd being simply near transliterations of the Hebrew, which means something like ‘Yea, he’, ‘Even he’. St Jerome has ‘nunc etiam’, which makes sense, but is somewhat free.</span>
+<span id="_ftn2">\[2\]</span><span style="font-family:&quot;Book Antiqua&quot;"> The LXX has here either </span><span lang="EL">*<span style="font-family: Book Antiqua; mso-ansi-language: EL">appho</span>*</span><span style="font-family:&quot;Book Antiqua&quot;"> or </span><span lang="EL">*<span style="font-family: Book Antiqua; mso-ansi-language: EL">aphpho</span>*</span><span style="font-family:&quot;Book Antiqua&quot;">, both of which are odd being simply near transliterations of the Hebrew, which means something like ‘Yea, he’, ‘Even he’. St Jerome has ‘nunc etiam’, which makes sense, but is somewhat free.</span>
 
  
 

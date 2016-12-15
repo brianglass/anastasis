@@ -419,7 +419,7 @@ yes">  </span>so-called *Acts of Pilate*, also known as the *Gospel of Nicodemu
 
 <a href="#_ftnref30" id="_ftn30">[30]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 15:13, 22.</span>
 
-<a href="#_ftnref31" id="_ftn31">[31]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word hardly found at all<span style="mso-spacerun: yes">  </span>in classical Greek, but frequent in the Fathers. It occurs some dozen times in the Old Testament, while in the New, apart from Luke 12:23,<span style="mso-spacerun: yes">  </span>it is only found in St Matthew’s Gospel, seven times. He uses it for St john the Baptist’s ‘clothing of camel’s hair’ and for the ‘wedding garment’ in the parable of the royal marriage feast.</span>
+<span id="_ftn31">\[31\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> A word hardly found at all<span style="mso-spacerun: yes">  </span>in classical Greek, but frequent in the Fathers. It occurs some dozen times in the Old Testament, while in the New, apart from Luke 12:23,<span style="mso-spacerun: yes">  </span>it is only found in St Matthew’s Gospel, seven times. He uses it for St john the Baptist’s ‘clothing of camel’s hair’ and for the ‘wedding garment’ in the parable of the royal marriage feast.</span>
 
 <a href="#_ftnref32" id="_ftn32">[32]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> As Faustus says in Marlowe’s play, one drop, even half<span style="mso-spacerun: yes">  </span>a drop of Christ’s blood could save him. St Romanos has a similar passage in the final strophe of his Kontakion on All Martyrs: </span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">μικρὸν σταγόνα ἐκ τοῦ πνεύματος ὥσπερ ὄμβρον κατάπεμψον, δέομαι, </span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:
@@ -445,7 +445,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
 <a href="#_ftnref37" id="_ftn37">[37]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Luke 18:9-14.</span>
 
-<a href="#_ftnref38" id="_ftn38">[38]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word translated ‘beacons’ only occurs in the Old Testament at Genesis 1:14, where it refers to the sun and moon, and at Daniel 12: 3, where it is of the heavenly bodies in general as a simile of ‘those with understanding’. It is the latter passage that the poet has in mind. The Martyrs are like the ‘fixed stars’, not the wandering planets. Our Lord, echoing Daniel, compares the just to the sun at Matthew 13:43. There is a play in Greek on ÂplaneîV, ‘unwandering’, ‘fixed’ and plánh in the next phrase, meaning ‘wandering’, and hence ‘error’. </span>
+<span id="_ftn38">\[38\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word translated ‘beacons’ only occurs in the Old Testament at Genesis 1:14, where it refers to the sun and moon, and at Daniel 12: 3, where it is of the heavenly bodies in general as a simile of ‘those with understanding’. It is the latter passage that the poet has in mind. The Martyrs are like the ‘fixed stars’, not the wandering planets. Our Lord, echoing Daniel, compares the just to the sun at Matthew 13:43. There is a play in Greek on ÂplaneîV, ‘unwandering’, ‘fixed’ and plánh in the next phrase, meaning ‘wandering’, and hence ‘error’. </span>
 
 <a href="#_ftnref39" id="_ftn39">[39]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The image changes to that of sacred processions, lighted by torches.</span>
 
@@ -473,7 +473,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
 <a href="#_ftnref51" id="_ftn51">[51]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This troparion plays on the word lógoV, ‘word’. In Greek ‘rational’ and ‘irrational’ are logikóV and ÁlogoV and ‘word’ is </span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">lógoV</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">.</span>
 
-<a href="#_ftnref52" id="_ftn52">[52]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 14:2.</span>
+<span id="_ftn52">\[52\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 14:2.</span>
 
 <a href="#_ftnref53" id="_ftn53">[53]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Isaias 57:15, ‘\[t\]he Lord Most High, resting in the holies’. The Greek is probably neuter and means ‘in the holy place’ (cf. Psalm 133:2), but it could also be masculine and mean ‘among the saints’. The poet here deliberately plays on this ambiguity.</span>
 
@@ -515,7 +515,7 @@ mso-bidi-font-size:10.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">�
 
 <a href="#_ftnref72" id="_ftn72">[72]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Ezekiel 1.</span>
 
-<a href="#_ftnref73" id="_ftn73">[73]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 20:1-16.</span>
+<span id="_ftn73">\[73\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matthew 20:1-16.</span>
 
 <a href="#_ftnref74" id="_ftn74">[74]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exodus 3:1-6.</span>
 

@@ -70,7 +70,7 @@ You are temple and gate, palace and throne of the King, all-honoured Virgin. Thr
 
 <a href="#_ftnref6" id="_ftn6">[6]</a> The translation of the last two clauses is a problem. The first is a quotation from the parable, which is almost always translated ‘God, be merciful to me a sinner’; the second is the extremely common prayer ‘Have mercy on me’, *eleison me.* The prayer in the Gospel could equally well be rendered ‘Be gracious to me’, or ‘forgive me’. The familiar prayer to the Holy Trinity, ‘All-holy Trinity, have mercy on us. Lord, wipe away our sins’ is not from this passage, but from Psalm 78:9, where the Septuagint is translating the Hebrew *kipper*, which probably means ‘wipe away’, though some scholars believe it means ‘cover’. The former meaning explains the Slavonic translation. The Greek verb is extremely rare in the Bible, occurring about a dozen times in the Old and only twice in the New Testament.<span style="mso-spacerun: yes"> </span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a> Unlike the Slavonic, the current Greek Triodion makes no special provision for the Liti. The Slavonic books give the third Idiomel in Tone 3 from Lauds as the Doxastikon and the Resurrection Theotokion in the same Tone.<span style="mso-spacerun: yes"> </span>
+<span id="_ftn7">\[7\]</span> Unlike the Slavonic, the current Greek Triodion makes no special provision for the Liti. The Slavonic books give the third Idiomel in Tone 3 from Lauds as the Doxastikon and the Resurrection Theotokion in the same Tone.<span style="mso-spacerun: yes"> </span>
 
  
 

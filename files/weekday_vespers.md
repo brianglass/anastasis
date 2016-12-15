@@ -311,79 +311,79 @@ Holy Virgin Mother of God we greet you with our ‘Hail!’<a href="#_ftn33" id=
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Gen 1,1-3.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Gen 1,1-3.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Gen. 2,7.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Gen. 2,7.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 25:10.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 25:10.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This list derives from passages like Romans 8,38 and Colossians 1,16, but its precise form of Nine Choirs comes from Denys the Areopagite, *On the Heavenly Hierarchy*, 6,2 \[PG 3:200-201\].</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This list derives from passages like Romans 8,38 and Colossians 1,16, but its precise form of Nine Choirs comes from Denys the Areopagite, *On the Heavenly Hierarchy*, 6,2 \[PG 3:200-201\].</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Ezekiel 1.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Ezekiel 1.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 14:28-30.</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 14:28-30.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 1:29.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 1:29.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 11:28-30.</span>
+<span id="_ftn8">\[8\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 11:28-30.</span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 3:2.</span>
+<span id="_ftn9">\[9\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 3:2.</span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Nicene Creed.</span>
+<span id="_ftn10">\[10\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Nicene Creed.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen. 3.</span>
+<span id="_ftn11">\[11\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen. 3.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Deut. 21:23, Gal.3:13.</span>
+<span id="_ftn12">\[12\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Deut. 21:23, Gal.3:13.</span>
 
-<a href="#_ftnref13" id="_ftn13">[13]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:34-35.</span>
+<span id="_ftn13">\[13\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 2:34-35.</span>
 
-<a href="#_ftnref14" id="_ftn14">[14]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 50:1.</span>
+<span id="_ftn14">\[14\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 50:1.</span>
 
-<a href="#_ftnref15" id="_ftn15">[15]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod 1:26.</span>
+<span id="_ftn15">\[15\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod 1:26.</span>
 
-<a href="#_ftnref16" id="_ftn16">[16]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Eze 44:1-3.</span>
+<span id="_ftn16">\[16\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Eze 44:1-3.</span>
 
-<a href="#_ftnref17" id="_ftn17">[17]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod. 25:23-30.</span>
+<span id="_ftn17">\[17\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod. 25:23-30.</span>
 
-<a href="#_ftnref18" id="_ftn18">[18]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod 25:31-35.</span>
+<span id="_ftn18">\[18\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod 25:31-35.</span>
 
-<a href="#_ftnref19" id="_ftn19">[19]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen 3:24.</span>
+<span id="_ftn19">\[19\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen 3:24.</span>
 
-<a href="#_ftnref20" id="_ftn20">[20]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen 2:29; 3.24.</span>
+<span id="_ftn20">\[20\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen 2:29; 3.24.</span>
 
-<a href="#_ftnref21" id="_ftn21">[21]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod 3:2.</span>
+<span id="_ftn21">\[21\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Exod 3:2.</span>
 
-<a href="#_ftnref22" id="_ftn22">[22]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen 1-7.</span>
+<span id="_ftn22">\[22\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen 1-7.</span>
 
-<a href="#_ftnref23" id="_ftn23">[23]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 150:6. The only occurrence of the phrase in the Bible.</span>
+<span id="_ftn23">\[23\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 150:6. The only occurrence of the phrase in the Bible.</span>
 
-<a href="#_ftnref24" id="_ftn24">[24]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Tobit 13:13, following the text of the Codex Sinaiticus, which is followed by some modern translations.</span>
+<span id="_ftn24">\[24\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Tobit 13:13, following the text of the Codex Sinaiticus, which is followed by some modern translations.</span>
 
-<a href="#_ftnref25" id="_ftn25">[25]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 73:12.</span>
+<span id="_ftn25">\[25\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 73:12.</span>
 
-<a href="#_ftnref26" id="_ftn26">[26]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> 1 Tim. 6:10.</span>
+<span id="_ftn26">\[26\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> 1 Tim. 6:10.</span>
 
-<a href="#_ftnref27" id="_ftn27">[27]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 68:22; Matt. 27:34.</span>
+<span id="_ftn27">\[27\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 68:22; Matt. 27:34.</span>
 
-<a href="#_ftnref28" id="_ftn28">[28]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 26:41.</span>
+<span id="_ftn28">\[28\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Matt. 26:41.</span>
 
-<a href="#_ftnref29" id="_ftn29">[29]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 17:6.</span>
+<span id="_ftn29">\[29\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 17:6.</span>
 
-<a href="#_ftnref30" id="_ftn30">[30]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen. 28:17.</span>
+<span id="_ftn30">\[30\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Gen. 28:17.</span>
 
-<a href="#_ftnref31" id="_ftn31">[31]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Eph. 2:14.</span>
+<span id="_ftn31">\[31\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Eph. 2:14.</span>
 
-<a href="#_ftnref32" id="_ftn32">[32]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Baruch 4:5.</span>
+<span id="_ftn32">\[32\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Baruch 4:5.</span>
 
-<a href="#_ftnref33" id="_ftn33">[33]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 1:28.</span>
+<span id="_ftn33">\[33\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 1:28.</span>
 
-<a href="#_ftnref34" id="_ftn34">[34]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Eze 3:12, where the words, ‘</span><span lang="EN-US" style="font-size:12.0pt;mso-ansi-language:EN-US;
+<span id="_ftn34">\[34\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Eze 3:12, where the words, ‘</span><span lang="EN-US" style="font-size:12.0pt;mso-ansi-language:EN-US;
 mso-bidi-language:HE">Blessed be the glory of the Lord, from his place’ occur, when the divine Chariot, also used as a type of the Mother of God, at the end of his initial vision and call.</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt"></span>
 
-<a href="#_ftnref35" id="_ftn35">[35]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 2:19.</span>
+<span id="_ftn35">\[35\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. John 2:19.</span>
 
-<a href="#_ftnref36" id="_ftn36">[36]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 1:29</span>
+<span id="_ftn36">\[36\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> John 1:29</span>
 
  
 

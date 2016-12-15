@@ -40,25 +40,25 @@ mso-bidi-font-size:12.0pt;color:blue">Dwelling in you is like that of all who re
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Ephesians 2:20.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Ephesians 2:20.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek is ‘***latreia***’, which refers to the whole religion of the Law of Moses. If it had not become debased, one could have used the word ‘cult’.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek is ‘***latreia***’, which refers to the whole religion of the Law of Moses. If it had not become debased, one could have used the word ‘cult’.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek is ‘***politeia***’, which means the whole way of life. The lives of the Saints are commonly entitled, ‘***Bios kai Politeia***’.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek is ‘***politeia***’, which means the whole way of life. The lives of the Saints are commonly entitled, ‘***Bios kai Politeia***’.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 131:14.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 131:14.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This is an extraordinarily difficult verse to translate, because the usual text of the Septuagint introduces the word ‘mother’, which is not in the Hebrew. It probably arises from a scribal mistake in Greek, by which ‘***meter Sion***’ was read instead of ‘***me te Sion***’, meaning ‘Shall (one) not (say) to Sion’, which is a reasonable rendering of the Hebrew. This is the reading of some Greek manuscripts. The reading with ‘mother’, however, goes back to the early days of the Church, and is found in Latin as early as Tertullian. It is the text that the Church has accepted liturgically and theologically.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This is an extraordinarily difficult verse to translate, because the usual text of the Septuagint introduces the word ‘mother’, which is not in the Hebrew. It probably arises from a scribal mistake in Greek, by which ‘***meter Sion***’ was read instead of ‘***me te Sion***’, meaning ‘Shall (one) not (say) to Sion’, which is a reasonable rendering of the Hebrew. This is the reading of some Greek manuscripts. The reading with ‘mother’, however, goes back to the early days of the Church, and is found in Latin as early as Tertullian. It is the text that the Church has accepted liturgically and theologically.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek is ‘***epigrapsometha***’. The word ‘***epigraphein***’ is used in the classical language in Athens to mean ‘to choose someone as, say, patron and enter, or inscribe \[Greek ‘***graphein***’\] their name as such on the public register’. This seems to be the meaning here. The idea is picked up by St Athanasios in his comments on the following verse.</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek is ‘***epigrapsometha***’. The word ‘***epigraphein***’ is used in the classical language in Athens to mean ‘to choose someone as, say, patron and enter, or inscribe \[Greek ‘***graphein***’\] their name as such on the public register’. This seems to be the meaning here. The idea is picked up by St Athanasios in his comments on the following verse.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matthew 16:18.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf. Matthew 16:18.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Greek ‘***graphe***’.</span>
+<span id="_ftn8">\[8\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Greek ‘***graphe***’.</span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Greek ‘***engraphe***’.</span>
+<span id="_ftn9">\[9\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Greek ‘***engraphe***’.</span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 10:20</span>
+<span id="_ftn10">\[10\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Luke 10:20</span>
 
  
 

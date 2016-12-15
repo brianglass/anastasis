@@ -635,167 +635,167 @@ His sound has gone out into all the earth, and his words to the ends of the worl
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a> Cf. Apocalypse 1,1.
+<span id="_ftn1">\[1\]</span> Cf. Apocalypse 1,1.
 
-<a href="#_ftnref2" id="_ftn2">[2]</a> Cf. Song of Songs 1,1.
+<span id="_ftn2">\[2\]</span> Cf. Song of Songs 1,1.
 
-<a href="#_ftnref3" id="_ftn3">[3]</a> Cf. Mark 3,17.
+<span id="_ftn3">\[3\]</span> Cf. Mark 3,17.
 
-<a href="#_ftnref4" id="_ftn4">[4]</a> John 1,1.
+<span id="_ftn4">\[4\]</span> John 1,1.
 
-<a href="#_ftnref5" id="_ftn5">[5]</a> John 1,9
+<span id="_ftn5">\[5\]</span> John 1,9
 
-<a href="#_ftnref6" id="_ftn6">[6]</a> Mark 3,17.
+<span id="_ftn6">\[6\]</span> Mark 3,17.
 
-<a href="#_ftnref7" id="_ftn7">[7]</a> John 1,1. The word ‘was’ is not in the text of the hymn.
+<span id="_ftn7">\[7\]</span> John 1,1. The word ‘was’ is not in the text of the hymn.
 
-<a href="#_ftnref8" id="_ftn8">[8]</a> Cf. John 14,8-11
+<span id="_ftn8">\[8\]</span> Cf. John 14,8-11
 
-<a href="#_ftnref9" id="_ftn9">[9]</a> John 1,3-5.
+<span id="_ftn9">\[9\]</span> John 1,3-5.
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span lang="FR" style="mso-ansi-language:FR"> Hebrews 10,1.</span>
+<span id="_ftn10">\[10\]</span><span lang="FR" style="mso-ansi-language:FR"> Hebrews 10,1.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 3,2.</span>
+<span id="_ftn11">\[11\]</span><span lang="FR" style="mso-ansi-language:FR"> Exodus 3,2.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 13,21.</span>
+<span id="_ftn12">\[12\]</span><span lang="FR" style="mso-ansi-language:FR"> Exodus 13,21.</span>
 
-<a href="#_ftnref13" id="_ftn13">[13]</a> Malachy 3,20 (4,2).
+<span id="_ftn13">\[13\]</span> Malachy 3,20 (4,2).
 
-<a href="#_ftnref14" id="_ftn14">[14]</a> John 13,21; 21,20.
+<span id="_ftn14">\[14\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref15" id="_ftn15">[15]</a> John 19,25-27.
+<span id="_ftn15">\[15\]</span> John 19,25-27.
 
-<a href="#_ftnref16" id="_ftn16">[16]</a> John 1,1.
+<span id="_ftn16">\[16\]</span> John 1,1.
 
-<a href="#_ftnref17" id="_ftn17">[17]</a> John 13,21; 21,20.
+<span id="_ftn17">\[17\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref18" id="_ftn18">[18]</a> John 1,1.9.
+<span id="_ftn18">\[18\]</span> John 1,1.9.
 
-<a href="#_ftnref19" id="_ftn19">[19]</a> Cf. Nicene Creed.
+<span id="_ftn19">\[19\]</span> Cf. Nicene Creed.
 
-<a href="#_ftnref20" id="_ftn20">[20]</a> Hebrews 1,3.
+<span id="_ftn20">\[20\]</span> Hebrews 1,3.
 
-<a href="#_ftnref21" id="_ftn21">[21]</a> 2 Corinthians 4,6.
+<span id="_ftn21">\[21\]</span> 2 Corinthians 4,6.
 
-<a href="#_ftnref22" id="_ftn22">[22]</a> Psalm 18,4.
+<span id="_ftn22">\[22\]</span> Psalm 18,4.
 
-<a href="#_ftnref23" id="_ftn23">[23]</a> John 15,26; Nicene Creed.
+<span id="_ftn23">\[23\]</span> John 15,26; Nicene Creed.
 
-<a href="#_ftnref24" id="_ftn24">[24]</a> Psalm 18,1.
+<span id="_ftn24">\[24\]</span> Psalm 18,1.
 
-<a href="#_ftnref25" id="_ftn25">[25]</a> John 1,1.
+<span id="_ftn25">\[25\]</span> John 1,1.
 
-<a href="#_ftnref26" id="_ftn26">[26]</a> Cf. the definition of Nicea (325).
+<span id="_ftn26">\[26\]</span> Cf. the definition of Nicea (325).
 
-<a href="#_ftnref27" id="_ftn27">[27]</a> Exodus 33,11; Sirach 45,1. I know of no passage in which Isaias receives a similar description.
+<span id="_ftn27">\[27\]</span> Exodus 33,11; Sirach 45,1. I know of no passage in which Isaias receives a similar description.
 
-<a href="#_ftnref28" id="_ftn28">[28]</a> Genesis 3,17-19.
+<span id="_ftn28">\[28\]</span> Genesis 3,17-19.
 
-<a href="#_ftnref29" id="_ftn29">[29]</a> Luke 1,26.
+<span id="_ftn29">\[29\]</span> Luke 1,26.
 
-<a href="#_ftnref30" id="_ftn30">[30]</a> John 13,21; 21,20.
+<span id="_ftn30">\[30\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref31" id="_ftn31">[31]</a> Mark 3,17.
+<span id="_ftn31">\[31\]</span> Mark 3,17.
 
-<a href="#_ftnref32" id="_ftn32">[32]</a> John 13,21; 21,20.
+<span id="_ftn32">\[32\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref33" id="_ftn33">[33]</a> Matthew 4,19.
+<span id="_ftn33">\[33\]</span> Matthew 4,19.
 
-<a href="#_ftnref34" id="_ftn34">[34]</a> John 13,23-26.
+<span id="_ftn34">\[34\]</span> John 13,23-26.
 
-<a href="#_ftnref35" id="_ftn35">[35]</a> Cf. Exodus 15,1-19; the first Canticle.
+<span id="_ftn35">\[35\]</span> Cf. Exodus 15,1-19; the first Canticle.
 
-<a href="#_ftnref36" id="_ftn36">[36]</a> Psalm 44,9.
+<span id="_ftn36">\[36\]</span> Psalm 44,9.
 
-<a href="#_ftnref37" id="_ftn37">[37]</a> Matthew 25,33.
+<span id="_ftn37">\[37\]</span> Matthew 25,33.
 
-<a href="#_ftnref38" id="_ftn38">[38]</a> Cf. John 1,1. St Theophanes uses ‘Begetter’ rather than ‘God’ for metrical reasons.
+<span id="_ftn38">\[38\]</span> Cf. John 1,1. St Theophanes uses ‘Begetter’ rather than ‘God’ for metrical reasons.
 
-<a href="#_ftnref39" id="_ftn39">[39]</a> John 1,1.
+<span id="_ftn39">\[39\]</span> John 1,1.
 
-<a href="#_ftnref40" id="_ftn40">[40]</a> Cf. Psalm 44,1.
+<span id="_ftn40">\[40\]</span> Cf. Psalm 44,1.
 
-<a href="#_ftnref41" id="_ftn41">[41]</a> 1 Reigns 2,1; i.e. from the third Canticle.
+<span id="_ftn41">\[41\]</span> 1 Reigns 2,1; i.e. from the third Canticle.
 
-<a href="#_ftnref42" id="_ftn42">[42]</a> Psalm 44,1.
+<span id="_ftn42">\[42\]</span> Psalm 44,1.
 
-<a href="#_ftnref43" id="_ftn43">[43]</a> John 13,21; 21,20.
+<span id="_ftn43">\[43\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref44" id="_ftn44">[44]</a> John 19,25-27. John 13,21; 21,20.
+<span id="_ftn44">\[44\]</span> John 19,25-27. John 13,21; 21,20.
 
-<a href="#_ftnref45" id="_ftn45">[45]</a> John 13,21; 21,20.
+<span id="_ftn45">\[45\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref46" id="_ftn46">[46]</a> John 1,1.
+<span id="_ftn46">\[46\]</span> John 1,1.
 
-<a href="#_ftnref47" id="_ftn47">[47]</a> The last clause, ‘Glory to your power, O Lord!’, is found the fourth Ode of numerous canons. It even occurs in the heading of the fourth canticle in the *Horologion.* It is not, however, as one might have expected, a citation from the scriptural text.
+<span id="_ftn47">\[47\]</span> The last clause, ‘Glory to your power, O Lord!’, is found the fourth Ode of numerous canons. It even occurs in the heading of the fourth canticle in the *Horologion.* It is not, however, as one might have expected, a citation from the scriptural text.
 
-<a href="#_ftnref48" id="_ftn48">[48]</a> 1 Timothy 2,5.
+<span id="_ftn48">\[48\]</span> 1 Timothy 2,5.
 
-<a href="#_ftnref49" id="_ftn49">[49]</a> Luke 15,13.
+<span id="_ftn49">\[49\]</span> Luke 15,13.
 
-<a href="#_ftnref50" id="_ftn50">[50]</a> Cf. John 19,25-27.
+<span id="_ftn50">\[50\]</span> Cf. John 19,25-27.
 
-<a href="#_ftnref51" id="_ftn51">[51]</a> Psalm 103,2.
+<span id="_ftn51">\[51\]</span> Psalm 103,2.
 
-<a href="#_ftnref52" id="_ftn52">[52]</a> Psalm 44,3.
+<span id="_ftn52">\[52\]</span> Psalm 44,3.
 
-<a href="#_ftnref53" id="_ftn53">[53]</a> John 19,25-27.
+<span id="_ftn53">\[53\]</span> John 19,25-27.
 
-<a href="#_ftnref54" id="_ftn54">[54]</a> John 13,21; 21,20.
+<span id="_ftn54">\[54\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref55" id="_ftn55">[55]</a> Daniel 3.
+<span id="_ftn55">\[55\]</span> Daniel 3.
 
-<a href="#_ftnref56" id="_ftn56">[56]</a> Daniel 3,53.
+<span id="_ftn56">\[56\]</span> Daniel 3,53.
 
-<a href="#_ftnref57" id="_ftn57">[57]</a> Exodus 15,2.
+<span id="_ftn57">\[57\]</span> Exodus 15,2.
 
-<a href="#_ftnref58" id="_ftn58">[58]</a> Malachy 3,20 (4,2); Psalm 18,4.
+<span id="_ftn58">\[58\]</span> Malachy 3,20 (4,2); Psalm 18,4.
 
-<a href="#_ftnref59" id="_ftn59">[59]</a> Daniel 3,53.
+<span id="_ftn59">\[59\]</span> Daniel 3,53.
 
-<a href="#_ftnref60" id="_ftn60">[60]</a> Cf. Psalm 18,4.
+<span id="_ftn60">\[60\]</span> Cf. Psalm 18,4.
 
-<a href="#_ftnref61" id="_ftn61">[61]</a> Psalm 25,8.
+<span id="_ftn61">\[61\]</span> Psalm 25,8.
 
-<a href="#_ftnref62" id="_ftn62">[62]</a> Daniel 3.
+<span id="_ftn62">\[62\]</span> Daniel 3.
 
-<a href="#_ftnref63" id="_ftn63">[63]</a> Hebrews 1,3.
+<span id="_ftn63">\[63\]</span> Hebrews 1,3.
 
-<a href="#_ftnref64" id="_ftn64">[64]</a> Daniel 3,52.
+<span id="_ftn64">\[64\]</span> Daniel 3,52.
 
-<a href="#_ftnref65" id="_ftn65">[65]</a> Daniel 3,52.
+<span id="_ftn65">\[65\]</span> Daniel 3,52.
 
-<a href="#_ftnref66" id="_ftn66">[66]</a> Genesis 3.
+<span id="_ftn66">\[66\]</span> Genesis 3.
 
-<a href="#_ftnref67" id="_ftn67">[67]</a> 1 Corinthians 13,12.
+<span id="_ftn67">\[67\]</span> 1 Corinthians 13,12.
 
-<a href="#_ftnref68" id="_ftn68">[68]</a> Cf. Apocalypse 22,1.
+<span id="_ftn68">\[68\]</span> Cf. Apocalypse 22,1.
 
-<a href="#_ftnref69" id="_ftn69">[69]</a> Mark 10,35-40.
+<span id="_ftn69">\[69\]</span> Mark 10,35-40.
 
-<a href="#_ftnref70" id="_ftn70">[70]</a> John 13,21; 21,20.
+<span id="_ftn70">\[70\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref71" id="_ftn71">[71]</a> John 1,1-3; Nicene Creed.
+<span id="_ftn71">\[71\]</span> John 1,1-3; Nicene Creed.
 
-<a href="#_ftnref72" id="_ftn72">[72]</a> Malachy 3,20 (4,2).
+<span id="_ftn72">\[72\]</span> Malachy 3,20 (4,2).
 
-<a href="#_ftnref73" id="_ftn73">[73]</a> John 19,25-27.
+<span id="_ftn73">\[73\]</span> John 19,25-27.
 
-<a href="#_ftnref74" id="_ftn74">[74]</a> Mark 3,17.
+<span id="_ftn74">\[74\]</span> Mark 3,17.
 
-<a href="#_ftnref75" id="_ftn75">[75]</a> John 1,1.
+<span id="_ftn75">\[75\]</span> John 1,1.
 
-<a href="#_ftnref76" id="_ftn76">[76]</a> John 13,21; 21,20.
+<span id="_ftn76">\[76\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref77" id="_ftn77">[77]</a> John 19,25-27.
+<span id="_ftn77">\[77\]</span> John 19,25-27.
 
-<a href="#_ftnref78" id="_ftn78">[78]</a> John 13,21; 21,20.
+<span id="_ftn78">\[78\]</span> John 13,21; 21,20.
 
-<a href="#_ftnref79" id="_ftn79">[79]</a> Exodus 13,21.
+<span id="_ftn79">\[79\]</span> Exodus 13,21.
 
-<a href="#_ftnref80" id="_ftn80">[80]</a> Mark 3,17.
+<span id="_ftn80">\[80\]</span> Mark 3,17.
 
-<a href="#_ftnref81" id="_ftn81">[81]</a> John 19,34.
+<span id="_ftn81">\[81\]</span> John 19,34.
 
  
 

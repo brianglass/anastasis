@@ -76,7 +76,7 @@ Sermon on the Transfiguration of our Lord and God and Saviour, Jesus Christ.
 
 <a href="#_ftnref7" id="_ftn7">[7]</a> Matt. 17:5.
 
-<a href="#_ftnref8" id="_ftn8">[8]</a> This phrase forms the opening of the Dismissal for the first half of Holy Week in the Byzantine rite.
+<span id="_ftn8">\[8\]</span> This phrase forms the opening of the Dismissal for the first half of Holy Week in the Byzantine rite.
 
 <a href="#_ftnref9" id="_ftn9">[9]</a> John 17:5. Again the citation is free, omitting ‘with yourself’ after ‘Father’. This is odd, since the somewhat awkward repetition in the original would seem to be the explanation of the curious repetition in the previous sentence, ‘with\[*syn*\] the Father and together with \[*meta*\] the Father’. The former is the preposition used of the Holy Spirit in the Creed. There is also an echo of Philippians 3:6-8.
 
@@ -102,7 +102,7 @@ Sermon on the Transfiguration of our Lord and God and Saviour, Jesus Christ.
 
 <a href="#_ftnref20" id="_ftn20">[20]</a> Adam’s ‘garment of glory’ is a theme of Jewish exegesis and is found in the Syriac texts<span style="mso-spacerun: yes"> </span>
 
-<a href="#_ftnref21" id="_ftn21">[21]</a> Cf. Matt. 16:18.
+<span id="_ftn21">\[21\]</span> Cf. Matt. 16:18.
 
 <a href="#_ftnref22" id="_ftn22">[22]</a> Cf. Matt. 16:19.
 

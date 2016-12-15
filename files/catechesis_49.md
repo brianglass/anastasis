@@ -19,28 +19,28 @@ mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;">And so we too, h
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This Instruction is suggested for the Sunday of the Prodigal Son by the current Slavonic Triodion from Moscow, which only gives Catecheses for the Sundays of these weeks.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This Instruction is suggested for the Sunday of the Prodigal Son by the current Slavonic Triodion from Moscow, which only gives Catecheses for the Sundays of these weeks.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Rom. 13:14.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Rom. 13:14.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Ezekiel 16.49.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Ezekiel 16.49.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Genesis 25:29-34 and Mal. 1: Esau I hate.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Genesis 25:29-34 and Mal. 1: Esau I hate.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Exod. 32:6.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Exod. 32:6.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The verb *anatello* means to ‘rise up’, sometimes of the sun, at others of plants, and is used metaphorically of people with either image understood. In this passage the idea of plants is the one of which<span style="mso-spacerun:
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The verb *anatello* means to ‘rise up’, sometimes of the sun, at others of plants, and is used metaphorically of people with either image understood. In this passage the idea of plants is the one of which<span style="mso-spacerun:
 yes">  </span>St Theodore is thinking.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This adjective, *amuretos*,<span style="mso-spacerun: yes">  </span>is not in the lexica. The Greek editor suggests, ‘incorruptible’, ‘unending’, though he gives no reasons.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This adjective, *amuretos*,<span style="mso-spacerun: yes">  </span>is not in the lexica. The Greek editor suggests, ‘incorruptible’, ‘unending’, though he gives no reasons.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> That is to say the Emperor. St Theodore plays on the words ‘mightily’, *krataios*, and ‘mighty’, *kraton*’. </span>
+<span id="_ftn8">\[8\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> That is to say the Emperor. St Theodore plays on the words ‘mightily’, *krataios*, and ‘mighty’, *kraton*’. </span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This echoes the troparion from the Midnight Office, ‘The Judge will come suddenly and the deeds of each will be laid bare’. St Theodore implies that it is not only the just Judge who arrives suddenly.</span>
+<span id="_ftn9">\[9\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This echoes the troparion from the Midnight Office, ‘The Judge will come suddenly and the deeds of each will be laid bare’. St Theodore implies that it is not only the just Judge who arrives suddenly.</span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Romans 8:31.</span>
+<span id="_ftn10">\[10\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Romans 8:31.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> St Theodore in these two clauses deliberately echoes the deacon’s invitation at the beginning of the anaphora. Hence my somewhat unidiomatic translation of *prosechomen*. The present subjunctive of continuous action here contrasts neatly with the aorist of immediate action in the Liturgy.</span>
+<span id="_ftn11">\[11\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> St Theodore in these two clauses deliberately echoes the deacon’s invitation at the beginning of the anaphora. Hence my somewhat unidiomatic translation of *prosechomen*. The present subjunctive of continuous action here contrasts neatly with the aorist of immediate action in the Liturgy.</span>
 
  
 

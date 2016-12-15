@@ -357,151 +357,151 @@ As she stood by your Cross, O Word of God, the Ewe-lamb, your blameless Mother, 
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a> This is of course the Apolytikion for the feast of the Cross.
+<span id="_ftn1">\[1\]</span> This is of course the Apolytikion for the feast of the Cross.
 
-<a href="#_ftnref2" id="_ftn2">[2]</a> Cf. Isaias 63:9.
+<span id="_ftn2">\[2\]</span> Cf. Isaias 63:9.
 
-<a href="#_ftnref3" id="_ftn3">[3]</a> Luke 23:40-43.
+<span id="_ftn3">\[3\]</span> Luke 23:40-43.
 
-<a href="#_ftnref4" id="_ftn4">[4]</a> The story is told in great detail by Eusebius in his life of Constantine (Book 1, Chapters 28-31). He says he it from Constantine himself. The other contemporary account is by Lactantius in chapter 44 of his *De Mortibus Persecutorum*. This speaks only of a ‘dream’ and nothing of the appearance of the Cross in the sky. Both writers agree that the standard consisted of the *Chi-Rho*, in Eusebius this is made into a banner, or *labarum*, in Lactantius the soldiers are ordered to mark it on their shields.
+<span id="_ftn4">\[4\]</span> The story is told in great detail by Eusebius in his life of Constantine (Book 1, Chapters 28-31). He says he it from Constantine himself. The other contemporary account is by Lactantius in chapter 44 of his *De Mortibus Persecutorum*. This speaks only of a ‘dream’ and nothing of the appearance of the Cross in the sky. Both writers agree that the standard consisted of the *Chi-Rho*, in Eusebius this is made into a banner, or *labarum*, in Lactantius the soldiers are ordered to mark it on their shields.
 
-<a href="#_ftnref5" id="_ftn5">[5]</a> Galatians 6:14.
+<span id="_ftn5">\[5\]</span> Galatians 6:14.
 
-<a href="#_ftnref6" id="_ftn6">[6]</a> Cf. Isaias 40:12
+<span id="_ftn6">\[6\]</span> Cf. Isaias 40:12
 
-<a href="#_ftnref7" id="_ftn7">[7]</a> This is the common Apolytikion of Many Martyrs.
+<span id="_ftn7">\[7\]</span> This is the common Apolytikion of Many Martyrs.
 
-<a href="#_ftnref8" id="_ftn8">[8]</a> Unusually the Irmi of this Canon are prosomia to another set of Irmi, in this case those of the first Canon for Christmas. Another example is the set of Irmi by St Theodore the Studite for the Sunday of Cross in Lent, though in this instance there is a clear theological reason for it. The provision of new texts for this Tuesday may be to avoid singing the Christmas Irmi unseasonally, although in current practice only the Irmi of the first canon are used.
+<span id="_ftn8">\[8\]</span> Unusually the Irmi of this Canon are prosomia to another set of Irmi, in this case those of the first Canon for Christmas. Another example is the set of Irmi by St Theodore the Studite for the Sunday of Cross in Lent, though in this instance there is a clear theological reason for it. The provision of new texts for this Tuesday may be to avoid singing the Christmas Irmi unseasonally, although in current practice only the Irmi of the first canon are used.
 
-<a href="#_ftnref9" id="_ftn9">[9]</a> Exodus 14-15.
+<span id="_ftn9">\[9\]</span> Exodus 14-15.
 
-<a href="#_ftnref10" id="_ftn10">[10]</a> This phrase is from 1 Corinthians 2:6 and is therefore almost always used in connection with the Crucifixion. It is frequently inscribed on pectoral crosses and other depictions of the crucified Lord.
+<span id="_ftn10">\[10\]</span> This phrase is from 1 Corinthians 2:6 and is therefore almost always used in connection with the Crucifixion. It is frequently inscribed on pectoral crosses and other depictions of the crucified Lord.
 
 <a href="#_ftnref11" id="_ftn11">[11]</a> <span style="font-size:12.0pt;mso-bidi-font-size:10.0pt">St Romanos speaks of human nature as ‘thorny’ in a number of his Kontakia. For example in *On the Apostle Thomas* (Strophe 2): ‘For from Thomas’s hand I believe in Moses’ story; For though it was perishable and thorny it was not consumed As it handled the side like a burning flame’. See also *On the Nativity* (Strophe 11). The idea very probably derives from St Ephrem the Syrian.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a> Luke 2:35.
+<span id="_ftn12">\[12\]</span> Luke 2:35.
 
-<a href="#_ftnref13" id="_ftn13">[13]</a> John 19:34.
+<span id="_ftn13">\[13\]</span> John 19:34.
 
-<a href="#_ftnref14" id="_ftn14">[14]</a> Genesis 3:24.
+<span id="_ftn14">\[14\]</span> Genesis 3:24.
 
-<a href="#_ftnref15" id="_ftn15">[15]</a> In Greek <span style="font-family:&quot;Symbol Accentuated&quot;">témenoV</span>, which means the sacred area in which a temple stood.
+<span id="_ftn15">\[15\]</span> In Greek <span style="font-family:&quot;Symbol Accentuated&quot;">témenoV</span>, which means the sacred area in which a temple stood.
 
-<a href="#_ftnref16" id="_ftn16">[16]</a> One of the features of this Canon is a series of plays on cognate words. In this troparion we have <span style="font-family:&quot;Symbol Accentuated&quot;">ÀgioV, üperágioV </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">ägiasmóV.</span>
+<span id="_ftn16">\[16\]</span> One of the features of this Canon is a series of plays on cognate words. In this troparion we have <span style="font-family:&quot;Symbol Accentuated&quot;">ÀgioV, üperágioV </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">ägiasmóV.</span>
 
-<a href="#_ftnref17" id="_ftn17">[17]</a> Jeremias 9:22. I Reigns 2:10, which is part of Ode 3 (I Reigns 2:1-10). The Greek of the latter passage is quite different from, and much longer than, the Hebrew. The Latin Vulgate here follows the Hebrew, and so do all English translations of the Bible.
+<span id="_ftn17">\[17\]</span> Jeremias 9:22. I Reigns 2:10, which is part of Ode 3 (I Reigns 2:1-10). The Greek of the latter passage is quite different from, and much longer than, the Hebrew. The Latin Vulgate here follows the Hebrew, and so do all English translations of the Bible.
 
-<a href="#_ftnref18" id="_ftn18">[18]</a> Psalm 21:17.
+<span id="_ftn18">\[18\]</span> Psalm 21:17.
 
-<a href="#_ftnref19" id="_ftn19">[19]</a> Genesis 2:7. The word is used of a potter working with clay and is used in the OT especially of God in creation, and by contrast also of the fashioners of idols.
+<span id="_ftn19">\[19\]</span> Genesis 2:7. The word is used of a potter working with clay and is used in the OT especially of God in creation, and by contrast also of the fashioners of idols.
 
-<a href="#_ftnref20" id="_ftn20">[20]</a> Jesus (‘Joshua’) 10:12-13. In the Orthodox Scriptures Moses’ successor, who saved the people of Israel after Moses’ death and led them in the conquest of the Promised Land, is called ‘Jesus’, and because of his name he is frequently evoked typologically in the liturgical texts. The use of the Protestant pseudo-Hebrew word ‘Joshua’ obscures this and it, and other Protestant pseudo-Hebraisms, should be shunned by the Orthodox.
+<span id="_ftn20">\[20\]</span> Jesus (‘Joshua’) 10:12-13. In the Orthodox Scriptures Moses’ successor, who saved the people of Israel after Moses’ death and led them in the conquest of the Promised Land, is called ‘Jesus’, and because of his name he is frequently evoked typologically in the liturgical texts. The use of the Protestant pseudo-Hebrew word ‘Joshua’ obscures this and it, and other Protestant pseudo-Hebraisms, should be shunned by the Orthodox.
 
-<a href="#_ftnref21" id="_ftn21">[21]</a> Cf. Genesis 1:14-16, where the sun and moon are not named but simply referred to as ‘luminaries’.**
+<span id="_ftn21">\[21\]</span> Cf. Genesis 1:14-16, where the sun and moon are not named but simply referred to as ‘luminaries’.**
 
-<a href="#_ftnref22" id="_ftn22">[22]</a> The darkening of the sun and moon is an echo of Amos 8:9. Matthew 27:45, Luke 23:44-45, who mentions the sun specifically.
+<span id="_ftn22">\[22\]</span> The darkening of the sun and moon is an echo of Amos 8:9. Matthew 27:45, Luke 23:44-45, who mentions the sun specifically.
 
-<a href="#_ftnref23" id="_ftn23">[23]</a> This could also refer to the<span style="mso-spacerun: yes">  </span>Cross, but since ‘Master’ is the nearer antecedent in Greek, I have taken it as referring to Christ.
+<span id="_ftn23">\[23\]</span> This could also refer to the<span style="mso-spacerun: yes">  </span>Cross, but since ‘Master’ is the nearer antecedent in Greek, I have taken it as referring to Christ.
 
-<a href="#_ftnref24" id="_ftn24">[24]</a> This verb, *paradeigmatizein*, occurs only twice in Scripture, once of St Joseph’s not wishing to put Mary to public shame (Matt. 1:19, where modern critical texts have the simple verb *deigmatizein*, not the compound), and at Hebrews 6:6, where the Apostle says that apostates, ‘crucify the Son of God again and put him to public contempt’. The poet has the latter passage in mind.
+<span id="_ftn24">\[24\]</span> This verb, *paradeigmatizein*, occurs only twice in Scripture, once of St Joseph’s not wishing to put Mary to public shame (Matt. 1:19, where modern critical texts have the simple verb *deigmatizein*, not the compound), and at Hebrews 6:6, where the Apostle says that apostates, ‘crucify the Son of God again and put him to public contempt’. The poet has the latter passage in mind.
 
-<a href="#_ftnref25" id="_ftn25">[25]</a> ‘Beliar’ is one of the frequent names used for the devil in the liturgical texts, yet it only occurs once in the Orthodox Bible, at 2 Cor. 6:15. In the OT the word ‘belial’, which in Hebrew means ‘worthlessness’, ‘good for nothing’, occurs many times, but it is never taken to be a proper name in the lxx, which translates it by ‘lawless’, ‘pestilent’ and other such words. The Vulgate and older English versions tended to treat the word as a proper name, but most modern versions do not so regard it. In later writings, such as the Dead Sea Scrolls, the *Testament of Levi* and the *Ascension of Isaias*, it has become a name for the devil. In the latter we read (2:4), ‘And Manasses turned away his own heart to serve Beliar —for the angel of lawlessness, who is the ruler of this world, is Beliar’. The source of the usage of the liturgical texts is, therefore, almost certainly 2 Corinthians.
+<span id="_ftn25">\[25\]</span> ‘Beliar’ is one of the frequent names used for the devil in the liturgical texts, yet it only occurs once in the Orthodox Bible, at 2 Cor. 6:15. In the OT the word ‘belial’, which in Hebrew means ‘worthlessness’, ‘good for nothing’, occurs many times, but it is never taken to be a proper name in the lxx, which translates it by ‘lawless’, ‘pestilent’ and other such words. The Vulgate and older English versions tended to treat the word as a proper name, but most modern versions do not so regard it. In later writings, such as the Dead Sea Scrolls, the *Testament of Levi* and the *Ascension of Isaias*, it has become a name for the devil. In the latter we read (2:4), ‘And Manasses turned away his own heart to serve Beliar —for the angel of lawlessness, who is the ruler of this world, is Beliar’. The source of the usage of the liturgical texts is, therefore, almost certainly 2 Corinthians.
 
-<a href="#_ftnref26" id="_ftn26">[26]</a> This word, used here in the plural, means literally ‘a nod or inclination of the head’ and so ‘assent or approval’. The Latin equivalent is *nutus*. Whereas superior persons, kings, popes, bishops and suchlike, are *Dei providentia*, or *Dei gratia*, minor dignitaries are sometimes described as *Dei nutu*.
+<span id="_ftn26">\[26\]</span> This word, used here in the plural, means literally ‘a nod or inclination of the head’ and so ‘assent or approval’. The Latin equivalent is *nutus*. Whereas superior persons, kings, popes, bishops and suchlike, are *Dei providentia*, or *Dei gratia*, minor dignitaries are sometimes described as *Dei nutu*.
 
-<a href="#_ftnref27" id="_ftn27">[27]</a> Psalm 44:3.
+<span id="_ftn27">\[27\]</span> Psalm 44:3.
 
-<a href="#_ftnref28" id="_ftn28">[28]</a> Isaias 53:2.
+<span id="_ftn28">\[28\]</span> Isaias 53:2.
 
-<a href="#_ftnref29" id="_ftn29">[29]</a> This troparion plays <span style="font-family:&quot;Symbol Accentuated&quot;">DéspothV, Déspoina </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">despoteía.</span>
+<span id="_ftn29">\[29\]</span> This troparion plays <span style="font-family:&quot;Symbol Accentuated&quot;">DéspothV, Déspoina </span>and <span style="font-family:&quot;Symbol Accentuated&quot;">despoteía.</span>
 
-<a href="#_ftnref30" id="_ftn30">[30]</a> Avvakoum 3:1-3. The notes in *La Bible d’Alexandrie*, XXIII: 4-9, are particularly valuable on these verses. Because Theman is in the south, for the Fathers it signifies Bethlehem, south of Jerusalem, the place where Christ was born. The words ‘shaded’ and ‘wooded’ are both ‘translations’ of the Hebrew name *Paran*, which was linked by the translator with a rare Hebrew word meaning ‘bough’.
+<span id="_ftn30">\[30\]</span> Avvakoum 3:1-3. The notes in *La Bible d’Alexandrie*, XXIII: 4-9, are particularly valuable on these verses. Because Theman is in the south, for the Fathers it signifies Bethlehem, south of Jerusalem, the place where Christ was born. The words ‘shaded’ and ‘wooded’ are both ‘translations’ of the Hebrew name *Paran*, which was linked by the translator with a rare Hebrew word meaning ‘bough’.
 
-<a href="#_ftnref31" id="_ftn31">[31]</a> Galatians 6:17, the only use of the word in the NT.
+<span id="_ftn31">\[31\]</span> Galatians 6:17, the only use of the word in the NT.
 
-<a href="#_ftnref32" id="_ftn32">[32]</a> 1 Peter 2:24, the only use of the word in the NT.
+<span id="_ftn32">\[32\]</span> 1 Peter 2:24, the only use of the word in the NT.
 
-<a href="#_ftnref33" id="_ftn33">[33]</a> Matthew 27:34, Psalm 68:22.
+<span id="_ftn33">\[33\]</span> Matthew 27:34, Psalm 68:22.
 
-<a href="#_ftnref34" id="_ftn34">[34]</a> John 12:32.
+<span id="_ftn34">\[34\]</span> John 12:32.
 
-<a href="#_ftnref35" id="_ftn35">[35]</a> Cf. Ephesians 2:13.
+<span id="_ftn35">\[35\]</span> Cf. Ephesians 2:13.
 
-<a href="#_ftnref36" id="_ftn36">[36]</a> Romans 5:10, 1 Corinthians 5:18.
+<span id="_ftn36">\[36\]</span> Romans 5:10, 1 Corinthians 5:18.
 
-<a href="#_ftnref37" id="_ftn37">[37]</a> 1 Timothy 2:5.
+<span id="_ftn37">\[37\]</span> 1 Timothy 2:5.
 
-<a href="#_ftnref38" id="_ftn38">[38]</a> Psalm 73:12.
+<span id="_ftn38">\[38\]</span> Psalm 73:12.
 
-<a href="#_ftnref39" id="_ftn39">[39]</a> Greek <span style="font-family:&quot;Symbol Accentuated&quot;">nohtóV.</span>
+<span id="_ftn39">\[39\]</span> Greek <span style="font-family:&quot;Symbol Accentuated&quot;">nohtóV.</span>
 
-<a href="#_ftnref40" id="_ftn40">[40]</a> Cf. Exodus 14.
+<span id="_ftn40">\[40\]</span> Cf. Exodus 14.
 
-<a href="#_ftnref41" id="_ftn41">[41]</a> Hebrews 11:9.
+<span id="_ftn41">\[41\]</span> Hebrews 11:9.
 
-<a href="#_ftnref42" id="_ftn42">[42]</a> Cf. Exodus 13:21 and the numerous passages throughout the Old Testament which refer to the cloud overshadowing the temple; also the ‘light/swift cloud’ in Isaias 19:1.
+<span id="_ftn42">\[42\]</span> Cf. Exodus 13:21 and the numerous passages throughout the Old Testament which refer to the cloud overshadowing the temple; also the ‘light/swift cloud’ in Isaias 19:1.
 
-<a href="#_ftnref43" id="_ftn43">[43]</a> Malachy 3:20.
+<span id="_ftn43">\[43\]</span> Malachy 3:20.
 
-<a href="#_ftnref44" id="_ftn44">[44]</a> Ps. 117:14.
+<span id="_ftn44">\[44\]</span> Ps. 117:14.
 
-<a href="#_ftnref45" id="_ftn45">[45]</a> Cf. Matthew 27:45, Luke 23:44-45.
+<span id="_ftn45">\[45\]</span> Cf. Matthew 27:45, Luke 23:44-45.
 
-<a href="#_ftnref46" id="_ftn46">[46]</a> Cf. Psalms 135:6, 103:3, and Antiphon 15 of Matins of Good Friday.
+<span id="_ftn46">\[46\]</span> Cf. Psalms 135:6, 103:3, and Antiphon 15 of Matins of Good Friday.
 
-<a href="#_ftnref47" id="_ftn47">[47]</a> Cf. Matthew 27:51.
+<span id="_ftn47">\[47\]</span> Cf. Matthew 27:51.
 
-<a href="#_ftnref48" id="_ftn48">[48]</a> Cf. Matthew 27:51, Psalm 81:5, 17:8.16, Isaias 24:18.
+<span id="_ftn48">\[48\]</span> Cf. Matthew 27:51, Psalm 81:5, 17:8.16, Isaias 24:18.
 
-<a href="#_ftnref49" id="_ftn49">[49]</a> John 19:34.
+<span id="_ftn49">\[49\]</span> John 19:34.
 
-<a href="#_ftnref50" id="_ftn50">[50]</a> Eve, cf. Genesis 2:21.
+<span id="_ftn50">\[50\]</span> Eve, cf. Genesis 2:21.
 
-<a href="#_ftnref51" id="_ftn51">[51]</a> Genesis 2:9.
+<span id="_ftn51">\[51\]</span> Genesis 2:9.
 
-<a href="#_ftnref52" id="_ftn52">[52]</a> Genesis 3.
+<span id="_ftn52">\[52\]</span> Genesis 3.
 
-<a href="#_ftnref53" id="_ftn53">[53]</a> The musical punctuation suggests that the adverb could modify ‘suffer’. The grammar allows either. The many similar texts in the service books support the translation above.
+<span id="_ftn53">\[53\]</span> The musical punctuation suggests that the adverb could modify ‘suffer’. The grammar allows either. The many similar texts in the service books support the translation above.
 
-<a href="#_ftnref54" id="_ftn54">[54]</a> Matt. 13:22, Mark 4:19, Luke 8:14. The only uses of this word in the Bible are these three in the parable of the sower.
+<span id="_ftn54">\[54\]</span> Matt. 13:22, Mark 4:19, Luke 8:14. The only uses of this word in the Bible are these three in the parable of the sower.
 
-<a href="#_ftnref55" id="_ftn55">[55]</a> This troparion plays on the words <span style="font-family:&quot;Symbol Accentuated&quot;">lógoV, </span>’word’, but also ‘reason’ and <span style="font-family:&quot;Symbol Accentuated&quot;">ÁlogoV, </span>’irrational’.
+<span id="_ftn55">\[55\]</span> This troparion plays on the words <span style="font-family:&quot;Symbol Accentuated&quot;">lógoV, </span>’word’, but also ‘reason’ and <span style="font-family:&quot;Symbol Accentuated&quot;">ÁlogoV, </span>’irrational’.
 
-<a href="#_ftnref56" id="_ftn56">[56]</a> The first half of the troparion develops a horticultural metaphor, based on the story of the Fall—‘sin which sprouted by a tree’—with an allusion to the Cross—‘your shoot’.
+<span id="_ftn56">\[56\]</span> The first half of the troparion develops a horticultural metaphor, based on the story of the Fall—‘sin which sprouted by a tree’—with an allusion to the Cross—‘your shoot’.
 
-<a href="#_ftnref57" id="_ftn57">[57]</a> Jonas 2:1-10. There is a number of verbal echoes of Jonas’s prayer in this troparion. The image in the second clause is, as the commentators say, ‘bold’.
+<span id="_ftn57">\[57\]</span> Jonas 2:1-10. There is a number of verbal echoes of Jonas’s prayer in this troparion. The image in the second clause is, as the commentators say, ‘bold’.
 
-<a href="#_ftnref58" id="_ftn58">[58]</a> Exodus 17:11-13.
+<span id="_ftn58">\[58\]</span> Exodus 17:11-13.
 
-<a href="#_ftnref59" id="_ftn59">[59]</a> Ps. 115:6.
+<span id="_ftn59">\[59\]</span> Ps. 115:6.
 
-<a href="#_ftnref60" id="_ftn60">[60]</a> Literally ‘strange’, with a play on the first word of the troparion, but this really does not work in contemporary English.
+<span id="_ftn60">\[60\]</span> Literally ‘strange’, with a play on the first word of the troparion, but this really does not work in contemporary English.
 
-<a href="#_ftnref61" id="_ftn61">[61]</a> Appropriately this is the word used by the Mother of God in the Church’s text of the *Magnificat*, ‘For he that is mighty has done great things for me’ (Luke 1:49).
+<span id="_ftn61">\[61\]</span> Appropriately this is the word used by the Mother of God in the Church’s text of the *Magnificat*, ‘For he that is mighty has done great things for me’ (Luke 1:49).
 
-<a href="#_ftnref62" id="_ftn62">[62]</a> A further series of plays on words, here on the words <span style="font-family:&quot;Symbol Accentuated&quot;">ÁcronoV</span>—‘timeless’—, <span style="font-family:&quot;Symbol Accentuated&quot;">crónoV</span>—‘time’ and <span style="font-family:&quot;Symbol Accentuated&quot;">crónioV</span>—‘chronic’.
+<span id="_ftn62">\[62\]</span> A further series of plays on words, here on the words <span style="font-family:&quot;Symbol Accentuated&quot;">ÁcronoV</span>—‘timeless’—, <span style="font-family:&quot;Symbol Accentuated&quot;">crónoV</span>—‘time’ and <span style="font-family:&quot;Symbol Accentuated&quot;">crónioV</span>—‘chronic’.
 
-<a href="#_ftnref63" id="_ftn63">[63]</a> Daniel 3:51-52.
+<span id="_ftn63">\[63\]</span> Daniel 3:51-52.
 
-<a href="#_ftnref64" id="_ftn64">[64]</a> John 18:22. The word only occurs four times in the Bible, here and in the plural at Mark 14:65, John 19:3 and Isaias 50:6, ‘I gave my back to scourges and my cheeks to blows’.
+<span id="_ftn64">\[64\]</span> John 18:22. The word only occurs four times in the Bible, here and in the plural at Mark 14:65, John 19:3 and Isaias 50:6, ‘I gave my back to scourges and my cheeks to blows’.
 
-<a href="#_ftnref65" id="_ftn65">[65]</a> The word *alastor* is used frequently of the devil in the liturgical texts, but it only occurs four times in the Septuagint, three of them in 4 Maccabees and one in 2 Maccabees, where it is used of Antiochus Epiphanes and once of the ‘avenger’ who will punish him. In classical Greek it seems to have originally meant an ‘avenging deity’.
+<span id="_ftn65">\[65\]</span> The word *alastor* is used frequently of the devil in the liturgical texts, but it only occurs four times in the Septuagint, three of them in 4 Maccabees and one in 2 Maccabees, where it is used of Antiochus Epiphanes and once of the ‘avenger’ who will punish him. In classical Greek it seems to have originally meant an ‘avenging deity’.
 
-<a href="#_ftnref66" id="_ftn66">[66]</a> Matt. 27:51.
+<span id="_ftn66">\[66\]</span> Matt. 27:51.
 
-<a href="#_ftnref67" id="_ftn67">[67]</a> Literally ‘of the whole body’, but the devil has no body.
+<span id="_ftn67">\[67\]</span> Literally ‘of the whole body’, but the devil has no body.
 
-<a href="#_ftnref68" id="_ftn68">[68]</a> This is the title of one of the best known Ethiopic hymns to the Mother of God.
+<span id="_ftn68">\[68\]</span> This is the title of one of the best known Ethiopic hymns to the Mother of God.
 
-<a href="#_ftnref69" id="_ftn69">[69]</a> The phrase ‘gates of repentance’ is not scriptural, nor does it occur in any of the principal Fathers. It is, of course, well known from the Troparion after Psalm 50 at Sunday Matins in the Triodion. The nearest biblical text is Ps. 117:19, ‘Open to me the gates of justice—<span style="font-family:&quot;Symbol Accentuated&quot;">dikaiosúnhV</span>’, and the liturgical text seems to be an adaptation of it.
+<span id="_ftn69">\[69\]</span> The phrase ‘gates of repentance’ is not scriptural, nor does it occur in any of the principal Fathers. It is, of course, well known from the Troparion after Psalm 50 at Sunday Matins in the Triodion. The nearest biblical text is Ps. 117:19, ‘Open to me the gates of justice—<span style="font-family:&quot;Symbol Accentuated&quot;">dikaiosúnhV</span>’, and the liturgical text seems to be an adaptation of it.
 
-<a href="#_ftnref70" id="_ftn70">[70]</a> This word is only attested once in Greek, from the 7th century writer Leontios of Neapolis, as quoted by St John of Damascus, by whom it is used of the Burning Bush.
+<span id="_ftn70">\[70\]</span> This word is only attested once in Greek, from the 7th century writer Leontios of Neapolis, as quoted by St John of Damascus, by whom it is used of the Burning Bush.
 
-<a href="#_ftnref71" id="_ftn71">[71]</a> Cf. Ps. 103:2.
+<span id="_ftn71">\[71\]</span> Cf. Ps. 103:2.
 
-<a href="#_ftnref72" id="_ftn72">[72]</a> Even in English the play on the word ‘light’ is clear. In fact the Greek uses three different words, <span style="font-family:&quot;Symbol Accentuated&quot;">ölóf</span>w<span style="font-family:&quot;Symbol Accentuated&quot;">toV</span>—‘wholly light’, <span style="font-family:&quot;Symbol Accentuated&quot;">fwtodótoV</span>—‘giver of light’, and <span style="font-family:&quot;Symbol Accentuated&quot;">fôV</span>—‘light’.
+<span id="_ftn72">\[72\]</span> Even in English the play on the word ‘light’ is clear. In fact the Greek uses three different words, <span style="font-family:&quot;Symbol Accentuated&quot;">ölóf</span>w<span style="font-family:&quot;Symbol Accentuated&quot;">toV</span>—‘wholly light’, <span style="font-family:&quot;Symbol Accentuated&quot;">fwtodótoV</span>—‘giver of light’, and <span style="font-family:&quot;Symbol Accentuated&quot;">fôV</span>—‘light’.
 
-<a href="#_ftnref73" id="_ftn73">[73]</a> The ‘cherubim throne’ is a reference to the divine chariot in Ezekiel 1. Later, in chapter 10, the four living creatures are identified by the prophet as the cherubim: ‘And the Cherubim were lifted up. This was the living creature I had seen by the river Chobar’ (10,15).<span style="mso-spacerun: yes">  </span>The Greek text has a number of variant readings here. I translate what is most likely to have been the text known to the writer of the canon.
+<span id="_ftn73">\[73\]</span> The ‘cherubim throne’ is a reference to the divine chariot in Ezekiel 1. Later, in chapter 10, the four living creatures are identified by the prophet as the cherubim: ‘And the Cherubim were lifted up. This was the living creature I had seen by the river Chobar’ (10,15).<span style="mso-spacerun: yes">  </span>The Greek text has a number of variant readings here. I translate what is most likely to have been the text known to the writer of the canon.
 
 <a href="#_ftnref74" id="_ftn74">[74]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word used here for a ‘bridal chamber’ is *pastas*, which does not occur in Scripture. In the liturgical texts it nearly always recalls Psalm 18,6, where the word is the related word *pastos*. In a fragment on Psalm 18, attributed to St Athanasios, both words are found together with the typology of the Mother of God. </span><span lang="EN-US" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;
 mso-ansi-language:EN-US">Παστὸν τὴν Παρθένον ἐκά</span><span lang="EL" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
@@ -535,15 +535,15 @@ mso-ansi-language:EL">ἁγία</span><span lang="EL" style="font-size:12.0pt;
 font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:EN-US"> </span><span lang="EL" style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;;mso-ansi-language:
 EL">Παρθένος</span><span style="font-size:12.0pt;font-family:&quot;GR Times New Roman&quot;">. </span><span style="font-size:12.0pt;mso-bidi-font-family:&quot;GR Times New Roman&quot;">‘He called the Virgin ‘bridal chamber’—*pastos*—, from whom Christ the Bridegroom proceeded, coming forth pure from every stain. Christ’s bridal chamber—*pastas*— is the holy Virgin’.</span><span lang="EN-US" style="font-size:12.0pt;mso-bidi-font-size:10.0pt;mso-ansi-language:EN-US"></span>
 
-<a href="#_ftnref75" id="_ftn75">[75]</a> The same language is used in the 15th Antiphon of Matins of Good Friday. <span style="font-family:&quot;Symbol Accentuated&quot;"></span>
+<span id="_ftn75">\[75\]</span> The same language is used in the 15th Antiphon of Matins of Good Friday. <span style="font-family:&quot;Symbol Accentuated&quot;"></span>
 
-<a href="#_ftnref76" id="_ftn76">[76]</a> Luke 23,42.
+<span id="_ftn76">\[76\]</span> Luke 23,42.
 
-<a href="#_ftnref77" id="_ftn77">[77]</a> Matt. 27:51, John 19:34.
+<span id="_ftn77">\[77\]</span> Matt. 27:51, John 19:34.
 
-<a href="#_ftnref78" id="_ftn78">[78]</a> As the deacon says at the opening of the anaphora.
+<span id="_ftn78">\[78\]</span> As the deacon says at the opening of the anaphora.
 
-<a href="#_ftnref79" id="_ftn79">[79]</a> This word presents a problem, though the meaning is clear. It is not in Liddell and Scott and in Lampe it is only given as an erroneous reading Migne’s text of the seventh century George of Pisidia’s *Hexaemeron*.**
+<span id="_ftn79">\[79\]</span> This word presents a problem, though the meaning is clear. It is not in Liddell and Scott and in Lampe it is only given as an erroneous reading Migne’s text of the seventh century George of Pisidia’s *Hexaemeron*.**
 
  
 

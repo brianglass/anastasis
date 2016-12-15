@@ -292,18 +292,18 @@ font-family:&quot;Book Antiqua&quot;"></span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:25 (LXX). </span><span style="font-size:12.0pt;mso-bidi-font-size:
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:25 (LXX). </span><span style="font-size:12.0pt;mso-bidi-font-size:
 13.5pt;font-family:&quot;Book Antiqua&quot;">The first line of Stanza 1 echoes the LXX text of Genesis 3:24, which reads ’And \[God\] settled Adam opposite the Paradise of pleasure and set in place the Cherubim’. This rendering has influenced both the liturgical and the iconographic traditions. The Hebrew has only one verb, ’And \[God\] settled east of the garden of Eden the Cherubim’. The Catholic *New American Bible* has adopted the LXX reading as the correct one.</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:18.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:18.</span>
 
 <span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;
-font-family:&quot;Book Antiqua&quot;"> </span><a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:20.</span>
+font-family:&quot;Book Antiqua&quot;"> </span><span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Cf. Gen. 3:20.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">The trope in the second line of Stanza 18 is almost impossible to translate. The verb I have translated ’take in’ in both clauses is the same, and means both ’cheat’ and ’steal’.</span><span style="font-size:12.0pt;mso-bidi-font-size:
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> </span><span style="font-size:12.0pt;mso-bidi-font-size:13.5pt;font-family:&quot;Book Antiqua&quot;">The trope in the second line of Stanza 18 is almost impossible to translate. The verb I have translated ’take in’ in both clauses is the same, and means both ’cheat’ and ’steal’.</span><span style="font-size:12.0pt;mso-bidi-font-size:
 10.0pt;font-family:&quot;Book Antiqua&quot;"></span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These stanzas, 19-22, are considered spurious by the editor, though they are present in all but one <span style="font-variant:small-caps;">ms</span>. 18 forms a final prayer, which is feature of the classic kontakion, and the final stanzas, which form the word ADAM in the acrostic seem to be an unnecessary addition. They are not really about Adam at all and greatly inferior in quality, being simply a collection of commonplaces.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These stanzas, 19-22, are considered spurious by the editor, though they are present in all but one <span style="font-variant:small-caps;">ms</span>. 18 forms a final prayer, which is feature of the classic kontakion, and the final stanzas, which form the word ADAM in the acrostic seem to be an unnecessary addition. They are not really about Adam at all and greatly inferior in quality, being simply a collection of commonplaces.</span>
 
  
 

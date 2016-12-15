@@ -607,7 +607,7 @@ Master and Lord of the ages.</span>
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This translation of St Romanos’s kontakion for the Second Sunday of Lent is taken from my book, *On The Life of Christ. Kontakia*, ** published for the International Sacred Literature Trust by AltaMira Press \[ISBN 0-06-064943-7\], which includes notes and introduction. </span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This translation of St Romanos’s kontakion for the Second Sunday of Lent is taken from my book, *On The Life of Christ. Kontakia*, ** published for the International Sacred Literature Trust by AltaMira Press \[ISBN 0-06-064943-7\], which includes notes and introduction. </span>
 
  
 

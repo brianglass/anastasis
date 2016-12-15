@@ -449,7 +449,7 @@ The brightness of the Father’s glory has appeared in Jordan’s streams, clean
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[</a><a href="#_ftnref1" id="_ftn1">1]</a><span style="font-family: Book Antiqua"> In Hebrew the name ‘Malachy’ means ‘My Messenger’, in Greek ‘My Angel’.</span>
+<span id="_ftn1">\[</span><span id="_ftn1">1\]</span><span style="font-family: Book Antiqua"> In Hebrew the name ‘Malachy’ means ‘My Messenger’, in Greek ‘My Angel’.</span>
 
 <span style="font-family: Book Antiqua"><a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-family:&quot;Book Antiqua&quot;"> </span><span style="mso-bidi-font-size:
 13.5pt;font-family:&quot;Book Antiqua&quot;">The final hexameter is deliberately Homeric. The words for ‘heart’ and ‘limbs’, or ‘members’, are both epic ones. In Iliad 16:856 a person’s soul is said to ‘fly from their limbs’, using the same words as here.</span><span style="font-family:&quot;Book Antiqua&quot;"></span></span>

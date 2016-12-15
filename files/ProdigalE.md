@@ -396,21 +396,21 @@ Great Doxology. the two Litanies, and the Dismissal. The usual Liti, at which we
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This word *geosporo* is not attested in the lexica, though the meaning is obvious.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, ‘to’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive ‘To be entrusted with something’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be ‘with’, which at least makes sense, and for the moment I follow him. It is unclear what the ‘sinless and living land is’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word ‘but’ in the first line is not in the Greek and there is a colon after ‘sin’. The latter would not make sense. It is simpler to take ‘having sown the ground with sin’ with what follows. In Slavonic ‘reaped’ and ‘piled’ are also participles, which all depend on ‘I was entrusted’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the ‘I’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means ‘entrusted with’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word ‘country’. </span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The first sentence of this sticheron is not easy. The use of the preposition *eis*, ‘to’, with the passive of *pisteuo* is, so far as I can tell, unprecedented. The passive ‘To be entrusted with something’ would normally have the accusative of the thing entrusted. The Slavonic is equally odd. Bishop Kallistos takes the meaning to be ‘with’, which at least makes sense, and for the moment I follow him. It is unclear what the ‘sinless and living land is’. The latter adjective is not scriptural and the former only occurs twice, at Deuteronomy 29:18 and John 8:7; neither of which is of any help. The word ‘but’ in the first line is not in the Greek and there is a colon after ‘sin’. The latter would not make sense. It is simpler to take ‘having sown the ground with sin’ with what follows. In Slavonic ‘reaped’ and ‘piled’ are also participles, which all depend on ‘I was entrusted’ in the first clause. This is also very odd. As so often in these texts, one can ask to whom the ‘I’ refers. In one sense it clearly refers to the writer, and hence to the person praying, but if the opening phrase means ‘entrusted with’, there could also be a allusion to Adam. There is no obvious reference to the Profligate Son, except, perhaps, the use of the word ‘country’. </span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo* <span style="mso-spacerun: yes"> </span>is not attested in the lexical, but again the meaning is obvious.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The word *apolikmazo* <span style="mso-spacerun: yes"> </span>is not attested in the lexical, but again the meaning is obvious.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The usual meaning is ‘pay’, used with reference to soldiers, but the word is connected with *sitos*, ‘corn’, and so the meaning must be the one proposed above.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The Greek *basileia* means both ‘kingdom’ and ‘kingship’.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday.</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the note to the Liti of the previous Sunday.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> The only reference in Liddell and Scott is to Isaias 11:6, which is the only occurrence of the word in Scripture. The Septuagint has pointed up the reference to animals, since the Hebrew simply means ‘dwell with’.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday.</span>
+<span id="_ftn8">\[8\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> See the rubrics for the previous Sunday.</span>
 
  
 

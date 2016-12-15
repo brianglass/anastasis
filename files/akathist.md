@@ -150,95 +150,95 @@ Spare your inheritance, O God, disregarding all our sins. For this you have inte
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a> Psalm 77:2
+<span id="_ftn1">\[1\]</span> Psalm 77:2
 
-<a href="#_ftnref2" id="_ftn2">[2]</a> Psalm 44:1
+<span id="_ftn2">\[2\]</span> Psalm 44:1
 
-<a href="#_ftnref3" id="_ftn3">[3]</a> Isaias 29:11
+<span id="_ftn3">\[3\]</span> Isaias 29:11
 
-<a href="#_ftnref4" id="_ftn4">[4]</a> cf. Gen. 3:16
+<span id="_ftn4">\[4\]</span> cf. Gen. 3:16
 
-<a href="#_ftnref5" id="_ftn5">[5]</a> cf. Dan. 7:9
+<span id="_ftn5">\[5\]</span> cf. Dan. 7:9
 
-<a href="#_ftnref6" id="_ftn6">[6]</a> cf. Song of Songs 2:1-2
+<span id="_ftn6">\[6\]</span> cf. Song of Songs 2:1-2
 
-<a href="#_ftnref7" id="_ftn7">[7]</a> cf. John 12:3
+<span id="_ftn7">\[7\]</span> cf. John 12:3
 
-<a href="#_ftnref8" id="_ftn8">[8]</a> Exodus 25:23-30
+<span id="_ftn8">\[8\]</span> Exodus 25:23-30
 
-<a href="#_ftnref9" id="_ftn9">[9]</a> cf. John 7:38
+<span id="_ftn9">\[9\]</span> cf. John 7:38
 
-<a href="#_ftnref10" id="_ftn10">[10]</a> cf. Luke 15:23
+<span id="_ftn10">\[10\]</span> cf. Luke 15:23
 
-<a href="#_ftnref11" id="_ftn11">[11]</a> cf. John 1:29
+<span id="_ftn11">\[11\]</span> cf. John 1:29
 
-<a href="#_ftnref12" id="_ftn12">[12]</a> Exodus 25:17-22, Romans 3:25, Hebrews 9:5
+<span id="_ftn12">\[12\]</span> Exodus 25:17-22, Romans 3:25, Hebrews 9:5
 
-<a href="#_ftnref13" id="_ftn13">[13]</a> Ezekiel 44:1-3
+<span id="_ftn13">\[13\]</span> Ezekiel 44:1-3
 
-<a href="#_ftnref14" id="_ftn14">[14]</a> Psalm 106:16
+<span id="_ftn14">\[14\]</span> Psalm 106:16
 
-<a href="#_ftnref15" id="_ftn15">[15]</a> cf. Isaias 6:1
+<span id="_ftn15">\[15\]</span> cf. Isaias 6:1
 
-<a href="#_ftnref16" id="_ftn16">[16]</a> Isaias 19:1
+<span id="_ftn16">\[16\]</span> Isaias 19:1
 
-<a href="#_ftnref17" id="_ftn17">[17]</a> Psalm 67:17
+<span id="_ftn17">\[17\]</span> Psalm 67:17
 
-<a href="#_ftnref18" id="_ftn18">[18]</a> Exodus 25:31-40
+<span id="_ftn18">\[18\]</span> Exodus 25:31-40
 
-<a href="#_ftnref19" id="_ftn19">[19]</a> Hebrews 9:4
+<span id="_ftn19">\[19\]</span> Hebrews 9:4
 
-<a href="#_ftnref20" id="_ftn20">[20]</a> Exodus 25:17-22, Romans 3:25, Hebrews 9:5
+<span id="_ftn20">\[20\]</span> Exodus 25:17-22, Romans 3:25, Hebrews 9:5
 
-<a href="#_ftnref21" id="_ftn21">[21]</a> Gen. 28:10-17
+<span id="_ftn21">\[21\]</span> Gen. 28:10-17
 
-<a href="#_ftnref22" id="_ftn22">[22]</a> John14:6
+<span id="_ftn22">\[22\]</span> John14:6
 
-<a href="#_ftnref23" id="_ftn23">[23]</a> cf. Gen. 6-9
+<span id="_ftn23">\[23\]</span> cf. Gen. 6-9
 
-<a href="#_ftnref24" id="_ftn24">[24]</a> cf. Ezekiel 3:12
+<span id="_ftn24">\[24\]</span> cf. Ezekiel 3:12
 
-<a href="#_ftnref25" id="_ftn25">[25]</a> cf. 3 Kingd. 2:11, Ezekiel 1
+<span id="_ftn25">\[25\]</span> cf. 3 Kingd. 2:11, Ezekiel 1
 
-<a href="#_ftnref26" id="_ftn26">[26]</a> Gen. 2:9, 3:22-24, Apocalypse 2:7, 22:2.22
+<span id="_ftn26">\[26\]</span> Gen. 2:9, 3:22-24, Apocalypse 2:7, 22:2.22
 
-<a href="#_ftnref27" id="_ftn27">[27]</a> Psalm 47:3
+<span id="_ftn27">\[27\]</span> Psalm 47:3
 
-<a href="#_ftnref28" id="_ftn28">[28]</a> Psalm 86:3
+<span id="_ftn28">\[28\]</span> Psalm 86:3
 
-<a href="#_ftnref29" id="_ftn29">[29]</a> Daniel 2:34
+<span id="_ftn29">\[29\]</span> Daniel 2:34
 
-<a href="#_ftnref30" id="_ftn30">[30]</a> cf. Judges 5:4, 6:36-40, Daniel 3:50
+<span id="_ftn30">\[30\]</span> cf. Judges 5:4, 6:36-40, Daniel 3:50
 
-<a href="#_ftnref31" id="_ftn31">[31]</a> Exodus 3:1-6
+<span id="_ftn31">\[31\]</span> Exodus 3:1-6
 
-<a href="#_ftnref32" id="_ftn32">[32]</a><span lang="FR" style="mso-ansi-language:FR"> Exodus 13:21 etc., Sirach 24:4</span>
+<span id="_ftn32">\[32\]</span><span lang="FR" style="mso-ansi-language:FR"> Exodus 13:21 etc., Sirach 24:4</span>
 
-<a href="#_ftnref33" id="_ftn33">[33]</a> Daniel 3
+<span id="_ftn33">\[33\]</span> Daniel 3
 
-<a href="#_ftnref34" id="_ftn34">[34]</a> Numbers 13:23-24
+<span id="_ftn34">\[34\]</span> Numbers 13:23-24
 
-<a href="#_ftnref35" id="_ftn35">[35]</a> Numbers 17:1-11, Hebrews 9:4
+<span id="_ftn35">\[35\]</span> Numbers 17:1-11, Hebrews 9:4
 
-<a href="#_ftnref36" id="_ftn36">[36]</a><span lang="FR" style="mso-ansi-language:FR"> cf. Isaias 8:1, Phil. 3:5, Apoc. 3:5, 13:8, 20:12, 21:27</span>
+<span id="_ftn36">\[36\]</span><span lang="FR" style="mso-ansi-language:FR"> cf. Isaias 8:1, Phil. 3:5, Apoc. 3:5, 13:8, 20:12, 21:27</span>
 
-<a href="#_ftnref37" id="_ftn37">[37]</a> Daniel 3
+<span id="_ftn37">\[37\]</span> Daniel 3
 
-<a href="#_ftnref38" id="_ftn38">[38]</a> Exodus 3:1-6
+<span id="_ftn38">\[38\]</span> Exodus 3:1-6
 
-<a href="#_ftnref39" id="_ftn39">[39]</a> Gen. 3:7
+<span id="_ftn39">\[39\]</span> Gen. 3:7
 
-<a href="#_ftnref40" id="_ftn40">[40]</a> Luke 1:79, Psalm 35:10
+<span id="_ftn40">\[40\]</span> Luke 1:79, Psalm 35:10
 
-<a href="#_ftnref41" id="_ftn41">[41]</a> cf. John 5:21
+<span id="_ftn41">\[41\]</span> cf. John 5:21
 
-<a href="#_ftnref42" id="_ftn42">[42]</a> cf. Luke 7:22
+<span id="_ftn42">\[42\]</span> cf. Luke 7:22
 
-<a href="#_ftnref43" id="_ftn43">[43]</a> cf. Matthew 6:13
+<span id="_ftn43">\[43\]</span> cf. Matthew 6:13
 
-<a href="#_ftnref44" id="_ftn44">[44]</a> Gen. 3:24
+<span id="_ftn44">\[44\]</span> Gen. 3:24
 
-<a href="#_ftnref45" id="_ftn45">[45]</a> Exodus 13:21-22
+<span id="_ftn45">\[45\]</span> Exodus 13:21-22
 
  
 

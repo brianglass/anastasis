@@ -369,44 +369,44 @@ font-family:&quot;Book Antiqua&quot;">My son, keep your father’s laws and do n
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The word ‘Jerusalem’ is not in the LXX, but it was added by Origen, from the Hebrew and so is included in the text of the Triodion.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The word ‘Jerusalem’ is not in the LXX, but it was added by Origen, from the Hebrew and so is included in the text of the Triodion.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The translator has got into difficulties by reading<span style="mso-spacerun:
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The translator has got into difficulties by reading<span style="mso-spacerun:
 yes">  </span>‘and he will create’ as ‘and he will come’.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> In fact both Greek and Hebrew have ‘horn’, but the Hebrew, on the basis of Arabic parallels, is understood to mean ‘an isolated hill’. Whether the LXX translator knew this is another question! If the experts are right this is the only example of this meaning of the word in Hebrew.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> In fact both Greek and Hebrew have ‘horn’, but the Hebrew, on the basis of Arabic parallels, is understood to mean ‘an isolated hill’. Whether the LXX translator knew this is another question! If the experts are right this is the only example of this meaning of the word in Hebrew.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> In view of the next verses, where the owner speaks in the first person, the LXX’s change of person here is not so illogical.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> In view of the next verses, where the owner speaks in the first person, the LXX’s change of person here is not so illogical.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Hebrew has the singular in both phrases.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Hebrew has the singular in both phrases.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These words are not in the Hebrew, but they are alluded to a number of times in the office for Cheese Sunday, notably in the Kontakion and in the Doxastikon at Vespers.</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> These words are not in the Hebrew, but they are alluded to a number of times in the office for Cheese Sunday, notably in the Kontakion and in the Doxastikon at Vespers.</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> In Hebrew there is a play on the verb and the name ‘Cain’. This is hardly possible to reproduce in Greek. I have tried to suggest the idea in English with ‘gain/Cain’.</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> In Hebrew there is a play on the verb and the name ‘Cain’. This is hardly possible to reproduce in Greek. I have tried to suggest the idea in English with ‘gain/Cain’.</span>
 
-<a href="#_ftnref8" id="_ftn8">[8]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Both the Greek and the Hebrew of God’s words to Cain are extremely obscure. The first part of the Greek is an attempt to explain God’s refusal of Cain’s sacrifice, which is due to some ritual error. The second part is extremely obscure and there seems no satisfactory exegesis.</span>
+<span id="_ftn8">\[8\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Both the Greek and the Hebrew of God’s words to Cain are extremely obscure. The first part of the Greek is an attempt to explain God’s refusal of Cain’s sacrifice, which is due to some ritual error. The second part is extremely obscure and there seems no satisfactory exegesis.</span>
 
-<a href="#_ftnref9" id="_ftn9">[9]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Like Macbeth.</span>
+<span id="_ftn9">\[9\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Like Macbeth.</span>
 
-<a href="#_ftnref10" id="_ftn10">[10]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Hebrew is using the word in its ‘literal’ sense of ‘throat’, but LXX has misunderstood this. So have the Vulgate and the AV. In Hebrew all the pronouns are feminine and refer to Sheol.</span>
+<span id="_ftn10">\[10\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Hebrew is using the word in its ‘literal’ sense of ‘throat’, but LXX has misunderstood this. So have the Vulgate and the AV. In Hebrew all the pronouns are feminine and refer to Sheol.</span>
 
-<a href="#_ftnref11" id="_ftn11">[11]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Hebrew simply has, ‘And Cain said to his brother Abel’, but the LXX is supported by the Syriac, the Samaritan, the Vulgate and the Targums. AV’s ‘And Cain talked with Abel’ is an attempt to disguise the problem in the Hebrew.</span>
+<span id="_ftn11">\[11\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Hebrew simply has, ‘And Cain said to his brother Abel’, but the LXX is supported by the Syriac, the Samaritan, the Vulgate and the Targums. AV’s ‘And Cain talked with Abel’ is an attempt to disguise the problem in the Hebrew.</span>
 
-<a href="#_ftnref12" id="_ftn12">[12]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> LXX takes the noun ‘her end’ as an adverb, and hence has no noun for the next clauses to refer to, but the adjectives are neuter, not feminine, hence ‘it’.</span>
+<span id="_ftn12">\[12\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> LXX takes the noun ‘her end’ as an adverb, and hence has no noun for the next clauses to refer to, but the adjectives are neuter, not feminine, hence ‘it’.</span>
 
-<a href="#_ftnref13" id="_ftn13">[13]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Hebrew again plays on the name, which one could reproduce in English by ‘Has set another son for me’, which is in fact a more literal rendering of the Hebrew.</span>
+<span id="_ftn13">\[13\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Hebrew again plays on the name, which one could reproduce in English by ‘Has set another son for me’, which is in fact a more literal rendering of the Hebrew.</span>
 
-<a href="#_ftnref14" id="_ftn14">[14]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Triodion, like the Alexandrinus and the corrector of the Sinaiticus, omits the negative in this sentence. The pious baronet’s note should be attached to this verse and not verse 13. There is no negative in the Hebrew</span>
+<span id="_ftn14">\[14\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The Triodion, like the Alexandrinus and the corrector of the Sinaiticus, omits the negative in this sentence. The pious baronet’s note should be attached to this verse and not verse 13. There is no negative in the Hebrew</span>
 
-<a href="#_ftnref15" id="_ftn15">[15]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Note the song of the Seraphim, in the biblical text, is in the third person. Since ‘Lord’ represents the proper name YHWH, many scholars take ‘Sabaoth’ as a divine title. The same is true of the Fathers and the liturgical texts. The usual LXX translation is ‘almighty’, in Greek ‘Pantocrator’, but the Isaiah translator keeps the Hebrew word. The Hebrew word means ‘armies’, either the armies of Israel, or the heavenly hosts, angels, stars and so forth, though its meaning in the divine title YHWH Sabaoth is less certain.</span>
+<span id="_ftn15">\[15\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Note the song of the Seraphim, in the biblical text, is in the third person. Since ‘Lord’ represents the proper name YHWH, many scholars take ‘Sabaoth’ as a divine title. The same is true of the Fathers and the liturgical texts. The usual LXX translation is ‘almighty’, in Greek ‘Pantocrator’, but the Isaiah translator keeps the Hebrew word. The Hebrew word means ‘armies’, either the armies of Israel, or the heavenly hosts, angels, stars and so forth, though its meaning in the divine title YHWH Sabaoth is less certain.</span>
 
-<a href="#_ftnref16" id="_ftn16">[16]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This word, *lavis*, which is singular in Greek, is the one used for the spoon with which Communion is given. The word does not mean ‘spoon’. It is used in this way with direct reference to this verse of Isaias, just as the next verse is prescribed to be said after receiving Communion.</span>
+<span id="_ftn16">\[16\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> This word, *lavis*, which is singular in Greek, is the one used for the spoon with which Communion is given. The word does not mean ‘spoon’. It is used in this way with direct reference to this verse of Isaias, just as the next verse is prescribed to be said after receiving Communion.</span>
 
-<a href="#_ftnref17" id="_ftn17">[17]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Exceptionally the Verse is not the opening verse of the Psalm.</span>
+<span id="_ftn17">\[17\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> Exceptionally the Verse is not the opening verse of the Psalm.</span>
 
-<a href="#_ftnref18" id="_ftn18">[18]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The passage about the bee is not in the Hebrew.</span>
+<span id="_ftn18">\[18\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The passage about the bee is not in the Hebrew.</span>
 
-<a href="#_ftnref19" id="_ftn19">[19]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The words ‘left behind’ are, of course, part of the boy’s prophetic name; in Hebrew ‘Shear-Yashuv’, ‘A remnant shall return’. The LXX translator appears not to have understood this.</span>
+<span id="_ftn19">\[19\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt;font-family:&quot;Book Antiqua&quot;"> The words ‘left behind’ are, of course, part of the boy’s prophetic name; in Hebrew ‘Shear-Yashuv’, ‘A remnant shall return’. The LXX translator appears not to have understood this.</span>
 
  
 

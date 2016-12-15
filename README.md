@@ -23,8 +23,8 @@ Once you have this done, you should be able to run the script as follows:
 
     python cleanup.py
 
-The script will convert the files in the 'original' directory to new markdown
-files in the 'files' directory.
+The script will convert the files in the _original_ directory to new markdown
+files in the _files_ directory.
 
 Work in Progress
 ================

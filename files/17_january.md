@@ -108,19 +108,19 @@ The zealous Elias you imitated by your life,<a href="#_ftn7" id="_ftnref7">[7]</
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> An expression used of St Savvas by Cyril of Scythopolis.</span>
+<span id="_ftn1">\[1\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> An expression used of St Savvas by Cyril of Scythopolis.</span>
 
-<a href="#_ftnref2" id="_ftn2">[2]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf.1 Corinthians 13:12.</span>
+<span id="_ftn2">\[2\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Cf.1 Corinthians 13:12.</span>
 
-<a href="#_ftnref3" id="_ftn3">[3]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 91:13.12, though ‘Lebanon’ has become ‘desert’, the passive ‘he will be multiplied’, i.e. ‘grow’, has become active and the plural ‘planted’ has become singular.</span>
+<span id="_ftn3">\[3\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 91:13.12, though ‘Lebanon’ has become ‘desert’, the passive ‘he will be multiplied’, i.e. ‘grow’, has become active and the plural ‘planted’ has become singular.</span>
 
-<a href="#_ftnref4" id="_ftn4">[4]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 115:6.</span>
+<span id="_ftn4">\[4\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 115:6.</span>
 
-<a href="#_ftnref5" id="_ftn5">[5]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 111:1.</span>
+<span id="_ftn5">\[5\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> Psalm 111:1.</span>
 
-<a href="#_ftnref6" id="_ftn6">[6]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron which presents Antony as a new Moses, is based on the book of Exodus from chapters 13:21-22 \[the Pillar of Cloud and Fire\], 14:15-29 \[the Crossing of the Read Sea. For the idea that Moses made a cross when he parted and then closed the sea, cf. the Irmos to Ode 1 on the feast of the Cross, ‘A Cross Moses traced out as he cut the Red Sea in a straight line with his rod for Israel as they marched on foot; and then united it again, overwhelming Pharao with his chariots, as with another line he marked out the invincible weapon. Therefore let us sing to Christ our God, for he has been glorified.’\], to 17:8-13 \[the defeat of Amalek\]</span>
+<span id="_ftn6">\[6\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> This sticheron which presents Antony as a new Moses, is based on the book of Exodus from chapters 13:21-22 \[the Pillar of Cloud and Fire\], 14:15-29 \[the Crossing of the Read Sea. For the idea that Moses made a cross when he parted and then closed the sea, cf. the Irmos to Ode 1 on the feast of the Cross, ‘A Cross Moses traced out as he cut the Red Sea in a straight line with his rod for Israel as they marched on foot; and then united it again, overwhelming Pharao with his chariots, as with another line he marked out the invincible weapon. Therefore let us sing to Christ our God, for he has been glorified.’\], to 17:8-13 \[the defeat of Amalek\]</span>
 
-<a href="#_ftnref7" id="_ftn7">[7]</a><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In St Athanasios’ *Life of Antony* we read that Antony ‘used to say to himself that the ascetic should learn from the way of life of the great Elias as from a mirror’ \[PG 26:853\]</span>
+<span id="_ftn7">\[7\]</span><span style="font-size:12.0pt;mso-bidi-font-size:10.0pt"> In St Athanasios’ *Life of Antony* we read that Antony ‘used to say to himself that the ascetic should learn from the way of life of the great Elias as from a mirror’ \[PG 26:853\]</span>
 
  
 

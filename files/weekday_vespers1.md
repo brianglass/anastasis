@@ -249,73 +249,73 @@ All my hope I place in you, O Mother of the light; guard me beneath your protect
 
 ------------------------------------------------------------------------
 
-<a href="#_ftnref1" id="_ftn1">[1]</a> Luke 15,18.
+<span id="_ftn1">\[1\]</span> Luke 15,18.
 
-<a href="#_ftnref2" id="_ftn2">[2]</a> Cf. John 1,17 and Luke 1,28 ‘Hail, full of grace’.
+<span id="_ftn2">\[2\]</span> Cf. John 1,17 and Luke 1,28 ‘Hail, full of grace’.
 
-<a href="#_ftnref3" id="_ftn3">[3]</a> Cf. John 1,17.
+<span id="_ftn3">\[3\]</span> Cf. John 1,17.
 
-<a href="#_ftnref4" id="_ftn4">[4]</a> Luke 15,18.
+<span id="_ftn4">\[4\]</span> Luke 15,18.
 
-<a href="#_ftnref5" id="_ftn5">[5]</a> Luke 18,13.
+<span id="_ftn5">\[5\]</span> Luke 18,13.
 
-<a href="#_ftnref6" id="_ftn6">[6]</a> Ezekiel 44,1-2.
+<span id="_ftn6">\[6\]</span> Ezekiel 44,1-2.
 
-<a href="#_ftnref7" id="_ftn7">[7]</a> Matthew 13,8.
+<span id="_ftn7">\[7\]</span> Matthew 13,8.
 
-<a href="#_ftnref8" id="_ftn8">[8]</a> Luke 15,18.
+<span id="_ftn8">\[8\]</span> Luke 15,18.
 
-<a href="#_ftnref9" id="_ftn9">[9]</a> Luke 18,13.
+<span id="_ftn9">\[9\]</span> Luke 18,13.
 
-<a href="#_ftnref10" id="_ftn10">[10]</a> Matthew 27,38-51.
+<span id="_ftn10">\[10\]</span> Matthew 27,38-51.
 
-<a href="#_ftnref11" id="_ftn11">[11]</a> Genesis 3,17-19.
+<span id="_ftn11">\[11\]</span> Genesis 3,17-19.
 
-<a href="#_ftnref12" id="_ftn12">[12]</a> Cf. Numbers 13,23.
+<span id="_ftn12">\[12\]</span> Cf. Numbers 13,23.
 
-<a href="#_ftnref13" id="_ftn13">[13]</a> Matthew 14,28-31.
+<span id="_ftn13">\[13\]</span> Matthew 14,28-31.
 
-<a href="#_ftnref14" id="_ftn14">[14]</a> Genesis 2,9.
+<span id="_ftn14">\[14\]</span> Genesis 2,9.
 
-<a href="#_ftnref15" id="_ftn15">[15]</a> Acts 5,15.
+<span id="_ftn15">\[15\]</span> Acts 5,15.
 
-<a href="#_ftnref16" id="_ftn16">[16]</a> Matthew 8,25.
+<span id="_ftn16">\[16\]</span> Matthew 8,25.
 
-<a href="#_ftnref17" id="_ftn17">[17]</a> Matthew 27,38-51.
+<span id="_ftn17">\[17\]</span> Matthew 27,38-51.
 
-<a href="#_ftnref18" id="_ftn18">[18]</a> Genesis 3,17-19.
+<span id="_ftn18">\[18\]</span> Genesis 3,17-19.
 
-<a href="#_ftnref19" id="_ftn19">[19]</a> Ephesians 6,12.
+<span id="_ftn19">\[19\]</span> Ephesians 6,12.
 
-<a href="#_ftnref20" id="_ftn20">[20]</a> Matthew 14,28-31.
+<span id="_ftn20">\[20\]</span> Matthew 14,28-31.
 
-<a href="#_ftnref21" id="_ftn21">[21]</a> Genesis 2,9.
+<span id="_ftn21">\[21\]</span> Genesis 2,9.
 
-<a href="#_ftnref22" id="_ftn22">[22]</a> Cf. Numbers 13,23.
+<span id="_ftn22">\[22\]</span> Cf. Numbers 13,23.
 
-<a href="#_ftnref23" id="_ftn23">[23]</a> Matthew 25,31-33.
+<span id="_ftn23">\[23\]</span> Matthew 25,31-33.
 
-<a href="#_ftnref24" id="_ftn24">[24]</a> Ephesians 6,12.
+<span id="_ftn24">\[24\]</span> Ephesians 6,12.
 
-<a href="#_ftnref25" id="_ftn25">[25]</a> Genesis 1,27.
+<span id="_ftn25">\[25\]</span> Genesis 1,27.
 
-<a href="#_ftnref26" id="_ftn26">[26]</a> Matthew 13,42.
+<span id="_ftn26">\[26\]</span> Matthew 13,42.
 
-<a href="#_ftnref27" id="_ftn27">[27]</a> Mark 9,48.
+<span id="_ftn27">\[27\]</span> Mark 9,48.
 
-<a href="#_ftnref28" id="_ftn28">[28]</a> Ephesians 6,12.
+<span id="_ftn28">\[28\]</span> Ephesians 6,12.
 
-<a href="#_ftnref29" id="_ftn29">[29]</a> Hebrews 10,1.
+<span id="_ftn29">\[29\]</span> Hebrews 10,1.
 
-<a href="#_ftnref30" id="_ftn30">[30]</a> Exodus 3,2.
+<span id="_ftn30">\[30\]</span> Exodus 3,2.
 
-<a href="#_ftnref31" id="_ftn31">[31]</a> Exodus 13,21.
+<span id="_ftn31">\[31\]</span> Exodus 13,21.
 
-<a href="#_ftnref32" id="_ftn32">[32]</a> Malachy 3,20 (4,2).
+<span id="_ftn32">\[32\]</span> Malachy 3,20 (4,2).
 
-<a href="#_ftnref33" id="_ftn33">[33]</a> 1 Corinthians 15,52.
+<span id="_ftn33">\[33\]</span> 1 Corinthians 15,52.
 
-<a href="#_ftnref34" id="_ftn34">[34]</a> Cf. Psalm 117,15.
+<span id="_ftn34">\[34\]</span> Cf. Psalm 117,15.
 
  
 
