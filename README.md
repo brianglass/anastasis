@@ -5,7 +5,7 @@ With his passing (may his memory be eternal!), easy access to his translations w
 a correspondence with the appropriate people in order to make sure this repository is permitted, but am making 
 these texts available here in the interim.
 
-Please begin with Archimandrite Ephrem's [Index](files/index.md) or [Table of Contents](files/Table_of_Contents.md).
+Please begin with Archimandrite Ephrem's [Table of Contents](files/Table_of_Contents.md) or [Index](files/index.md).
 
 Converting
 ==========
