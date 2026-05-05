@@ -1,2 +1,2 @@
-lxml==3.7.0
+lxml==6.1.0
 pandocfilters==1.4.1
